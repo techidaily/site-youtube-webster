@@ -1,7 +1,7 @@
 ---
 title: "\"Vloggers' Guide to Choosing Camera Essentials - The Top 9 Accessories\""
-date: 2024-06-17T07:14:07.122Z
-updated: 2024-06-18T07:14:07.122Z
+date: 2024-07-03T11:48:39.451Z
+updated: 2024-07-04T11:48:39.451Z
 tags:
   - ai video
   - ai youtube
@@ -28,7 +28,7 @@ thumbnail: https://thmb.techidaily.com/9eaae45a5ae000b67c414e7abf4faf363e86f9932
 
 As smartphone camera technology is rapidly advancing, more and more people are using smartphones as their primary vlogging device. They’re convenient and they draw the least amount of attention. But since most smartphones weren’t made specifically for vlogging, there’s a lot of room to make them more suitable for that purpose. Here is a list of the nine best smartphone camera accessories for vloggers.
 
-| Table of Contents 1\. [PORTABLE CHARGER](#portablecharger)2\. [TRIPOD MOUNT](#tripodmount)3\. [ANTI-GRAVITY CASE](#antigravitycase)4\. [SELFIE RING LIGHT](#selfieringlight)5\. [DIRECTIONAL MICROPHONE](#directionalmic)6\. [LENS SET](#lensset)7\. [FILMMAKING RIG](#filmmakingrig01)8\. [FILMMAKING RIG](#filmmakingrig02)9\. [GIMBAL](#gimbal) |
+| Table of Contents 1\. [PORTABLE CHARGER](#portablecharger) 2\. [TRIPOD MOUNT](#tripodmount) 3\. [ANTI-GRAVITY CASE](#antigravitycase) 4\. [SELFIE RING LIGHT](#selfieringlight) 5\. [DIRECTIONAL MICROPHONE](#directionalmic) 6\. [LENS SET](#lensset) 7\. [FILMMAKING RIG](#filmmakingrig01) 8\. [FILMMAKING RIG](#filmmakingrig02) 9\. [GIMBAL](#gimbal) |
 | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
 ### 1\. RAVPower Portable Charger

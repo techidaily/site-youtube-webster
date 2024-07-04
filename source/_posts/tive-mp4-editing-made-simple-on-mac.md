@@ -1,7 +1,7 @@
 ---
 title: "Selective MP4 Editing Made Simple on Mac"
-date: 2024-06-17T06:53:02.017Z
-updated: 2024-06-18T06:53:02.017Z
+date: 2024-07-03T11:48:36.136Z
+updated: 2024-07-04T11:48:36.136Z
 tags:
   - ai video
   - ai youtube
@@ -127,7 +127,7 @@ Step 3 - Now, using the slider, adjust the extent to which you want the color se
 
 Cutting MP4 or other videos for YouTube content creation is a major part of the process. You need to have reliable and versatile video editing software that can get the job done without any hassle. And while there are professional packages available, they cost way too much for the YouTubers who are just starting out or are just hobbyists. That's where Filmora X can be an exceptional alternative offering a wide variety of features at a fraction of the cost.
 
-You can try[Filmora X for free](https://tools.techidaily.com/wondershare/filmora/download/) for cutting MP4 videos before you pay for the fully-featured software.
+You can try [Filmora X for free](https://tools.techidaily.com/wondershare/filmora/download/) for cutting MP4 videos before you pay for the fully-featured software.
 
 You May Also Like:[How do Beginners Make a Cool Video for YouTube on Mac>>>](https://tools.techidaily.com/wondershare/filmora/download/)[](https://tools.techidaily.com/wondershare/filmora/download/)
 

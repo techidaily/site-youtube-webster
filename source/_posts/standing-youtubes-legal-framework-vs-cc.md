@@ -1,7 +1,7 @@
 ---
 title: "Understanding YouTube's Legal Framework Vs. CC"
-date: 2024-06-17T07:23:03.030Z
-updated: 2024-06-18T07:23:03.030Z
+date: 2024-07-03T11:48:37.462Z
+updated: 2024-07-04T11:48:37.462Z
 tags:
   - ai video
   - ai youtube
@@ -28,7 +28,7 @@ When it comes to YouTube copyright, you may have noticed a cc video on YouTube. 
 
 ---
 
-Searching for an [easy-to-use while powerful video editing software to make videos for your YouTube Channel?](https://tools.techidaily.com/wondershare/filmora/download/)Here we recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+Searching for an [easy-to-use while powerful video editing software to make videos for your YouTube Channel?](https://tools.techidaily.com/wondershare/filmora/download/) Here we recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
