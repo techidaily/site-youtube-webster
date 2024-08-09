@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Detailed Guide  YouTube's End Screens Explained\""
-date: 2024-07-11T19:36:57.222Z
-updated: 2024-07-12T19:36:57.222Z
+date: 2024-08-08T07:24:13.673Z
+updated: 2024-08-09T07:24:13.673Z
 tags:
   - ai video
   - ai youtube
@@ -33,6 +33,9 @@ YouTube end screens are a great way to get your viewers who have watched your Yo
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 1: Free End Screen Templates Download
 
 [Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle?spm=rs.filmora%5Fweb)
@@ -73,14 +76,23 @@ SoapyEdits is a YouTuber with a [channel](https://www.youtube.com/playlist?list=
 
 Here are some of our favorite ones.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![SoapyEdits-youtube-end-screen-template-1](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-1.jpg)
 
 Here’s one for the Minecraft fans:
 
 ![SoapyEdits YouTube end screen template Minecraft](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 ![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
@@ -89,10 +101,16 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 1\. First, you have to sign up with an e-mail address
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![create-outro-end-screen-with-canva](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
@@ -111,16 +129,34 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
 
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
 
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -146,3 +182,62 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-2023s-best-replacements-for-samsung-gear-360/"><u>[New] 2023'S Best Replacements for Samsung Gear 360</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-fusionvisualizer-ipadplusmacmedia-combining-tool/"><u>[New] 2024 Approved  FusionVisualizer  IPad+MacMedia Combining Tool</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-maximizing-audience-engagement-with-youtube-shorts-templates/"><u>[New] 2024 Approved  Maximizing Audience Engagement with YouTube Shorts Templates</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-melodic-mastery-top-15-educational-musician-oriented-vids-on-the-web/"><u>[New] 2024 Approved  Melodic Mastery  Top 15 Educational Musician-Oriented Vids on the Web</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-multimedia-designers-space/"><u>[New] 2024 Approved  Multimedia Designer's Space</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-must-have-filmmaking-tools-for-aspiring-youtubers/"><u>[New] 2024 Approved  Must-Have Filmmaking Tools for Aspiring YouTubers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-navigate-your-way-to-perfect-content-top-12-flipscreen-cams/"><u>[New] 2024 Approved  Navigate Your Way to Perfect Content  Top 12 Flipscreen Cams</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-navigating-notes-an-introduction-to-youtube-list-making/"><u>[New] 2024 Approved  Navigating Notes  An Introduction to YouTube List Making</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-pioneering-strategies-to-escalate-your-channels-popularity/"><u>[New] 2024 Approved  Pioneering Strategies to Escalate Your Channel's Popularity</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-precise-time-stamping-on-youtube-a-practical-approach/"><u>[New] 2024 Approved  Precise Time-Stamping on YouTube  A Practical Approach</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-pro-level-cams-for-aspiring-youtube-creators/"><u>[New] 2024 Approved  Pro-Level Cams for Aspiring YouTube Creators</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-quick-and-easy-embedding-online-video-into-microsoft-presentations/"><u>[New] 2024 Approved  Quick & Easy  Embedding Online Video Into Microsoft Presentations</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-quick-and-simple-access-high-res-youtube-images-for-free-here/"><u>[New] 2024 Approved  Quick & Simple  Access High-Res YouTube Images for Free Here</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-quick-guide-iphones-video-loop-functionality/"><u>[New] 2024 Approved  Quick Guide  IPhone's Video Loop Functionality</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-real-time-viewership-counter-systems/"><u>[New] 2024 Approved  Real-Time Viewership Counter Systems</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-selecting-gear-for-youtube-a-filmmakers-essentials/"><u>[New] 2024 Approved  Selecting Gear for YouTube  A Filmmaker's Essentials</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-shedding-light-on-videography-excellence/"><u>[New] 2024 Approved  Shedding Light on Videography Excellence</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-simple-steps-for-incorporating-videos-into-articles/"><u>[New] 2024 Approved  Simple Steps for Incorporating Videos Into Articles</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-simplify-your-internet-experience-step-by-step-guide-to-disabling-youtube-on-devices/"><u>[New] 2024 Approved  Simplify Your Internet Experience  Step-by-Step Guide to Disabling Youtube on Devices</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-strategies-for-dominant-click-through-rates-in-youtube-advertising/"><u>[New] 2024 Approved  Strategies for Dominant Click-Through Rates in YouTube Advertising</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-swaying-scripts-an-introduction-to-bouncy-text-animations/"><u>[New] 2024 Approved  Swaying Scripts  An Introduction to Bouncy Text Animations</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-tactics-to-expose-youtubes-well-guarded-videotapes/"><u>[New] 2024 Approved  Tactics to Expose YouTube's Well-Guarded Videotapes</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-tasteful-tactics-elevating-culinary-channel-monikers/"><u>[New] 2024 Approved  Tasteful Tactics  Elevating Culinary Channel Monikers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-art-of-bounce-two-ways-to-liven-up-your-text/"><u>[New] 2024 Approved  The Art of Bounce  Two Ways to Liven Up Your Text</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-complete-checklist-for-youtube-video-resolution-and-size/"><u>[New] 2024 Approved  The Complete Checklist for YouTube Video Resolution and Size</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-complete-setup-scoop-easy-youtube-tech-for-starters/"><u>[New] 2024 Approved  The Complete Setup Scoop  Easy YouTube Tech for Starters</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-easy-way-to-spruce-up-your-youtube-feedback-with-emojis/"><u>[New] 2024 Approved  The Easy Way to Spruce Up Your YouTube Feedback with Emojis</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-most-compelling-list-of-free-youtube-platforms-for-comic-book-illustrators/"><u>[New] 2024 Approved  The Most Compelling List of Free YouTube Platforms for Comic Book Illustrators</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-power-of-personalization-upgrade-your-youtube-url/"><u>[New] 2024 Approved  The Power of Personalization  Upgrade Your YouTube URL</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-solo-creators-path-to-dynamic-animation-art/"><u>[New] 2024 Approved  The Solo Creator’s Path to Dynamic Animation Art</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-ultimate-checklist-for-understanding-the-value-of-youtube-tv/"><u>[New] 2024 Approved  The Ultimate Checklist for Understanding the Value of YouTube TV</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-ultimate-guide-to-sound-shakers/"><u>[New] 2024 Approved  The Ultimate Guide to Sound Shakers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-ultimate-guide-to-years-top-makeup-vloggers/"><u>[New] 2024 Approved  The Ultimate Guide to Year's Top Makeup Vloggers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-ultimate-insider-guide-to-youtube-live-video-thumbnails/"><u>[New] 2024 Approved  The Ultimate Insider Guide to YouTube Live Video Thumbnails</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-ultimate-list-top-7-android-apps-blocking-intrusive-ads/"><u>[New] 2024 Approved  The Ultimate List  Top 7 Android Apps Blocking Intrusive Ads</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-top-investment-tips-from-youtube-experts/"><u>[New] 2024 Approved  Top Investment Tips From YouTube Experts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-top-ranked-graphics-cards-for-optimal-online-streaming-quality/"><u>[New] 2024 Approved  Top-Ranked Graphics Cards for Optimal Online Streaming Quality</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-total-disconnect-from-youtube-shorts-made-simple/"><u>[New] 2024 Approved  Total Disconnect From YouTube Shorts Made Simple</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-transformative-tactics-youtube-visibility-strategies/"><u>[New] 2024 Approved  Transformative Tactics  YouTube Visibility Strategies</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-transformative-tactics-for-developing-a-professional-youtubers-sanctuary-on-mobile/"><u>[New] 2024 Approved  Transformative Tactics for Developing a Professional YouTubers' Sanctuary on Mobile</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-trustworthy-tactics-growing-your-youtube-channel-by-a-million-steps/"><u>[New] 2024 Approved  Trustworthy Tactics  Growing Your YouTube Channel by a Million Steps</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-navigating-the-soundscape-downloading-and-instaling-vrecorder/"><u>[New] Navigating the Soundscape  Downloading and Instaling VRecorder</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-10-best-asmr-recorders-for-exceptional-audio-quality/"><u>[Updated] 2024 Approved  10 Best ASMR Recorders for Exceptional Audio Quality</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-unusual-video-orientation-what-causes-sideway-images-on-instagram/"><u>[Updated] Unusual Video Orientation  What Causes Sideway Images on Instagram</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-game-on-latest-windows-10-gaming-and-application-hits/"><u>2024 Approved  Game On  Latest Windows 10 Gaming & Application Hits</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/bypass-try-now-bluetooth-hurdle-on-pcs-and-tablets/"><u>Bypass 'Try Now' Bluetooth Hurdle on PCs & Tablets</u></a></li>
+<li><a href="https://win-blog.techidaily.com/crack-the-code-on-fortnite-effective-solutions-for-unable-to-join-a-party-error-84/"><u>Crack the Code on Fortnite! Effective Solutions for 'Unable to Join a Party' Error (#84)</u></a></li>
+<li><a href="https://driver-install.techidaily.com/download-nvidia-gtx-970-drivers-update-for-windows-10/"><u>Download | Nvidia GTX 970 Drivers Update for Windows 10</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-to-oppo-reno-10-pro-5g-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Oppo Reno 10 Pro 5G FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/estimating-filming-expenses-for-a-song-video-production/"><u>Estimating Filming Expenses for a Song Video Production</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-apple-iphone-se-2022-look-no-further-drfone-by-drfone-virtual-ios/"><u>In 2024, Looking For A Location Changer On Apple iPhone SE (2022)? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-motion-animating-stories-on-instagram-for-2024/"><u>Mastering Motion  Animating Stories on Instagram for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/overcoming-visual-hurdles-a-guide-to-correcting-black-screens-in-destiny-2/"><u>Overcoming Visual Hurdles: A Guide to Correcting Black Screens in Destiny 2</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/the-ultimate-edge-for-viral-tiktok-reactions-in-filmoras-domain-for-2024/"><u>The Ultimate Edge for Viral TikTok Reactions in Filmora's Domain for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-using-onetastic-to-improve-your-experience-with-microsoft-onenote/"><u>The Ultimate Guide to Using Onetastic to Improve Your Experience with Microsoft OneNote</u></a></li>
+</ul></div>

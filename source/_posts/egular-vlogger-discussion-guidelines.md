@@ -1,0 +1,200 @@
+---
+title: "[New] Regular Vlogger Discussion Guidelines"
+date: 2024-08-08T07:38:47.738Z
+updated: 2024-08-09T07:38:47.738Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "This Article Describes [New] Regular Vlogger Discussion Guidelines"
+excerpt: "This Article Describes [New] Regular Vlogger Discussion Guidelines"
+keywords: "Vloggers' Rules,Discuss Guide,Video Blogging Standards,Consistent Content Creation,Engagement Tips,Platform Etiquette,Streaming Conduct,Vlog Rules,Content Etiquette,Creator Guidelines,Platform Conduct,Stream Protocols"
+thumbnail: https://thmb.techidaily.com/150a758dee3602d845be20dca449cfe34839f49d05b66229d2abdef97e1d0864.jpg
+---
+
+## Regular Vlogger Discussion Guidelines
+
+# Daily Vlogging Ideas: What to Talk about While Vlogging?
+
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Every genre on YouTube has its own unique challenges, but **daily vlogging** is probably the hardest thing you could take on. Firstly because it means you have to do all the work of shooting and editing every day and secondly because it means you need to have something to talk about every single day. Even vlogging once or twice a week is tough.
+
+How do you know [what you should talk about in your vlog](https://tools.techidaily.com/wondershare/filmora/download/)? Some people are so comfortable in front of the camera they can just turn it on and start talking about whatever’s on their mind, but they’re in the minority.
+
+Before starting your daily vlogging, you have to figure out one important thing ahead of time.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## Do you have a niche?
+
+  You should have a niche. In a genre as broad as vlogging it is important to have some kind of hook that sets you apart from other vloggers. This can be an interest that you have, an industry you work in, or even a field of study you’re involved in at school. If you’re into technology, for example, you’ll always have a wealth of subjects to vlog about because all you’ll have to do is look at the day’s tech news and make a video reporting and commenting on it.
+
+The other reason it’s good to have a niche is that you’ll be able to use keywords related to that niche in your video titles and tags. It’s hard to make it with a vlogging channel because nobody is searching for your content unless you are covering a specific topic like the technology they want to hear about.
+
+* [What are you watching/reading?](#watching)
+* [Snapshots of Your Day](#snapshots)
+* [Whatever You Need to Get Out](#get-out)
+* [What did you learn today?](#learn)
+
+Here are 4 things to talk about in your daily vlog:
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
+## What are you watching/reading?
+
+ If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
+
+By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
+
+## Snapshots of Your Day
+
+ Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
+
+Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
+
+## Whatever You Need to Get Out
+
+_Flula is frequently puzzled by English expressions, like 'Party Pooper', and needs to get his confusion off his chest at odd hours of the day._
+
+ Ranting about people you know can get messy when people from your offline life see it, so maybe avoid that. However, if you’re angry about something in general – or really happy about something – then whatever it is you’re feeling strongly about is probably the thing you should be vlogging about.
+
+It does not matter what it is that is making you have this strong reaction (unless, again, it’s an actual person who might see your video and cause problems for you). If you’re mad about a real injustice in the world then that’s a great thing to talk about – you might even raise some awareness for the issue – but you can also rant about your favorite flavor of yogurt being cut and that’ll be engaging to viewers too.
+
+Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
+
+## What did you learn today?
+
+ _Fun fact: The original lyrics Paul McCartney imagined for 'Yesterday' were 'Scrambled eggs, oh my baby how I love your legs'._
+
+ You learn something new every day, right? Why not share that factoid with your viewers. Here a few facts to get you started:
+
+ Whales evolved from a land-based animal called a pakicetus.
+
+The hagfish hunt by swimming into the mouth of a larger fish and eating it from the inside.
+
+Crows live in family units, visit their aging parents, and have funerals for dead crows.
+
+The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, starve, and end up as fertilizer).
+
+Sea monkeys can survive in space.
+
+## EVERYTHING
+
+You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
+
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## Customize Your Vlog Stories with Powerful Video Editor
+
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+**We’ve got a new eBook out!**
+
+It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-banter-bonanza-the-best-comedians-on-the-web/"><u>[New] 2024 Approved  Banter Bonanza  The Best Comedians on the Web</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-action-to-archive-screencast-review-essentials/"><u>[New] Action to Archive  Screencast Review Essentials</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-dual-display-capture-for-2024/"><u>[New] Dual Display Capture for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ree-youtube-money-calculators-calculate-youtube-money-for-2024/"><u>[New] Free YouTube Money Calculators-Calculate YouTube Money for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-how-to-use-jump-cuts-in-your-vlog/"><u>[New] In 2024, How To Use Jump Cuts in Your Vlog</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-optimal-4k-video-recording-tools-compilation/"><u>[New] In 2024, Optimal 4K Video Recording Tools Compilation</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-timely-tweets-triumph-in-the-youtube-landscape/"><u>[New] In 2024, Timely Tweets Triumph in the YouTube Landscape</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-your-first-youtubian-venture-building-a-brand-bringing-in-bucks/"><u>[New] In 2024, Your First Youtubian Venture  Building a Brand, Bringing in Bucks</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nstant-income-analysis-for-creators/"><u>[New] Instant Income Analysis for Creators</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/s-youtubes-monetization-payment-frequent-in-2024/"><u>[New] Is YouTube's Monetization Payment Frequent, In 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-lifestyle-logging-101-keeping-viewers-hooked-everyday/"><u>[New] Lifestyle Logging 101  Keeping Viewers Hooked Everyday</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-optimal-mp4-senders-for-fb-networks-for-2024/"><u>[New] Optimal MP4 Senders for FB Networks for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/tep-up-your-game-free-software-for-professional-thumbnails/"><u>[New] Step Up Your Game  Free Software for Professional Thumbnails</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-ultimate-guide-to-synchronized-screen-time-on-yt-for-2024/"><u>[New] The Ultimate Guide to Synchronized Screen Time on YT for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ncovering-the-dynamics-of-youtubes-post-upload-system-for-2024/"><u>[New] Uncovering the Dynamics of YouTube's Post-Upload System for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/our-path-to-youtube-stardom-six-simple-steps-for-greater-visibility/"><u>[New] Your Path to YouTube Stardom  Six Simple Steps for Greater Visibility</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-solve-non-playing-fb-videos-on-iphone/"><u>[Updated] 2024 Approved  Solve Non-Playing FB Videos on iPhone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-fps-fanatics-compendium-selecting-superior-extensions/"><u>[Updated] FPS Fanatics' Compendium  Selecting Superior Extensions</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-gear-up-essential-asmr-microphones-to-consider-for-2024/"><u>[Updated] Gear Up  Essential ASMR Microphones to Consider for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-creating-viral-hashtag-campaigns-on-twitter/"><u>[Updated] In 2024, Creating Viral Hashtag Campaigns on Twitter</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-detailed-walkthrough-to-flawless-youtube-videos-using-imovie-software/"><u>[Updated] In 2024, Detailed Walkthrough to Flawless YouTube Videos Using iMovie Software</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-ultimate-youtube-financial-framework-for-content-creators/"><u>[Updated] In 2024, The Ultimate YouTube Financial Framework for Content Creators</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-youtube-music-a-guide-to-coherence/"><u>[Updated] In 2024, YouTube Music  A Guide to Coherence</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-kickstarting-creativity-an-equipment-guide-for-beginners/"><u>[Updated] Kickstarting Creativity  An Equipment Guide for Beginners</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-leveraging-your-smartphone-a-2024-tutorial-on-youtubing-money/"><u>[Updated] Leveraging Your Smartphone  A 2024 Tutorial on YouTubing Money</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-pros-and-cons-the-best-vr-gear-for-your-hands/"><u>2024 Approved  Pros and Cons  The Best VR Gear for Your Hands</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-transform-into-a-hdr-photography-wizard-via-photoshop/"><u>2024 Approved  Transform Into a HDR Photography Wizard via Photoshop</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unlocking-mp3-from-pinterest-video-files-with-these-steps/"><u>2024 Approved  Unlocking MP3 From Pinterest Video Files with These Steps</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/30plus-best-no-spend-templates-for-after-effects-wizards-for-2024/"><u>30+ Best No-Spend Templates for After Effects Wizards for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-infinix-note-30-vip-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Infinix Note 30 VIP without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ving-top-quality-on-youtube-video-enhancement-fundamentals-for-2024/"><u>Achieving Top Quality on YouTube  Video Enhancement Fundamentals for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-your-content-reach-the-expert-guide-to-youtubes-featured-channels/"><u>Boost Your Content Reach  The Expert Guide to Youtube's Featured Channels</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/comedy-kings-the-most-popular-memes/"><u>Comedy Kings  The Most Popular Memes</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-more-watch-time-not-churn-discover-the-top-6-techniques-on-youtube/"><u>Drive More Watch Time, Not Churn  Discover the Top 6 Techniques on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/o-maximize-video-reach-with-effective-tags-titles-for-2024/"><u>How to Maximize Video Reach with Effective Tags, Titles for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-can-life360-track-you-when-your-samsung-galaxy-f04-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Samsung Galaxy F04 is off? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-craft-stellar-channels-best-10-apps-for-artistic-banner-design/"><u>In 2024, Craft Stellar Channels  Best 10 Apps for Artistic Banner Design</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-elevate-your-channel-techniques-for-logo-insertion-in-videos/"><u>In 2024, Elevate Your Channel  Techniques for Logo Insertion in Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-essential-youtube-seo-techniques-for-enhanced-video-rankings/"><u>In 2024, Essential YouTube SEO Techniques for Enhanced Video Rankings</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-personalized-video-setups-a-beginners-guide-to-selfies-on-youtube/"><u>In 2024, Personalized Video Setups  A Beginner's Guide to Selfies on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-unlocking-biz-potential-the-best-channels-for-growth/"><u>In 2024, Unlocking Biz Potential  The Best Channels for Growth</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-voice-change-innovations-for-youtubers-and-their-videos/"><u>In 2024, Voice Change Innovations for YouTubers & Their Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-youtubers-edge-the-ultimate-guide-to-apps-for-short-form-edits/"><u>In 2024, Youtubers' Edge  The Ultimate Guide to Apps for Short Form Edits</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ring-collaborative-video-creation-a-guide-to-youtube-partnering-for-2024/"><u>Mastering Collaborative Video Creation  A Guide to YouTube Partnering for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/mastering-the-art-of-shortening-videos-for-instagram-mac-for-2024/"><u>Mastering the Art of Shortening Videos for Instagram (Mac) for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/overcoming-msvcrt10dll-errors-fixes-and-prevention-tips/"><u>Overcoming MSVCRT10.DLL Errors: Fixes and Prevention Tips</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/prime-safe-video-meeting-software-rankings-for-smes/"><u>Prime Safe Video Meeting Software Rankings for SMEs</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/reimagined-realities-augmented-wisdom-for-todays-world-for-2024/"><u>Reimagined Realities  Augmented Wisdom for Today's World for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/slipping-into-the-social-scene-of-online-tiktok-gigs/"><u>Slipping Into the Social Scene of Online TikTok Gigs</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-writers-almanac-crafting-compelling-biographies-on-facebook-for-2024/"><u>The Writer's Almanac  Crafting Compelling Biographies on Facebook for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/tips-for-seamlessly-screening-instagram-stories/"><u>Tips for Seamlessly Screening Instagram Stories</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unlocking-the-power-of-chatgpt-in-overcoming-language-barriers/"><u>Unlocking the Power of ChatGPT in Overcoming Language Barriers</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/1722851008577-usb-tethering-trouble-heres-what-to-do-next/"><u>USB Tethering Trouble? Here's What to Do Next</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Keep Watching YouTube On-the-Go with iPhone/Android\""
-date: 2024-07-11T19:32:52.202Z
-updated: 2024-07-12T19:32:52.202Z
+date: 2024-08-08T07:27:45.286Z
+updated: 2024-08-09T07:27:45.286Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/275ca9774c095e0be2ae30797f9894bae65deae9e
 
 # How to Play YouTube in Background on iPhone and Android
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -44,12 +47,21 @@ What makes YouTube Music popular among the premium subscribers is its ability to
 
 Once you have subscribed for the YouTube Premium Individual plan, and downloaded and installed the YouTube Music app, you can follow the instructions given below to **play YouTube in background Android or iPhone** smartphone.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Step 1: Launch YouTube Music and Start Streaming
 
 Launch **YouTube Music**, search for your favorite music using the **Search** icon at the top-right corner, tap the song in the suggestions list, and then tap the name of the track to start playing.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![YouTube Premium Play Music background](https://images.wondershare.com/filmora/article-images/youtube-premium-play-music-background.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 2: Switch to Audio Only (Optional)
 
 Tap anywhere on the video player window, and tap **Audio** from the top of the screen to switch to the audio only mode where the video of the song won’t be played.
@@ -76,10 +88,16 @@ Tap the **All Tabs** icon from the bottom-right corner of the browser, and tap *
 
 Press the **Home** button or swipe up on iPhone X or above to get to the Home screen. You can notice how YouTube still continues to stream. From this point onward, you can either start using your iPhone normally, or turn off the screen and let your device **play YouTube in background**.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Play YouTube Videos in Background on Android
 
 The process to **play YouTube in background** on an Android smartphone is slightly different than what it is on an iPhone if you don’t have a Premium subscription. To get this done on your Android, you must:
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Step 1: Switch to Desktop Mode
 
 Launch Google Chrome (default) on your Android phone, and go to [**www.youtube.com**](https://www.youtube.com). Click the **More options** icon (with three vertically aligned dots) from the top-right corner of the browser, and check the **Desktop site** box from the menu that appears.
@@ -94,8 +112,15 @@ Use the **Search** bar at the top of the interface to search for and tap the vid
 
 Once the video starts streaming, get back to the Home screen, pull down the **Notification** bar from the top (if the streaming stops), and press the **Play** button to **play YouTube in background** on your Android smartphone.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ![Play YouTube  background on Android](https://images.wondershare.com/filmora/article-images/play-youtube-background-android.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 3 Best Apps to Play YouTube Videos in Background on Android
 
 Instead of using the above workaround on Android, if you want something simpler and more straightforward, there are a few apps that can help you **play YouTube videos in background**. Some of the most used programs are listed below:
@@ -112,14 +137,23 @@ This app does exactly what its name suggests. The program has a ‘Minimize play
 
 Yet another app available on Google Play Store that lets you search for your favorite videos on YouTube, stream them, and then minimize the player to a floating window that goes down to the bottom of the screen. This lets you **play YouTube in background** in order to allow you to use your phone for other tasks.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Best Video Editing Software for YouTube
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 **Conclusion**
 
 Watching YouTube videos has become a part of people’s day-to-day life now. While many of them use the platform to learn new skills through the tutorials that are available for free, others love the idea of having unlimited and unrestricted access to the gigantic database of music videos that they can dig in to find and play their favorite tracks. For the latter scenario, the processes explained above are likely to come in handy in order to **play YouTube in background** so the users can take full advantage of their iPhone or Android smartphone in case they only want to listen to the audio, and are not interested in watching the video while streaming.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -145,3 +179,69 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/0-superior-youtube-mp3-extractors/"><u>[New] 10 Superior YouTube Mp3 Extractors</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-2-ways-to-increase-your-youtube-audience-fast/"><u>[New] 2024 Approved  2 Ways to Increase Your YouTube Audience Fast</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-a-complete-guide-to-crafting-best-in-class-yt-thumbnails/"><u>[New] 2024 Approved  A Complete Guide to Crafting Best-in-Class YT Thumbnails</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-becoming-a-bull-or-bear-best-stock-vids-on-youtube/"><u>[New] 2024 Approved  Becoming a Bull or Bear  Best Stock Vids on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-best-practices-in-yt-thumbnail-sizing/"><u>[New] 2024 Approved  Best Practices in YT Thumbnail Sizing</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-boosting-your-channels-free-tips-for-youtube-video-popularity/"><u>[New] 2024 Approved  Boosting Your Channels  Free Tips for YouTube Video Popularity</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-boosting-your-content-reach-with-eye-catching-youtube-video-thumbnails/"><u>[New] 2024 Approved  Boosting Your Content Reach with Eye-Catching YouTube Video Thumbnails</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-breakthrough-strategies-for-peak-video-viewership-times/"><u>[New] 2024 Approved  Breakthrough Strategies for Peak Video Viewership Times</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-bridging-content-gap-youtube-videos-to-instagram/"><u>[New] 2024 Approved  Bridging Content Gap  YouTube Videos to Instagram</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-calculating-youtubes-adsense-gains-per-thousand-viewer-income/"><u>[New] 2024 Approved  Calculating Youtube's AdSense Gains  Per Thousand Viewer Income</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-crafting-an-impactful-waterway-teaser/"><u>[New] 2024 Approved  Crafting an Impactful Waterway Teaser</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-dancing-to-the-tune-youtubes-hottest-music-video-responses-23/"><u>[New] 2024 Approved  Dancing to the Tune  YouTube's Hottest Music Video Responses, '23</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-discovering-youtube-studio-where-ideas-become-engaging-content/"><u>[New] 2024 Approved  Discovering YouTube Studio  Where Ideas Become Engaging Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-does-rapid-subscription-improve-video-watching/"><u>[New] 2024 Approved  Does Rapid Subscription Improve Video Watching?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-download-youtube-responsibly-legal-mp4-conversion-methods/"><u>[New] 2024 Approved  Download YouTube Responsibly  Legal MP4 Conversion Methods</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-easy-pc-capture-tool-windows-10-free-version/"><u>[New] 2024 Approved  Easy PC Capture Tool - Windows 10 Free Version</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-efface-thin-borders-for-a-seamless-youtube-experience/"><u>[New] 2024 Approved  Efface Thin Borders for a Seamless YouTube Experience</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-effortless-conversion-youtube-videos-to-mac-ratio/"><u>[New] 2024 Approved  Effortless Conversion  Youtube Videos to Mac Ratio</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-effortless-entertainment-looping-youtube-videos-for-tv-viewers/"><u>[New] 2024 Approved  Effortless Entertainment  Looping YouTube Videos for TV Viewers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-effortlessly-journey-to-your-custom-designed-music-library-on-youtube/"><u>[New] 2024 Approved  Effortlessly Journey to Your Custom-Designed Music Library on Youtube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-elevate-your-channels-templates-at-no-charge/"><u>[New] 2024 Approved  Elevate Your Channels - Templates at No Charge!</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-eliminating-grey-edges-on-video-a-youtube-fix-guide/"><u>[New] 2024 Approved  Eliminating Grey Edges on Video  A YouTube Fix Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-essential-audio-techniques-capturing-clear-sound/"><u>[New] 2024 Approved  Essential Audio Techniques  Capturing Clear Sound</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-essential-knowledge-for-aspiring-youtube-subscribers/"><u>[New] 2024 Approved  Essential Knowledge for Aspiring YouTube Subscribers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-from-novice-to-vlogger-your-guide-to-creating-a-youtube-chanel/"><u>[New] 2024 Approved  From Novice to Vlogger  Your Guide to Creating a YouTube Chanel</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-get-more-viewers-with-social-media-marketing-for-youtube/"><u>[New] 2024 Approved  Get More Viewers with Social Media Marketing for YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-jake-pauls-youtube-success-story/"><u>[New] 2024 Approved  Jake Paul's YouTube Success Story</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-master-audio-recording-the-micless-methodology/"><u>[New] 2024 Approved  Master Audio Recording  The Micless Methodology</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-master-youtube-management-a-detailed-plan-for-watch-later-and-playlists/"><u>[New] 2024 Approved  Master YouTube Management  A Detailed Plan for Watch Later and Playlists</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-masterclass-in-visual-storytelling-for-youtube-live-videos/"><u>[New] 2024 Approved  Masterclass in Visual Storytelling for YouTube Live Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-mastering-youtube-a-guide-for-gamers-live-broadcasts/"><u>[New] 2024 Approved  Mastering YouTube  A Guide for Gamers' Live Broadcasts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-key-tools-selecting-best-6-fb-lite-videos-for-2024/"><u>[New] Key Tools  Selecting Best 6 FB Lite Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-navigating-video-visibility-barriers-in-social-networking/"><u>[Updated] 2024 Approved  Navigating Video Visibility Barriers in Social Networking</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-ultimate-high-definition-slow-mo-cams/"><u>[Updated] 2024 Approved  Ultimate High Definition Slow-Mo Cams</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-leaders-of-the-digital-age-videoaudio-innovators-index/"><u>[Updated] Leaders of the Digital Age  Video/Audio Innovators Index</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-best-of-android-collage-a-curation-of-superiority/"><u>2024 Approved  Best-Of Android Collage  A Curation of Superiority</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-boosting-efficiency-creating-speed-driven-google-collages/"><u>2024 Approved  Boosting Efficiency  Creating Speed-Driven Google Collages</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-essential-gaming-gear-keyboards-for-less-than-100/"><u>2024 Approved  Essential Gaming Gear  Keyboards for Less Than $100</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-the-art-of-restoring-past-reddit-articles/"><u>2024 Approved  Mastering the Art of Restoring Past Reddit Articles</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-optimizing-endorsements-for-credibility/"><u>2024 Approved  Optimizing Endorsements for Credibility</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-rapid-techniques-to-separate-genuine-from-fake-on-insta/"><u>2024 Approved  Rapid Techniques to Separate Genuine From Fake on Insta</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/3-effective-methods-to-archive-itunes-videos-for-2024/"><u>3 Effective Methods to Archive iTunes Videos for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/a-comprehensive-guide-to-gpt-4alls-working-mechanism/"><u>A Comprehensive Guide to GPT-4All's Working Mechanism</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/best-motorola-g24-power-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Motorola G24 Power Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boost-your-channels-crafting-captivating-yt-descriptions-using-custom-templates-for-2024/"><u>Boost Your Channels  Crafting Captivating YT Descriptions Using Custom Templates for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-non-appearance-of-tiny-vid-content/"><u>Cured  Non-Appearance of Tiny Vid Content</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-samsung-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of Samsung on Windows??</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-successfully-retrieve-funds-for-unwanted-steam-titles-a-comprehensive-guide/"><u>How to Successfully Retrieve Funds for Unwanted Steam Titles: A Comprehensive Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-adding-closed-captioning-to-instagram-live-and-igtv/"><u>In 2024, Adding Closed Captioning to Instagram Live and IGTV</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-samsung-galaxy-a24-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Samsung Galaxy A24 Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-realme-c55-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Realme C55 Phone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-stand-out-on-youtube-with-these-20-top-font-choices/"><u>In 2024, Stand Out on YouTube with These 20 Top Font Choices</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-unlocking-apple-iphone-6-plus-passcode-without-a-computer-by-drfone-ios/"><u>In 2024, Unlocking Apple iPhone 6 Plus Passcode without a Computer</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-non-selected-youtube-video-suggestions-for-2024/"><u>Pause Non-Selected YouTube Video Suggestions for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-relay-youtube-playlists-to-the-public/"><u>Rapid Relay  Youtube Playlists to the Public</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-visual-riches-from-four-premium-youtube-portals/"><u>Seize Visual Riches From Four Premium YouTube Portals</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-form-spectrum-youtube-meets-tiktok/"><u>Short-Form Spectrum  YouTube Meets TikTok</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-downloads-unlocked-with-free-online-and-global-viewing-for-2024/"><u>Top 6 Downloads – Unlocked with Free Online & Global Viewing for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-unique-android-apps-for-effortless-ad-free-use-for-2024/"><u>Top 7 Unique Android Apps for Effortless, Ad-Free Use for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-your-samsung-galaxy-a25-5gs-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Samsung Galaxy A25 5Gs Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-journey-top-tags-to-accelerate-views-in-short-form-videos-for-2024/"><u>Viral Journey  Top Tags to Accelerate Views in Short Form Videos for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-the-price-tag-for-1m-youtube-sights-for-2024/"><u>What's the Price Tag for 1M YouTube Sights for 2024</u></a></li>
+</ul></div>

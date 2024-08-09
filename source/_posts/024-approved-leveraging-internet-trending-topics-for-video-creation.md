@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Leveraging Internet Trending Topics for Video Creation\""
-date: 2024-07-11T19:37:29.898Z
-updated: 2024-07-12T19:37:29.898Z
+date: 2024-08-08T07:23:45.543Z
+updated: 2024-08-09T07:23:45.543Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/aa427c93a364e264a275d02d7b783f7e962d85c1f
 
 # How to Use Google Trends to Come up with Video Ideas \[Easy Guide\]
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -36,6 +39,9 @@ Google Trends is a completely free tool you can use to determine what’s trendi
 
 ## Part 1: Seeing The Big Picture
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Google Trends YouTube Ideas](https://images.wondershare.com/filmora/article-images/how-to-use-google-trends-to-come-up-with-video-seeing-big-picture.jpg)
 
 _You’ll need to be signed into your Google account to use Google Trends._
@@ -46,6 +52,9 @@ Unless you do news or political commentary on your channel these probably aren�
 
 To get information more relevant to your channel you’re going to have to do some filtering.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: Getting Results That Matter to You
 
 In the Google Trend home page, scroll down to the 'Recently Trending' section and click on 'More Trending Searches'.
@@ -54,6 +63,9 @@ Then click from 'Daily Search Trends' to 'Realtime Search Trends'.
 
 On top you will see two drop-down menus, one is for the category and one is for location.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Google Trends Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-video-ideas.jpg)
 
 Under **All categories** select the general theme your channel falls under.
@@ -88,6 +100,9 @@ Once you have a keyword in mind, type it into the Explore bar at the top of your
 
 What happens after you click **enter** is pretty much magic. Say I want to make a video on how to use Filmora. The first thing I’ll type into that Explore bar is ‘Filmora’.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ![Google Trends YouTube Video Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term.jpg)
 
 You can see near the top that this chart represents searches for the topic over the last 5 years, which isn’t necessarily useful (although it is sort of cool that you can see when Filmora was ‘born’). I’m going to narrow that down to results from the U.S in the last week.
@@ -98,6 +113,9 @@ There, now I can see how the popularity of Filmora as a search term has spiked o
 
 Next, what other words do I want to include in my video title? Is this a review, a tutorial, or a how-to? By clicking on my search term Filmora, I can edit it to read ‘filmora review’. Then I can click **\+ Compare** and type in ‘filmora tutorial’ and ‘how to use Filmora’. Google Trends will create a chart comparing the popularity of those 3 terms.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ![Google Trends Filmora Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term-comparison.jpg)
 
 _I also ‘zoomed out’ to 90 days – if I’d only looked at how they compared over the last week my results could have been skewed._
@@ -124,6 +142,9 @@ As one of the most widely used video editing software among YouTubers, Filmora p
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -149,3 +170,51 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-maximizing-revenue-how-to-monetize-youtube-channel-on-mobile/"><u>[New] 2024 Approved  Maximizing Revenue  How to Monetize YouTube Channel on Mobile</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-maximizing-your-youtube-click-through-rate-upload-schedule-insights/"><u>[New] 2024 Approved  Maximizing Your YouTube Click-Through Rate  Upload Schedule Insights</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-monetizing-your-passion-from-youtube-gamer-to-entrepreneur/"><u>[New] 2024 Approved  Monetizing Your Passion  From YouTube Gamer to Entrepreneur</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-navigating-green-screen-integration-in-post-production/"><u>[New] 2024 Approved  Navigating Green Screen Integration in Post-Production</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-optimizing-titles-and-tags-for-improved-youtube-visibility/"><u>[New] 2024 Approved  Optimizing Titles and Tags for Improved YouTube Visibility</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-pioneering-creativity-youtubes-playground-for-talent/"><u>[New] 2024 Approved  Pioneering Creativity  YouTube's Playground for Talent</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-pioneering-the-way-with-innovative-approaches-to-youtube-banners/"><u>[New] 2024 Approved  Pioneering the Way with Innovative Approaches to YouTube Banners</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-quick-and-effective-method-for-uploading-to-dailymotion/"><u>[New] 2024 Approved  Quick and Effective Method for Uploading to Dailymotion</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-save-money-on-titles-exclusive-list-of-11-free-creators/"><u>[New] 2024 Approved  Save Money on Titles - Exclusive List of 11 Free Creators</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-self-filmed-brilliance-secrets-for-youtube-success/"><u>[New] 2024 Approved  Self-Filmed Brilliance  Secrets for YouTube Success</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-simplifying-slide-creations-with-youtube-content/"><u>[New] 2024 Approved  Simplifying Slide Creations with YouTube Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-snapshots-of-sound-characters-short-musical-roles/"><u>[New] 2024 Approved  Snapshots of Sound Characters  Short Musical Roles</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-stepwise-simplification-broadcasting-personal-yt-videos-using-gmail/"><u>[New] 2024 Approved  Stepwise Simplification  Broadcasting Personal YT Videos Using Gmail</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-streamline-your-music-library-mp3s-direct-to-youtube-playlist/"><u>[New] 2024 Approved  Streamline Your Music Library  MP3s Direct to YouTube Playlist</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-stylish-profiles-easy-downloads/"><u>[New] 2024 Approved  Stylish Profiles, Easy Downloads!</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-swift-techniques-mastering-effective-double-exposure/"><u>[New] 2024 Approved  Swift Techniques  Mastering Effective Double Exposure</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-editors-edge-advanced-techniques-for-youtube-creations/"><u>[New] 2024 Approved  The Editor's Edge  Advanced Techniques for YouTube Creations</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-insider-guide-to-flourishing-on-youtube-games-included/"><u>[New] 2024 Approved  The Insider Guide to Flourishing on YouTube, Games Included</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-the-insiders-guide-to-creating-viral-instagram-reels/"><u>[New] 2024 Approved  The Insider’s Guide to Creating Viral Instagram Reels</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-sound-enthusiasts-companion-high-quality-recording-tips/"><u>[New] 2024 Approved  The Sound Enthusiast's Companion  High-Quality Recording Tips</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-ultimate-pathway-to-prominence-on-youtube-channel-showcase/"><u>[New] 2024 Approved  The Ultimate Pathway to Prominence on YouTube  Channel Showcase</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-top-females-in-youtube-a-list-of-leading-creators/"><u>[New] 2024 Approved  Top Females in YouTube  A List of Leading Creators</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-top-picks-11-affordable-innovative-yt-moniker-generators/"><u>[New] 2024 Approved  Top Picks  11 Affordable, Innovative YT Moniker Generators</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-transforming-viewership-into-viewer-funds-on-youtube/"><u>[New] 2024 Approved  Transforming Viewership Into Viewer Funds on YouTube</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-capture-clarity-enjoy-convenience-with-our-top-5-recorder-recommendations-for-2024/"><u>[New] Capture Clarity, Enjoy Convenience with Our Top 5 Recorder Recommendations for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-premium-picks-where-to-grab-classical-ringtones/"><u>[New] Premium Picks  Where to Grab Classical Ringtones</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-real-value-of-selfie-verifications/"><u>[New] The Real Value of Selfie Verifications?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-your-step-by-step-approach-to-youtube-copyright-mastery/"><u>[New] Your Step-by-Step Approach to YouTube Copyright Mastery</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-understanding-film-a-beginners-guide-to-essential-shots/"><u>[Updated] In 2024, Understanding Film  A Beginner's Guide to Essential Shots</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-mastering-the-shift-to-macos-11-big-sur-for-2024/"><u>[Updated] Mastering the Shift to macOS 11 Big Sur for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-decrypting-the-mystery-understanding-unlisted-content-on-youtube/"><u>2024 Approved  Decrypting the Mystery  Understanding 'Unlisted' Content on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-enhance-visibility-11-must-know-youtube-video-seo-tactics/"><u>2024 Approved  Enhance Visibility  11 Must-Know YouTube Video SEO Tactics</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-polar-pinnacles-beijing-2022-olympic-spotlight/"><u>2024 Approved  Polar Pinnacles  Beijing 2022 Olympic Spotlight</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-vivo-y78plus-t1-edition-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Vivo Y78+ (T1) Edition? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-messages-on-motorola-moto-g-stylus-2023-by-fonelab-android-recover-messages/"><u>How to restore wiped messages on Motorola Moto G Stylus (2023)</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-unlock-icloud-activation-lock-and-icloud-account-from-apple-iphone-15-pro-max-by-drfone-ios/"><u>How to Unlock iCloud Activation Lock and iCloud Account From Apple iPhone 15 Pro Max?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-xiaomi-redmi-k70e-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Xiaomi Redmi K70E PC | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-realme-c51-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Realme C51 | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-realme-gt-5-240w-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Realme GT 5 (240W) FRP Locks</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-track-imei-number-of-vivo-y78t-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Vivo Y78t Through Google Earth?</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-mastering-color-consistency-a-step-by-step-guide-to-final-cut-pro-for-2024/"><u>New Mastering Color Consistency A Step-by-Step Guide to Final Cut Pro for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/online-companion-fb-stories-saver/"><u>Online Companion  Fb Stories Saver</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/setting-up-fresh-start-a-beginners-tutorial-for-installing-windows-10-on-new-drives/"><u>Setting Up Fresh Start: A Beginner's Tutorial for Installing Windows 10 on New Drives</u></a></li>
+<li><a href="https://video-capture.techidaily.com/unwind-and-capture-your-games-in-peace-for-2024/"><u>Unwind and Capture Your Games in Peace for 2024</u></a></li>
+</ul></div>
