@@ -1,7 +1,7 @@
 ---
 title: "\"Chart Your Course to Youtube Riches  The Essential 500 Threshold\""
-date: 2024-07-11T19:22:24.191Z
-updated: 2024-07-12T19:22:24.191Z
+date: 2024-08-15T14:18:06.228Z
+updated: 2024-08-16T14:18:06.228Z
 tags:
   - ai video
   - ai youtube
@@ -39,10 +39,16 @@ The eligibility criteria for the YPP program are now easier and more achievable 
 
 The new requirements are lower than the old ones. Previously, you were required to have at least 1,000 subscribers with over 4,000 public watch hours. By lowering the threshold, YouTube makes it easier for all creators to monetize their content.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Part 2\. YouTube Monetization with 500 Subscribers: A Brief Guide**
 
 YouTube announced in 2022 that they were evolving the YPP to continue rewarding more creators. Starting mid-June 2023, the program was expanded to allow more creators to access monetization benefits.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Know If You are Eligible**
 
 As a creator, you will want to know if you are eligible for the YouTube monetization 500 subscribers’ plan. Make sure that the notify feature on your channel is active to receive a notification. Go to the Earn area of the YouTube channel, and select Get Notified. Once selected, YouTube will send you an email when reach above the eligibility threshold.
@@ -60,6 +66,9 @@ Joining the expanded YouTube Partner Program has the same requirements as the ea
 * No Community Guidelines strikes on your Channel
 * Have advanced features access on YouTube
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Where to Apply for Monetization**
 
 After meeting the eligibility criteria, you will need to apply to be enrolled in the YPP. Remember that being eligible does not automatically translate to instant income. You need to apply for the program and wait for the approval. Here are the steps to follow:
@@ -69,18 +78,30 @@ After meeting the eligibility criteria, you will need to apply to be enrolled in
 ##### Step 1Sign in to YouTube Studio on your computer or desktop
 
 ![youtube studio](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-3.JPG)
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step 2Click Earn in the left menu
 
 ![youtube earn](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-4.JPG)
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step 3Click Apply Now to review and Accept the base terms
 
 ![youtube base terms](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-5.JPG)
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 
 ##### Step 4Click Start to set up an AdSense account
 
 ![Image alt: youtube adsense](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-6.JPG)
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### **On Android, iPhone and iPad**
 
@@ -131,10 +152,16 @@ Filmora offers creators fantastic editing features to create better Shorts. Let�
 
 YouTube Shorts require quick content that covers everything within 60 seconds. With the Filmora AI Copywriting feature, you can get inspiration and add text to your videos. Express your thoughts more clearly and generate text that makes the video more engaging.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ### 2\. **Split Screen Video Editor**
 
 YouTube Shorts are limited to a length of 1 minute only. Since 60 seconds is quite a short time, you may want to showcase your content on multiple screens. The Split Screen Video Editor on Filmora allows you to make a split screen instantly. Choose from the readily available templates and show your audience what you want from multiple perspectives in the same video.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 3\. **Motion Tracking**
 
 With YouTube Shorts, you need to be more creative. Adding objects to your videos makes them fun and engaging. The motion tracking feature on Filmora allows you to track the movement of an object in the video. You can then pin graphics on the object, making the video more exciting. You can also add specific text and align it to an object, allowing your audience to follow through the story.
@@ -170,3 +197,44 @@ The introduction of the YouTube monetization 500 subscribers’ policy update wa
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-how-to-remove-black-bars-from-existing-youtube-videos/"><u>[New] 2024 Approved  How to Remove Black Bars From Existing YouTube Videos?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rafting-content-for-success-a-step-by-step-channel-guide-for-2024/"><u>[New] Crafting Content for Success  A Step-by-Step Channel Guide for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/iy-youtube-trailer-production-via-filmora-software/"><u>[New] DIY YouTube Trailer Production via Filmora Software</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-improve-aesthetics-techniques-for-instagram-video-borders-for-2024/"><u>[New] Improve Aesthetics  Techniques for Instagram Video Borders for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-cutting-edge-editing-techniques-youtube-and-comparable-tools/"><u>[New] In 2024, Cutting-Edge Editing Techniques  YouTube & Comparable Tools</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/erfect-panning-leading-stabilizers-unveiled/"><u>[New] Perfect Panning  Leading Stabilizers Unveiled</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-find-your-perfect-vlog-title-best-free-name-generators/"><u>[Updated] 2024 Approved  Find Your Perfect Vlog Title - Best Free Name Generators</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-innovating-interaction-beyond-vidcon-conclaves/"><u>[Updated] 2024 Approved  Innovating Interaction  Beyond VidCon Conclaves</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-living-life-fully-on-facebook-tips-for-active-engagement/"><u>[Updated] 2024 Approved  Living Life Fully on Facebook  Tips for Active Engagement</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-top-10plus-free-video-intro-makers-for-youtubers/"><u>[Updated] 2024 Approved  Top 10+ Free Video Intro Makers for Youtubers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-earnings-empire-constructing-a-profitable-youtube-channel/"><u>[Updated] Earnings Empire  Constructing a Profitable YouTube Channel</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-keyword-proficiency-at-little-to-none-guide-to-the-top-7-youtube-tag-extractor-apps/"><u>[Updated] In 2024, Keyword Proficiency at Little to None  Guide to the Top 7 Youtube Tag Extractor Apps</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-simplified-playlist-crafting-for-youtube-fans-on-desktop-and-mobile-devices/"><u>[Updated] In 2024, Simplified Playlist Crafting for YouTube Fans on Desktop & Mobile Devices</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-prime-jocular-photo-artist/"><u>[Updated] Prime Jocular Photo Artist</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-prime-selections-convert-youtube-videos-quickly/"><u>[Updated] Prime Selections  Convert YouTube Videos Quickly</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-cutting-edge-tips-for-low-cost-youtube-sessions/"><u>2024 Approved  Cutting-Edge Tips for Low-Cost YouTube Sessions</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-home-cinemas-elite-the-ultimate-blu-ray-guide/"><u>2024 Approved  Home Cinema's Elite  The Ultimate Blu-Ray Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-strengthen-your-content-identity-inserting-watermarklogo-in-videos/"><u>2024 Approved  Strengthen Your Content Identity  Inserting Watermark/Logo in Videos</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-top-5-homemade-shot-strategies-the-fastest-hacks-you-need/"><u>2024 Approved  Top 5 Homemade Shot Strategies – The Fastest Hacks You Need</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-unveiling-the-art-of-designing-captivating-valorant-thumbnails/"><u>2024 Approved  Unveiling the Art of Designing Captivating Valorant Thumbnails</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/accelerated-mastery-of-french-colorful-terms/"><u>Accelerated Mastery of French Colorful Terms</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/assessing-value-for-money-an-in-depth-look-at-the-swift-and-steeply-priced-swagtron-swagboard-t1/"><u>Assessing Value for Money: An In-Depth Look at the Swift and Steeply Priced Swagtron Swagboard T1</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-tecno-spark-10c-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Tecno Spark 10C | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/dreaded-drawing-dynamo/"><u>Dreaded Drawing Dynamo</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-android-guide-enhance-your-video/"><u>In 2024, Android Guide  Enhance Your Video</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-poco-c50-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Poco C50 to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-miniscreen-capture-scrutiny-and-replacements/"><u>In 2024, MiniScreen Capture Scrutiny and Replacements</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-motorola-g24-power-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Motorola G24 Power Phone Now with These Tips</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-sweet-indulgence-recording-a-compreran-analysis/"><u>In 2024, Sweet Indulgence Recording  A Compreran Analysis</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-the-cutting-edge-gaming-earpieces-for-youtubers/"><u>In 2024, The Cutting-Edge Gaming Earpieces for YouTubers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-the-essential-youtube-beauty-guides-you-cant-miss/"><u>In 2024, The Essential YouTube Beauty Guides You Can't Miss</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/in-the-stream-reclaiming-deleted-youtube-videos/"><u>Lost in the Stream  Reclaiming Deleted YouTube Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-video-creation-secrets-unveiled-by-lyric-video-maker/"><u>Lyric Video Creation Secrets Unveiled by Lyric Video Maker</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-9gag-a-guide-for-memetic-creation-for-2024/"><u>Mastering 9GAG  A Guide for Memetic Creation for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/midnight-guardian-vs-sunlit-sentinel/"><u>Midnight Guardian Vs Sunlit Sentinel</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-free-and-fantastic-the-best-flv-video-editors/"><u>New 2024 Approved Free and Fantastic The Best FLV Video Editors</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-the-potential-of-the-zmi-powerpack-20000-a-detailed-review-for-portable-chargers-enthusiasts/"><u>Unpacking the Potential of the ZMI PowerPack 20000: A Detailed Review for Portable Chargers Enthusiasts</u></a></li>
+</ul></div>
