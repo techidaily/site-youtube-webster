@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Ceased  Shorts Missing on YouTube Screen\""
-date: 2024-07-11T19:06:42.899Z
-updated: 2024-07-12T19:06:42.899Z
+date: 2024-08-31T18:38:09.127Z
+updated: 2024-09-01T18:38:09.127Z
 tags:
   - ai video
   - ai youtube
@@ -73,10 +73,19 @@ Moreover, the option to upload Shorts is now hidden behind the **+** icon. Tap o
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-not-showing-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Fix 2: Check If Shorts Is Available in Your Country
 
 Now, YouTube Shorts is available globally, but there was a phase when YouTube Shorts was a beta feature. It was only available in India and the US, which could be why you could not view Shorts in the YouTube app.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ### Fix 3: YouTube Shorts Is Mobile-only
 
 As of now, YouTube Shorts is only available on a smartphone because it's still in beta version. However, you can create Shorts via smartphone and the camera option in YouTube mobile app. Hence, there's no point in searching for Shorts on your computer.
@@ -117,6 +126,9 @@ Once uploaded, the YouTube Shorts will be displayed in a vertical thumbnail on Y
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-not-showing-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Bonus Tip: How to Easily Create Vertical Videos for YouTube Shorts on PC
 
 The YouTube Shorts app is pretty convenient to use nowadays. However, it doesn't allow you to fine-edit the videos if you've explored the app or specifically when you want your videos to look more professional. The app doesn't even have many filtering options, such as Effects, Elements, etc., to make your videos more interactive.
@@ -151,10 +163,21 @@ You can choose among three ways to open the Auto Reframe feature in Filmora.
 
 ![filmora](https://images.wondershare.com/filmora/guide/2-auto-reframe-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
 * **Way 3:** Lastly, you can choose the **Tools** option on the top menu bar and hit the **Auto Reframe**.
 
 ![filmora](https://images.wondershare.com/filmora/guide/3-auto-reframe-tools.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 2\. Adjust the Aspect Ratio and Motion Speed**
 
 A separate dialog box will display once you have selected the **Auto Reframe** option. Now, click on **Import Media** and choose a single video to import. You can change the imported video by hitting the **Replace File** at the top menu.
@@ -175,6 +198,9 @@ Then the video will be automatically and quickly reframed to your specified spee
 
 ![filmora](https://images.wondershare.com/filmora/guide/7-restart-reframing.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 **Step 4\. Preview the Reframed Video and Check**
 
 Lastly, you can preview your final video. If the video needs more work, you can also play and pause it at the point you want to adjust the frame. You can use **Next Edit Point**, **Undo**, **Redo**, and **Previous Edit Point** at the bottom panel.
@@ -185,6 +211,12 @@ Finally, after all the final adjustments, you can hit the **Export** tab, name y
 
 ![filmora](https://images.wondershare.com/filmora/guide/9-export-reframed-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## Part 3: FAQs about YouTube Shorts
 
 **1\. Where to download the YouTube Shorts app?**
@@ -250,3 +282,45 @@ Follow @Liza Brown
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-elevate-your-video-conferencing-game-with-slack-and-filmora-integration/"><u>[New] 2024 Approved  Elevate Your Video Conferencing Game with Slack & Filmora Integration</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/roadcasting-brilliance-in-final-fragments-for-2024/"><u>[New] Broadcasting Brilliance in Final Fragments for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rafting-universal-streams-for-youtube-and-beyond-networks/"><u>[New] Crafting Universal Streams for YouTube & Beyond Networks</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/lash-clip-content-wizard/"><u>[New] Flash Clip Content Wizard</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-one-size-fits-all-not-with-these-top-mics-for-diverse-channels/"><u>[New] In 2024, One Size Fits All? Not with These Top Mics for Diverse Channels</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/apping-social-interest-to-video-idea-generation-with-google-for-2024/"><u>[New] Mapping Social Interest to Video Idea Generation with Google for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/hythmic-resonance-top-10-yogis-on-the-web-for-2024/"><u>[New] Rhythmic Resonance  Top 10 Yogis on the Web for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/treamlined-converting-top-six-free-ios-apps-for-youtube-to-mp3/"><u>[New] Streamlined Converting  Top Six Free iOS Apps for YouTube-to-MP3</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/triking-visuals-a-deep-dive-into-optimal-youtube-thumbnail-sizes/"><u>[New] Striking Visuals  A Deep Dive Into Optimal YouTube Thumbnail Sizes</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-ultimate-mc-village-dwellings-guide/"><u>[New] Ultimate MC Village Dwellings Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/outube-shorts-templates-understanding-the-fundamentals/"><u>[New] YouTube Shorts Templates  Understanding the Fundamentals</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-boost-traffic-to-your-videos-top-seo-practices-for-youtube-success/"><u>[Updated] 2024 Approved  Boost Traffic to Your Videos  Top SEO Practices for YouTube Success</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-exploring-income-derived-from-each-watch-on-video-platforms/"><u>[Updated] 2024 Approved  Exploring Income Derived From Each Watch on Video Platforms</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-angled-artistry-elevating-youtube-video-editing-skills-for-2024/"><u>[Updated] Angled Artistry  Elevating YouTube Video Editing Skills for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-flourishing-on-a-beauty-youtube-channel/"><u>[Updated] Flourishing on a Beauty YouTube Channel</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-budget-friendly-designs-for-youtube-content-creators/"><u>[Updated] In 2024, Budget-Friendly Designs for YouTube Content Creators</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-mastering-view-counts-by-upholding-youtubes-cc-license/"><u>[Updated] In 2024, Mastering View Counts by Upholding YouTube's CC License</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-jumpstart-your-professional-filmmaking-exclusive-cost-free-green-screen-training-from-top-youtube-educators/"><u>[Updated] Jumpstart Your Professional Filmmaking  Exclusive, Cost-Free Green Screen Training From Top YouTube Educators</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-precision-editing-made-simple-with-youtube-studio-tools-for-2024/"><u>[Updated] Precision Editing Made Simple with YouTube Studio Tools for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-setting-the-scene-ideal-video-aspect-ratios-and-widths-for-youtube/"><u>[Updated] Setting the Scene  Ideal Video Aspect Ratios & Widths for YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-top-flick-alternatives-indie-worthy-2023-releases/"><u>[Updated] Top Flick Alternatives  Indie-Worthy 2023 Releases</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-viral-vortex-keywords-that-propel-you-into-social-media-spotlight/"><u>[Updated] Viral Vortex  Keywords that Propel You Into Social Media Spotlight</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-intersecting-experiences-dissecting-vr-augmented-and-mixed-reality/"><u>2024 Approved  Intersecting Experiences  Dissecting VR, Augmented & Mixed Reality</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-ultimate-crew-for-imaginative-audio-visual-art/"><u>2024 Approved  Ultimate Crew for Imaginative Audio-Visual Art</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-unleash-creativity-with-top-10-phone-apps-adding-stickers-to-images/"><u>2024 Approved  Unleash Creativity with Top 10 Phone Apps Adding Stickers to Images</u></a></li>
+<li><a href="https://windows11.techidaily.com/backup-your-cortana-data-for-future-reference-windows/"><u>Backup Your Cortana Data for Future Reference (Windows)</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fixing-mistaken-identities-improving-apples-people-album-feature/"><u>Fixing Mistaken Identities: Improving Apple's People Album Feature</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/t-youtube-try-these-top-5-video-editor-options/"><u>Forget Youtube? Try These Top 5 Video Editor Options</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-overcome-the-steamuidll-not-found-deadly-steam-bug-easily/"><u>How to Overcome the 'SteamUI.DLL Not Found' Deadly Steam Bug Easily</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-samsung-galaxy-s23plus-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Samsung Galaxy S23+</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-motorola-razr-40-ultra-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on Motorola Razr 40 Ultra Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-top-10-yt-tickets-most-watched-videos-hour-by-hour/"><u>In 2024, Top 10 YT Tickets  Most Watched Videos, Hour by Hour</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/in-2024-your-guide-to-streaming-success-on-discord-platform/"><u>In 2024, Your Guide to Streaming Success on Discord Platform</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-your-ultimate-manual-for-opting-into-youtube-premium/"><u>In 2024, Your Ultimate Manual for Opting Into YouTube Premium</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolve-audio-lag-issues-with-ease/"><u>Resolve Audio Lag Issues with Ease</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/section-2b-five-facts-to-remember/"><u>Section 2B: Five Facts to Remember</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/simplified-blue-screen-usage-guide-for-2024/"><u>Simplified Blue Screen Usage Guide for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/eling-the-mystery-of-ad-driven-content-creation-cpm-for-2024/"><u>Unraveling the Mystery of Ad-Driven Content Creation (CPM) for 2024</u></a></li>
+</ul></div>

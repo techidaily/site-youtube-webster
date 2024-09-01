@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  The 411 on Building Sports Video Gold\""
-date: 2024-07-11T19:08:01.684Z
-updated: 2024-07-12T19:08:01.684Z
+date: 2024-08-31T18:36:38.802Z
+updated: 2024-09-01T18:36:38.802Z
 tags:
   - ai video
   - ai youtube
@@ -81,24 +81,41 @@ To start with, just launch Filmora on your computer and add the video that you w
 
 ![Import Media File](https://images.wondershare.com/filmora/guide/import-media-file-to-filmora-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 #### Step 2: Edit the Sports Video
 
 In order to create a sports highlight video, the first thing that people do is trim any unwanted part. Once the video is loaded, you can view it on the timeline of the interface. Now, go to the timeline and get the trim tool to manually select the part of the video you wish to trim. After selecting the desired fragment, you can trim the clip or just delete it by clicking on their respective icons.
 
 ![Edit Sports Video](https://images.wondershare.com/filmora/article-images/edit-sports-video-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 In the same way, you can also split your video and make other changes in it. You can also include multiple videos together and include them in your timeline as well.
 
 If you are including multiple videos, then make sure they have the same dimensions and aspect ratio. For this, you can select the video, right-click on the timeline, and click on the crop icon. Now, select the same aspect ratio for the entire video to keep it uniform.
 
 ![Edit Sports Video](https://images.wondershare.com/filmora/article-images/edit-sports-video-2.jpg)
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Most of the game highlights that we see have different speeds for various sections. That is, some actions would be fast-forwarded while some would be in slow motion. To apply this, simply select the section in the timeline, right-click, and go to the Speed and Duration settings. This will open a dedicated interface from where you can change the speed of the sports video.
 
 Apart from manually setting the speed, you can also take the assistance of the custom speed options that are available in the timeline tools.
 
 ![Edit Sports Video](https://images.wondershare.com/filmora/article-images/edit-sports-video-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Step 3: Make Advanced Edits in your Sports Video
 
 With the user-friendly interface of Filmora, you can do some basic edits and make a sports highlight video in minutes. Though, if you want to focus on some parts and make more changes, then you can use its advanced options as well.
@@ -113,6 +130,9 @@ Lastly, make sure that you added sound or voiceover to your video. You can add a
 
 ![Edit Sports Video](https://images.wondershare.com/filmora/article-images/edit-sports-video-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 #### Step 4: Export your video in the desired format
 
 That’s it! Once your sports highlight video is ready, you can export it in different formats. Just go to the Export option and select the location to save the video and a preferred resolution. You can save your video in formats like MP4, WMV, AVI, FLV, MKV, and so on.
@@ -141,6 +161,9 @@ I’m sure that after reading this guide, you would be able to come up with an i
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -166,3 +189,53 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-eliminating-exposure-how-to-conceal-private-video-sections/"><u>[New] 2024 Approved  Eliminating Exposure  How to Conceal Private Video Sections</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-scorching-speedways-ranking-the-top-5-virtual-race-titles/"><u>[New] 2024 Approved  Scorching Speedways  Ranking the Top 5 Virtual Race Titles</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-secret-behind-crafting-mesmerizing-slow-motion-media-for-instagram/"><u>[New] 2024 Approved  The Secret Behind Crafting Mesmerizing Slow Motion Media for Instagram</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/mplifying-impact-youtube-visibility-techniques/"><u>[New] Amplifying Impact  YouTube Visibility Techniques</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/lipping-frames-innovative-techniques-for-backward-viewing-on-yt/"><u>[New] Flipping Frames  Innovative Techniques for Backward Viewing on YT</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rom-youtube-to-webm-unveiling-the-premium-converters/"><u>[New] From YouTube to WebM  Unveiling the Premium Converters</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-entry-level-landing-low-cost-profitable-youtube-platforms/"><u>[New] In 2024, Entry Level Landing  Low-Cost, Profitable YouTube Platforms</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-explore-elite-gaming-opening-tutorials-free-and-premium-alternatives/"><u>[New] In 2024, Explore Elite Gaming Opening Tutorials  Free & Premium Alternatives</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-how-to-craft-top-quality-youtube-thumbnails-fast/"><u>[New] In 2024, How To Craft Top Quality YouTube Thumbnails Fast</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-the-ultimate-video-recording-devices-best-camcorders-reviewed/"><u>[New] In 2024, The Ultimate Video Recording Devices – Best Camcorders Reviewed</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-prime-choices-of-drones-up-for-grabs/"><u>[New] Prime Choices of Drones Up for Grabs</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/hegames-legends-youtubes-number-one-ten/"><u>[New] SheGames Legends  YouTube's Number One Ten</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-channel-growth-blueprint-selecting-between-studio-and-latest-beta/"><u>[Updated] 2024 Approved  Channel Growth Blueprint  Selecting Between Studio and Latest Beta</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-directly-embedding-google-meet-in-youtubes-video-library/"><u>[Updated] 2024 Approved  Directly Embedding Google Meet in YouTube's Video Library</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-8-unbeatable-zero-price-software-choices-for-online-media-makers-for-2024/"><u>[Updated] 8 Unbeatable Zero-Price Software Choices For Online Media Makers for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-converting-your-favourite-tracks-bridging-spotify-with-youtube-music-for-2024/"><u>[Updated] Converting Your Favourite Tracks  Bridging Spotify with YouTube Music for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-channel-expansion-techniques-for-30plus-online-platforms/"><u>[Updated] In 2024, Channel Expansion Techniques for 30+ Online Platforms</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-easy-youtube-file-transfer-techniques/"><u>[Updated] In 2024, Easy YouTube File Transfer Techniques</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-perfect-your-youtube-presence-learn-to-create-engaging-ads-and-thumbnails/"><u>[Updated] In 2024, Perfect Your YouTube Presence  Learn to Create Engaging Ads & Thumbnails</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-scripts-to-screen-a-filmmakers-guide-for-2024/"><u>[Updated] Scripts to Screen  A Filmmaker's Guide for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-streamline-your-experience-fix-instagrams-video-pains-for-2024/"><u>[Updated] Streamline Your Experience - Fix Instagram's Video Pains for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-uncover-vanished-watch-video-preview/"><u>[Updated] Uncover Vanished Watch Video Preview</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-visionary-video-planning-using-the-power-of-google-trends/"><u>[Updated] Visionary Video Planning Using the Power of Google Trends</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-exclusive-leaderboard-luminary-youtube-videographers-guide/"><u>2024 Approved  Exclusive Leaderboard Luminary  YouTube Videographer's Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/30495345-2024-approved-permanently-quit-youtube-shorts-now/"><u>2024 Approved  Permanently Quit YouTube Shorts Now!</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-the-art-of-arranging-youtube-video-elements/"><u>2024 Approved  The Art of Arranging YouTube Video Elements</u></a></li>
+<li><a href="https://change-location.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Samsung Galaxy A54 5G | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/comprehensive-strategies-to-resolve-oculus-hardware-issues/"><u>Comprehensive Strategies to Resolve Oculus Hardware Issues</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nient-techniques-for-customizing-your-own-short-videos-for-2024/"><u>Convenient Techniques for Customizing Your Own Short Videos for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-nvidia-geforce-rtx-30-series-drivers-compatible-with-windows-10-quick-and-simple/"><u>Download NVIDIA GeForce RTX 30 Series Drivers - Compatible with Windows 10: Quick & Simple</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/exploring-the-fitbit-versa-2-a-detailed-insight-into-its-smartwatch-capabilities-and-fitness-tracking-excellence/"><u>Exploring the Fitbit Versa 2 – A Detailed Insight Into Its Smartwatch Capabilities and Fitness Tracking Excellence</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/exploring-the-world-of-computing-with-toms-technology-insights/"><u>Exploring the World of Computing with Tom's Technology Insights</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/raw-footage-to-final-cut-chroma-mastery-for-2024/"><u>From Raw Footage to Final Cut  Chroma Mastery for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-honor-magic-5-lite-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Honor Magic 5 Lite Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-sony-xperia-10-v-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Sony Xperia 10 V to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-spark-viewers-attention-with-these-10-youtube-responses/"><u>In 2024, Spark Viewer's Attention with These 10 YouTube Responses</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mastering-the-art-of-clearing-youtubes-stored-videos/"><u>Mastering the Art of Clearing YouTube's Stored Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ture-marketers-guide-to-video-promos-infographic-for-2024/"><u>Miniature Marketer's Guide to Video Promos (Infographic) for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/secrets-to-save-your-favorite-igtv-on-phoneandroid/"><u>Secrets to Save Your Favorite IGTV on Phone/Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/socializing-into-savings-how-websites-bank-on-relationships/"><u>Socializing Into Savings: How Websites Bank on Relationships</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-9-chatgpt-hacks-to-simplify-your-daily-routine/"><u>Top 9 ChatGPT Hacks to Simplify Your Daily Routine</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-xiaomi-redmi-note-12-pro-5g-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Xiaomi Redmi Note 12 Pro 5G without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unlocking-efficient-google-podcast-postings/"><u>Unlocking Efficient Google Podcast Postings</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-you-dont-necessarily-have-to-know-a-lot-about-photo-or-video-editing-process-in-order-to-add-a-vignette-to-a-picture-or-adjust-its-col/"><u>Updated 2024 Approved You Dont Necessarily Have to Know a Lot About Photo or Video Editing Process in Order to Add a Vignette to a Picture or Adjust Its Color, Brightness or Highlights. In This Article We Are Going to Ta</u></a></li>
+<li><a href="https://techidaily.com/useful-ways-that-can-help-to-effectively-recover-deleted-files-from-sony-xperia-5-v-by-fonelab-android-recover-data/"><u>Useful ways that can help to effectively recover deleted files from Sony Xperia 5 V</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/y-review-how-sourav-joshi-achieved-success-on-youtube-by-2024/"><u>Yearly Review  How Sourav Joshi Achieved Success on YouTube by 2024</u></a></li>
+</ul></div>
