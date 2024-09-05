@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  YouTube Optimization for New Vloggers\""
-date: 2024-07-11T18:58:37.384Z
-updated: 2024-07-12T18:58:37.384Z
+date: 2024-09-04T22:12:34.033Z
+updated: 2024-09-05T22:12:34.033Z
 tags:
   - ai video
   - ai youtube
@@ -208,12 +208,30 @@ You can use an online service called [Canva](https://www.canva.com/) or download
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Publishing With Attention to Optimization
 
 Well done finishing the video! You are almost there… but not there yet.
 
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
 
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Come on, keep going!
 
 #### Step 10: Fill Out Your Videos Assets
@@ -222,6 +240,18 @@ The video is done, the thumbnail is designed, and you have all your title, descr
 
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Step 11: Add Transcripts
 
 In addition to making your content accessible for people who don’t want to or can’t listen to the audio in your video, adding subtitles and closed captions will help YouTube understand the spoken content in your video.
@@ -246,10 +276,22 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -275,3 +317,41 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-vlogging-hurdles-how-to-triumph-over-ten-common-obstacles/"><u>[New] 2024 Approved  Vlogging Hurdles  How to Triumph Over Ten Common Obstacles</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-best-3d-entrance-makers-for-youtube-creators/"><u>[New] In 2024, Best 3D Entrance Makers for YouTube Creators</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-crafting-splitscreen-youtube-videos-a-guide-to-creativity/"><u>[New] In 2024, Crafting Splitscreen YouTube Videos  A Guide to Creativity</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-elite-women-gaming-leaders-top-10-on-yt/"><u>[New] In 2024, Elite Women Gaming Leaders  Top 10 On YT</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ptimal-visual-branding-best-practices-for-youtube-channel-size-for-2024/"><u>[New] Optimal Visual Branding  Best Practices for YouTube Channel Size for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/erfect-shots-a-guide-to-capturing-engaging-youtube-content/"><u>[New] Perfect Shots  A Guide to Capturing Engaging YouTube Content</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-top-trending-ig-filters-ranked/"><u>[New] Top Trending IG Filters Ranked</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-building-an-intriguing-vlog-conversation-guide/"><u>[Updated] 2024 Approved  Building an Intriguing Vlog Conversation Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-expert-tips-for-creating-dynamic-youtube-splits/"><u>[Updated] 2024 Approved  Expert Tips for Creating Dynamic YouTube Splits</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-ishowu-audio-capture-download-and-review/"><u>[Updated] 2024 Approved  IShowU Audio Capture Download and Review</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-scaling-up-content-convert-youtube-to-igtv/"><u>[Updated] 2024 Approved  Scaling Up Content  Convert YouTube to IGTV</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-demystifying-youtube-shorts-for-total-beginners/"><u>[Updated] In 2024, Demystifying YouTube Shorts for Total Beginners</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-spectacular-ensemble-photos-plus-music-videos/"><u>[Updated] In 2024, Spectacular Ensemble  Photos + Music, Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-spice-up-your-videos-7-premium-royalty-free-audio-clips/"><u>[Updated] In 2024, Spice Up Your Videos  7 Premium, Royalty-Free Audio Clips</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-the-complete-blueprint-to-infuse-life-with-emojis-in-your-discord-statuses/"><u>[Updated] In 2024, The Complete Blueprint to Infuse Life with Emojis in Your Discord Statuses</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-mastering-playback-pivot-a-step-by-step-yt-guide-for-2024/"><u>[Updated] Mastering Playback Pivot  A Step-by-Step YT Guide for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-quick-fixes-todays-rapidly-watched-videos/"><u>[Updated] Quick Fixes  Today's Rapidly Watched Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-skyrocket-your-channel-to-over-a-million-subscribers/"><u>[Updated] Skyrocket Your Channel to Over a Million Subscribers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-strategic-steps-towards-uncovering-youtubes-secret-videos/"><u>[Updated] Strategic Steps Towards Uncovering YouTube's Secret Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-swiftly-producing-high-quality-thumbnails-for-valorant-screenshots/"><u>[Updated] Swiftly Producing High-Quality Thumbnails for Valorant Screenshots</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-unparalleled-asmr-channel-selection/"><u>[Updated] Unparalleled ASMR Channel Selection</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-keep-your-digital-life-streamlined-blocking-youtube-channels-smartly/"><u>2024 Approved  Keep Your Digital Life Streamlined  Blocking Youtube Channels Smartly</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-social-media-showdown-comparing-igtv-and-youtubes-unique-aspects/"><u>2024 Approved  Social Media Showdown  Comparing IGTV and YouTube's Unique Aspects</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-unveiling-profits-how-much-do-creators-earn-from-each-ad/"><u>2024 Approved  Unveiling Profits  How Much Do Creators Earn From Each Ad?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ce-audio-quality-get-high-quality-fx-in-2024/"><u>Enhance Audio Quality, Get High-Quality FX, In 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/aking-simplified-create-an-inviting-youtube-subscription-button-in-filmora-for-2024/"><u>Filmmaking Simplified  Create an Inviting YouTube Subscription Button in Filmora for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Lava Blaze 2 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-samsung-galaxy-xcover-6-pro-tactical-edition-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Samsung Galaxy XCover 6 Pro Tactical Edition Without the Home Button | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-charm-with-charisma-animate-your-instagram-story-texts/"><u>In 2024, Charm with Charisma  Animate Your Instagram Story Texts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-framecraft-videocutter/"><u>In 2024, FrameCraft VideoCutter</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-visualize-success-free-templates-to-elevate-your-youtube-presence/"><u>In 2024, Visualize Success  Free Templates to Elevate Your YouTube Presence</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-nokia-c300-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Nokia C300? | Dr.fone</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-the-ultimate-guide-to-free-flv-video-editing-tools/"><u>New The Ultimate Guide to Free FLV Video Editing Tools</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-ultimate-guide-to-clean-image-borders-on-canva/"><u>The Ultimate Guide to Clean Image Borders on Canva</u></a></li>
+</ul></div>

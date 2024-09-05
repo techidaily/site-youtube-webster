@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Master Video Creation  Understanding the Role of Camera Lenses in Vlogging\""
-date: 2024-07-11T19:03:22.837Z
-updated: 2024-07-12T19:03:22.837Z
+date: 2024-09-04T22:07:17.545Z
+updated: 2024-09-05T22:07:17.545Z
 tags:
   - ai video
   - ai youtube
@@ -78,6 +78,12 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -86,6 +92,18 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Focal Length Equivalency Table
 
 This table shows you the focal lengths needed to achieve the same shot between cameras with different sensor sizes. In order to take a shot as wide as the shot I took of myself with the 24mm lens on my full-frame camera, I would need a 15mm lens on an APS-C sensor camera or a 12mm lens on a micro 4/3 camera.
@@ -101,14 +119,38 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
@@ -129,6 +171,12 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -168,3 +216,55 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/0-leading-free-platforms-for-exceptional-youtube-intros-for-2024/"><u>[New] 30 Leading Free Platforms for Exceptional YouTube Intros for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ffortless-and-economical-the-best-free-youtube-name-generators-for-2024/"><u>[New] Effortless & Economical  The Best Free YouTube Name Generators for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-enjoy-endless-creativity-discover-the-best-in-cheap-online-video-downloading/"><u>[New] In 2024, Enjoy Endless Creativity  Discover the Best in Cheap, Online Video Downloading</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-inside-look-securing-a-profitable-monetized-youtube-space/"><u>[New] In 2024, Inside Look  Securing a Profitable Monetized Youtube Space</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-insightful-ways-to-monitor-youtube-viewership-trends/"><u>[New] In 2024, Insightful Ways to Monitor YouTube Viewership Trends</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-lush-looks-and-flawless-filters-building-your-vlog-empire/"><u>[New] In 2024, Lush Looks and Flawless Filters  Building Your Vlog Empire</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-mini-mic-marvels-affordable-sound-for-youtube-creators/"><u>[New] In 2024, Mini-Mic Marvels  Affordable Sound for YouTube Creators</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-perfecting-iphoneipad-screenshots-a-youtube-guide/"><u>[New] In 2024, Perfecting iPhone/iPad Screenshots  A YouTube Guide</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-your-secure-video-chatting-needs-met-top-10-safe-and-free-applications-on-smart-devices/"><u>[New] In 2024, Your Secure Video Chatting Needs Met  Top 10 Safe & Free Applications on Smart Devices</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/astering-the-art-of-freefire-a-gaming-youtubers-guide/"><u>[New] Mastering the Art of FreeFire  A Gaming Youtuber’s Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/eamless-conversion-of-video-content-to-dynamic-gif-formats-for-2024/"><u>[New] Seamless Conversion of Video Content to Dynamic GIF Formats for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/preading-beauty-wisdom-setting-up-your-vloggers-virtual-space/"><u>[New] Spreading Beauty Wisdom  Setting Up Your Vlogger's Virtual Space</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-essential-guide-to-smartphone-based-youtube-thumbnails/"><u>[New] The Essential Guide to Smartphone-Based YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-crafting-success-with-these-15-youtube-introduction-plans/"><u>[Updated] 2024 Approved  Crafting Success with These 15 YouTube Introduction Plans</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-clearing-your-browsers-watched-videos/"><u>[Updated] Clearing Your Browser's Watched Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-ranking-youtube-download-apps-for-android-users/"><u>[Updated] In 2024, Ranking YouTube Download Apps for Android Users</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-profitable-content-creation-on-youtube-through-smart-adsense-use/"><u>[Updated] Profitable Content Creation on YouTube Through Smart AdSense Use</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-step-by-step-guide-to-saving-insta-story-content-for-2024/"><u>[Updated] Step-by-Step Guide to Saving Insta Story Content for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-step-by-step-to-youtube-fame-excellence-in-music-video-reactions-for-2024/"><u>[Updated] Step-by-Step to YouTube Fame  Excellence in Music Video Reactions for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-crafting-engaging-gamers-banners-using-pre-made-themes/"><u>2024 Approved  Crafting Engaging Gamers' Banners  Using Pre-Made Themes</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-discover-top-rated-xbox-extra-gb-drives/"><u>2024 Approved  Discover Top-Rated Xbox Extra GB Drives</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-final-cut-pro-x-mastery-crafting-instagrams-desired-format/"><u>2024 Approved  Final Cut Pro X Mastery  Crafting Instagram's Desired Format</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/8-leading-e-reader-applications-revolutionizing-book-lovers-experience/"><u>8 Leading E-Reader Applications Revolutionizing Book Lovers' Experience</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/sing-tseries-financial-outcomes-from-youtube-presence-for-2024/"><u>Assessing TSeries’ Financial Outcomes From YouTube Presence for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/balladry-battlegrounds-human-poets-vs-ai-pasture-pals/"><u>Balladry Battlegrounds: Human Poets vs AI Pasture Pals</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/boosting-remote-meeting-effectiveness-through-optimized-zoom-recordings/"><u>Boosting Remote Meeting Effectiveness Through Optimized Zoom Recordings</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ning-youtube-and-imovie-for-professional-results/"><u>Combining YouTube and iMovie for Professional Results</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-enhanced-home-protection-with-the-newly-revamped-blink-4p-motion-detection-floodlight-cam/"><u>Discover Enhanced Home Protection with the Newly-Revamped Blink 4P Motion Detection Floodlight Cam</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/diy-tips-to-cut-unwanted-sounds-from-your-videos-for-2024/"><u>DIY Tips to Cut Unwanted Sounds From Your Videos for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/iently-broadcasting-your-videos-as-shorts-via-computers-and-mobile-for-2024/"><u>Efficiently Broadcasting Your Videos as Shorts via Computers & Mobile for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/tial-travel-vloggers-the-ultimate-10-list-for-2024/"><u>Essential Travel Vloggers  The Ultimate 10 List for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/site-couple-clips-the-best-weddings-online-8-picks/"><u>Exquisite Couple Clips  The Best Weddings Online (8 Picks)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/free-winx-dvd-ripper-convert-and-copy-dvds-to-iphones-ipads-and-android-devices-in-mp4avi/"><u>Free WinX DVD Ripper: Convert and Copy DVDs to iPhones, iPads & Android Devices in MP4/AVI</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-from-lenovo-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Lenovo Devices</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-vivo-y77t-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Vivo Y77t | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-enchant-your-e-images-with-electronic-soundtracks/"><u>In 2024, Enchant Your E-Images with Electronic Soundtracks</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-how-to-monetize-your-youtube-shorts-simple-steps/"><u>In 2024, How to Monetize Your YouTube Shorts  Simple Steps</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-script-visionaries-corner/"><u>In 2024, Innovative Script Visionaries Corner</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-ultimate-selection-of-video-capture-tools-for-streaming/"><u>In 2024, Ultimate Selection of Video Capture Tools for Streaming</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Motorola Edge+ (2023) | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-youtube-studio-optimization-device-agnostic-approaches/"><u>In 2024, Youtube Studio Optimization  Device-Agnostic Approaches</u></a></li>
+<li><a href="https://driver-download.techidaily.com/latest-logitech-g35-sound-card-software-for-windows-os-windows-7-8-10/"><u>Latest Logitech G35 Sound Card Software for Windows OS (Windows 7, 8, 10)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ring-video-content-defeating-10-vlogging-hurdles/"><u>Mastering Video Content  Defeating 10 Vlogging Hurdles</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/optimal-ram-assignment-for-superior-minecraft-gaming-for-2024/"><u>Optimal Ram Assignment for Superior Minecraft Gaming for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/simplified-guide-enhancing-skype-experience-via-zoom-for-2024/"><u>Simplified Guide  Enhancing Skype Experience via Zoom for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/sns-hdr-pro-review-is-it-worth-using-and-what-other-hdr-software-to-use/"><u>SNS HDR Pro Review  Is It Worth Using and What Other HDR Software to Use?</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solving-iphone-mic-issues-proven-fixes-for-non-functioning-microphones/"><u>Solving iPhone Mic Issues: Proven Fixes for Non-Functioning Microphones</u></a></li>
+<li><a href="https://techidaily.com/the-5-best-methods-to-track-a-lost-or-stolen-iphone-xr-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>The 5 Best Methods to Track a Lost or Stolen iPhone XR | Stellar</u></a></li>
+</ul></div>

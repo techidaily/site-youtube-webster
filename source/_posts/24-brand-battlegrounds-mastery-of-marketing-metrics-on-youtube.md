@@ -1,0 +1,215 @@
+---
+title: "\"In 2024, Brand Battlegrounds  Mastery of Marketing Metrics on YouTube\""
+date: 2024-09-04T22:22:26.445Z
+updated: 2024-09-05T22:22:26.445Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes In 2024, Brand Battlegrounds: Mastery of Marketing Metrics on YouTube\""
+excerpt: "\"This Article Describes In 2024, Brand Battlegrounds: Mastery of Marketing Metrics on YouTube\""
+keywords: "YouTuber Marketing Strategy,Marketing Analytics YouTube,YouTube Brand Engagement,Video Content ROI Analysis,Social Media Metrics Guide,Advertising Impact on YouTube,SEO for Online Videos"
+thumbnail: https://thmb.techidaily.com/1eb9ced51df0b5377c33b33676973c39490da0549a761ceba775a1dae7d61065.jpg
+---
+
+## Brand Battlegrounds: Mastery of Marketing Metrics on YouTube
+
+# YouTube Analytics – How to analyze your and Competitor's YouTube Video
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+ Tracking your brand's YouTube metrics is not enough to ensure success in YouTube. Unless you garner deep insights of your competitors. You must be thinking how can you gauge their company insights using YouTube and track the data movement as well. There is nothing to worry about, we have got you covered. We will show you how to analyze your own channel as well as that of your competitors' YouTube analytics. Let's now explore about it!
+
+## How to analyze your own YouTube channel/video?
+
+ It is important to have reliable YouTube analytics tools for your brand, as videos on YouTube are searchable through Google. They contribute to generate organic traffic for you using both Google and YouTube as a medium. YouTube has a default dedicated analytics mechanism to measure how the video fares in YouTube to gain the most out of it.
+
+ Here we have collated the broadly used YouTube insights to ensure that your highly equipped, SEO compatible video engages more audience and performs well. The matrix sums up the most essential parts of YouTube analytics. Let's go through them.
+
+#### 1\.  Views
+
+ Though, views determine the number of people clicked on a certain video on YouTube, it's impossible to figure out whether the video has been watched till the end or not. Moreover, they can be altered through clickbait tricks and hence YouTube doesn't solely put much value on them.
+
+ Views along with watch time turn out to be the best bet. Watch time sums up the total amount of time spent (in terms of minutes) on your brand' videos. With the updated dashboard it becomes easy to get the YouTube analytics and gauge the video's performance. Using the average view duration, you can know whether your video is being watched till the end or not.
+
+![](https://images.wondershare.com/filmora/article-images/youtube-analytics-views.jpg)
+
+#### 2\.  Playback Location
+
+ As 'Playback locations' of YouTube videos can reveal where does all the traffic come from, it would help your channel figure out for which location the video has fared well. It will guide you to reach the backlinks locations/sites. Knowing the popular locations for your YouTube video being played, you can know whether YouTube is the search engine or they have been diverted from somewhere else. Depending on the video playing locations, the views will be segregated in to embedded video, YouTube watch page, mobile devices, and YouTube channel page. Understanding location specific views would help you decide where should you focus to enhance the performance of your video.
+
+![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playback-location.jpg)
+
+#### 3\.  Demographics
+
+ The demographics page helps you get YouTube insights, using them you can know the audience in a gender and location specific manner. For local businesses targeting a certain region, YouTube analytics would prove to be a boon. You can also know the geography and device used by the viewers with this feature. Understanding the gender and location of people will help you create dedicated product videos that would be helpful to them.
+
+![](https://images.wondershare.com/filmora/article-images/youtube-analytics-demographic.jpg)
+
+#### 4\.  Traffic sources
+
+ Understanding the source of your YouTube video's traffic would help you track the prominent keywords that viewers use for landing at your YouTube video. You can figure out their choice and their search patterns this way. The YouTube insights will show you whether the viewers found your video by searching YouTube, a channel on YouTube, through suggested videos, or an external link. The YouTube Analytics tool's panel would assist you in finalizing the most beneficial traffic source for your brand. You can optimize your video and keyword strategy with this.
+
+![](https://images.wondershare.com/filmora/article-images/youtube-analytics-traffic-source.jpg)
+
+#### 5\.  Audience Retention
+
+ This data explains how far your video has engaged your audience. Along with views, the duration that a viewer is on your video weighs too. From the audience retention page, you can find out the specific time that a viewer has exited your video and see what made them do so. There are 2 types of audience retention features – absolute audience retention and relative audience retention.
+
+![](https://images.wondershare.com/filmora/article-images/youtube-analytics-audience-retention.jpg)
+
+#### 6\.  Devices
+
+ It is important to know which device is being used to watch the video. The metrics is distributed among mobile phones, computer, TV, tablet etc. you will be able to understand whether your video needs to be optimized for a certain video or not.
+
+![](https://images.wondershare.com/filmora/article-images/youtube-analytics-devices.jpg)
+
+#### 7\.  Likes and dislikes
+
+ YouTube insights gauge the audience acceptance for your video by the number of likes and dislikes. Videos with a huge number of like implies that it is loved by people, though, the quality of video can't exactly be defined by the number of likes or dislikes. Even the best quality video created for asking opinions about a certain situation/issue might be good enough but still get dislikes.
+
+![](https://images.wondershare.com/filmora/article-images/youtube-analytics-likes-and-dislikes.jpg)
+
+#### 8\.  Subscribers
+
+ YouTube analytics help you determine the engagement metrics to explain the origin of your subscribers. It includes both their geo-location, the date of subscription, and the source/medium they used to land with your video on YouTube. You can observe the number of people subscribing and unsubscribing from your YouTube channel.
+
+![](https://images.wondershare.com/filmora/article-images/youtube-analytics-subscribers.jpg)
+
+ The subscription stream enables your audience to get suggestions for new videos from your channel and offer better exposure to the service and products you offer.
+
+**You May Also Like** : [How to Get More Subscribers](https://tools.techidaily.com/wondershare/filmora/download/)
+
+#### 9\.  Annotations
+
+ While considering YouTube Analytics, it is essential to understand that there are annotations to guide viewers to your business site for more content. It is not necessary that the content is video only, it might include a blog post as well. This will let you understand the click through rate and 'close' rates for every annotation. This in turn will assist you in optimizing how to reach your audience and where to place the annotations.
+
+![](https://images.wondershare.com/filmora/article-images/youtube-analytics-annotations.jpg)
+
+#### 10\.  Comments
+
+ Audience engagement on any YouTube video can easily be gauged by using the vital aspect known as comments. Either it touched a chord in their heart, inspired or motivated them, or simply made them smile, the comments will say it all. Sometimes the audience simply taps 'Like' in place of commenting at their convenient.
+
+![](https://images.wondershare.com/filmora/article-images/youtube-analytics-comments.jpg)
+
+#### 11\.  Cards
+
+ Cards is a new feature in YouTube analytics and aimed at replacing annotations. This will improve user interactivity of any video and accelerate the engagement. They will act as call to action for informing visitors regarding playlists, videos, merchandising, fan funding, and associated website etc.
+
+![](https://images.wondershare.com/filmora/article-images/youtube-analytics-cards.jpg)
+
+#### 12\.  Sharing
+
+ This aspect sums up the amount of shares of the YouTube video across different social networks along with the share date. Google ranking is influenced with the share numbers, as higher the number more the chances of unique backlinks for your videos.
+
+![](https://images.wondershare.com/filmora/article-images/youtube-analytics-sharing.jpg)
+
+#### 13\.  Videos in playlists
+
+ Favorites has been renamed to 'Videos in playlists'. Your reach broadens as people keep marking your videos as favorites on their playlist. This is visible to the public on the YouTube channel itself.
+
+![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playlists.jpg)
+
+## How to analyze your competitors
+
+ Although, you can't see the dashboard data of your competitor, there are still some ways to observe and study your competitors' successful videos and from their views, favorites, ratings, and comments find out the driving force behind it.
+
+ For example, reading the comments and see what they are saying. Notice both the positive and negative ones so that you can incorporate the ideas in your videos. You can also make a better video by understanding what a specific demographic region is fond of watching in the said niche.
+
+ Or you can use those analyzing tools below to discover the more stats of your competitors.
+
+#### 1\. [InflueNex](https://www.influenex.com/)
+
+ InflueNex is a helpful influencer marketing tool for Analyzing, searching, and managing YouTubers. With the help of this YouTube analytics tool, you're able to learn your competitors' channels and videos with detailed information.
+
+![InflueNex YouTube Marketing Paltform ](https://images.wondershare.com/filmora/article-images/influenex-youtube-marketing-paltform.jpg)
+
+#### 2\. [Rival IQ](https://www.rivaliq.com/)
+
+ This YouTube analytics tool helps you increase social media engagement, conduct competitive analysis to track competition, discovers new content ideas for your target audience. You can use it to leverage your foothold in YouTube.
+
+#### 3\. [SocialBlade](https://socialblade.com/)
+
+ SocialBlade helps you gain YouTube insights and enables you to understand how your rival brands fare. You can learn from them and enhance your own strategy to beat them.
+
+ Read More to Get: [5 Methods to Go Frame by Frame on YouTube Video >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-starting-off-with-zoom-meetings-your-first-steps-guide/"><u>[New] 2024 Approved  Starting Off with Zoom Meetings  Your First Steps Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/mbracing-resilience-against-online-detractors-for-2024/"><u>[New] Embracing Resilience Against Online Detractors for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-facebook-insights-how-to-use-it-for-beginners/"><u>[New] In 2024, Facebook Insights  How to Use It for Beginners</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-unlock-the-secrets-to-high-impact-youtube-branding/"><u>[New] In 2024, Unlock the Secrets to High-Impact YouTube Branding</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-bring-your-clips-to-life-a-compreenased-way-to-post-on-youtube/"><u>[Updated] 2024 Approved  Bring Your Clips to Life  A Compreenased Way to Post on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-innovative-and-inexpensive-the-best-free-youtube-name-generators/"><u>[Updated] 2024 Approved  Innovative & Inexpensive  The Best Free YouTube Name Generators</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-building-your-ultimate-youtube-music-list-step-by-step-guide-webmobile-for-2024/"><u>[Updated] Building Your Ultimate YouTube Music List  Step-by-Step Guide (Web/Mobile) for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-decoding-youtubes-payment-scheme-for-2024/"><u>[Updated] Decoding YouTube's Payment Scheme for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-editing-magic-transformative-strategies-for-youtube-creators-for-2024/"><u>[Updated] Editing Magic  Transformative Strategies for YouTube Creators for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-from-novice-to-content-creator-your-youtube-journey-begins-for-2024/"><u>[Updated] From Novice to Content Creator  Your YouTube Journey Begins for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-an-in-depth-look-at-video-apps-for-iphone-and-android-users/"><u>[Updated] In 2024, An In-Depth Look at Video Apps for iPhone & Android Users</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-clubbing-essentials-top-rated-dj-template-vids/"><u>[Updated] In 2024, Clubbing Essentials  Top-Rated DJ Template Vids</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-creating-professional-edits-using-youtube-studio-editor/"><u>[Updated] In 2024, Creating Professional Edits Using YouTube Studio Editor</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-streaming-made-simple-convert-and-broadcast-mp3-songs-online/"><u>[Updated] In 2024, Streaming Made Simple  Convert and Broadcast MP3 Songs Online</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-the-ultimate-guide-to-youtube-fame-with-spectacular-music-videos/"><u>[Updated] In 2024, The Ultimate Guide to YouTube Fame with Spectacular Music Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-voice-change-innovations-for-youtubers-and-their-videos/"><u>[Updated] In 2024, Voice Change Innovations for YouTubers & Their Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-laugh-out-loud-crafting-humorous-video-ideas-for-short-films-for-2024/"><u>[Updated] Laugh Out Loud  Crafting Humorous Video Ideas for Short Films for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-laughing-skits-building-a-parody-film/"><u>[Updated] Laughing Skits  Building a Parody Film</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-mirrorless-vs-dslr-video-mastery-in-focus-for-2024/"><u>[Updated] Mirrorless vs DSLR  Video Mastery in Focus for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-upload-youtube-shorts-detailed-instructions-from-desktopmobile-for-2024/"><u>[Updated] Upload YouTube Shorts  Detailed Instructions From Desktop/Mobile for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-best-practices-for-advanced-ae-plug-ins/"><u>2024 Approved  Best Practices for Advanced AE Plug-Ins</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-captioning-techniques-for-professional-youtube-content/"><u>2024 Approved  Captioning Techniques for Professional YouTube Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-enlightenment-echoes-best-ed-tutorials-yt/"><u>2024 Approved  Enlightenment Echoes  Best Ed Tutorials YT</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-sprint-showcase-short-track-22-glory/"><u>2024 Approved  Sprint Showcase  Short Track '22 Glory</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-youtube-tycoons-earning-the-most/"><u>2024 Approved  YouTube Tycoons  Earning the Most</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/and-inexpensive-techniques-for-youtube-cards/"><u>Easy and Inexpensive Techniques for YouTube Cards</u></a></li>
+<li><a href="https://fox-that.techidaily.com/expert-advice-overcoming-the-liquid-in-port-notification-on-iphones-with-usb-c/"><u>Expert Advice: Overcoming the 'Liquid in Port' Notification on iPhones with USB-C</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-6-passcode-without-computer-by-drfone-ios/"><u>How to Unlock Apple iPhone 6 Passcode without Computer?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-10-best-youtube-makeup-artists-you-must-have-heard/"><u>In 2024, 10 Best YouTube Makeup Artists You Must Have Heard</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-embedding-yt-playlists-seamlessly-on-webpages/"><u>In 2024, Embedding YT Playlists Seamlessly on Webpages</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-optimal-mics-tailored-to-youtube-professionals/"><u>In 2024, Optimal Mics Tailored to YouTube Professionals</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/in-depth-amazon-fire-hd-10-kids-tablet-evaluation-exceptional-kid-friendly-security-features/"><u>In-Depth Amazon Fire HD 10 Kids' Tablet Evaluation: Exceptional Kid-Friendly Security Features</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-free-whiteboard-animation-software-for-windows-and-mac-top-10-picks-for-2024/"><u>New Free Whiteboard Animation Software for Windows and Mac Top 10 Picks for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/optimizing-microphone-performance-with-xbox-app-windows-11/"><u>Optimizing Microphone Performance with Xbox App Windows 11</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/sing-your-heart-out-with-these-premiere-karaoke-machines-of-2024/"><u>Sing Your Heart Out with These Premiere Karaoke Machines of 2024!</u></a></li>
+<li><a href="https://win-blog.techidaily.com/starfield-audio-fixes-bid-farewell-to-irritating-interruptions-and-distortions/"><u>Starfield Audio Fixes - Bid Farewell to Irritating Interruptions & Distortions</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/itioning-playlists-from-spotify-to-a-tailored-youtube-music-list-for-2024/"><u>Transitioning Playlists From Spotify to a Tailored YouTube Music List for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/k-content-insights-7-premier-free-tag-extraction-tools-for-2024/"><u>Unlock Content Insights  7 Premier Free Tag Extraction Tools for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/be-earnings-unveiled-average-adsense-payments-per-thousand-views/"><u>Youtube Earnings Unveiled  Average AdSense Payments Per Thousand Views</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

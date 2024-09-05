@@ -1,7 +1,7 @@
 ---
 title: "Activating or Deactivating User Feedback on Videos for 2024"
-date: 2024-07-11T19:00:09.029Z
-updated: 2024-07-12T19:00:09.029Z
+date: 2024-09-04T22:11:18.915Z
+updated: 2024-09-05T22:11:18.915Z
 tags:
   - ai video
   - ai youtube
@@ -112,6 +112,18 @@ From under the **Audience** section in the right window of the **Video details**
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -128,6 +140,12 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![Block YouTube   commnets](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -142,6 +160,18 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -167,3 +197,41 @@ Follow @Liza Brown
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-increase-click-through-with-best-youtube-thumbnail-fonts/"><u>[New] 2024 Approved  Increase Click-Through with Best YouTube Thumbnail Fonts</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-a-palette-of-pleasantness-five-winter-backgrounds-ideas/"><u>[New] A Palette of Pleasantness  Five Winter Backgrounds Ideas</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-best-online-meeting-capture-the-leading-5-gadgets-for-2024/"><u>[New] Best Online Meeting Capture  The Leading 5 Gadgets for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/iscover-the-best-3-platforms-for-video-consumption-post-youtube/"><u>[New] Discover the Best 3 Platforms for Video Consumption (Post-YouTube)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/xpert-tips-on-jump-cuts-for-dynamic-video-editing-for-2024/"><u>[New] Expert Tips on Jump Cuts for Dynamic Video Editing for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-gamers-ultimate-guide-selecting-the-best-video-card-brands/"><u>[New] In 2024, Gamer’s Ultimate Guide  Selecting the Best Video Card Brands</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-how-to-safely-capture-your-favorite-youtube-audio-for-free/"><u>[New] In 2024, How to Safely Capture Your Favorite YouTube Audio for Free</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-premium-notebooks-select-the-best-for-professional-edits/"><u>[New] In 2024, Premium Notebooks  Select the Best for Professional Edits</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nsightful-discussion-on-youtube-keyword-mastery-for-2024/"><u>[New] Insightful Discussion on YouTube Keyword Mastery for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/vercoming-obstacles-in-youtube-journey-using-creative-studio-guide/"><u>[New] Overcoming Obstacles in YouTube Journey Using Creative Studio Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-simple-steps-to-embed-youtube-playlists-on-any-website/"><u>[New] The Simple Steps to Embed YouTube Playlists on Any Website</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/hos-at-the-apex-youtube-subscribers-ranking-for-2024/"><u>[New] Who's at the Apex? YouTube Subscribers Ranking for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-1-key-youtube-tactics-for-effective-brand-promotion/"><u>[Updated] In 2024, 1  Key YouTube Tactics for Effective Brand Promotion</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-efficient-revenue-streams-the-guide-to-making-money-from-youtube-mobile/"><u>[Updated] In 2024, Efficient Revenue Streams  The Guide to Making Money From YouTube Mobile</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-slow-your-roll-thriving-in-the-world-of-sluggish-youtube-content-52-chars/"><u>[Updated] In 2024, Slow Your Roll  Thriving in the World of Sluggish YouTube Content (52 Chars)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-maximize-learning-free-tools-for-online-video-texts-for-2024/"><u>[Updated] Maximize Learning  Free Tools for Online Video Texts for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-scrutinizing-googles-ar-embellishments-and-others/"><u>[Updated] Scrutinizing Google's AR Embellishments & Others</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-top-cinema-teasers-compilation/"><u>[Updated] Top Cinema Teasers Compilation</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-a-comprehensive-look-at-youtuber-snippets/"><u>2024 Approved  A Comprehensive Look at Youtuber Snippets</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-reversing-a-youtube-strike-a-guide/"><u>2024 Approved  Reversing a YouTube Strike  A Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-your-blueprint-to-top-ranked-business-youtube-channels/"><u>2024 Approved  Your Blueprint to Top-Ranked Business YouTube Channels</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/eating-the-trend-top-food-moments-on-tiktok/"><u>Eating the Trend  Top Food Moments on TikTok</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/tlessly-transform-youtube-tunes-to-mp3-with-mac/"><u>Effortlessly Transform YouTube Tunes to MP3 with Mac</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/frames-to-fun-youtube-gifs-creation-made-simple-for-2024/"><u>From Frames to Fun  YouTube GIFs Creation Made Simple for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-xiaomi-13t-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Xiaomi 13T to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-understanding-legal-bounds-of-youtube-video-screencaps/"><u>In 2024, Understanding Legal Bounds of YouTube Video Screencaps</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/learning-on-film-school-vid-editing-best-practices-for-2024/"><u>Learning on Film  School Vid Editing Best Practices for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/aging-youtubes-features-to-improve-visuals-for-2024/"><u>Leveraging YouTube's Features to Improve Visuals for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ips-optimal-videography-with-these-top-12-portable-cams/"><u>Pro Tips  Optimal Videography with These Top 12 Portable Cams</u></a></li>
+<li><a href="https://app-tips.techidaily.com/quick-fix-top-5-methods-for-forcing-a-close-on-stuck-mac-applications/"><u>Quick Fix: Top 5 Methods for Forcing a Close on Stuck Mac Applications</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/by-step-guide-to-live-stream-your-google-meet-on-youtube-for-2024/"><u>Step-By-Step Guide to Live Stream Your Google Meet on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ssentials-of-youtubes-latest-payment-policy/"><u>The Essentials of YouTube's Latest Payment Policy</u></a></li>
+<li><a href="https://some-skills.techidaily.com/transform-your-broadcasts-streamlabs-with-obs-on-mac-for-2024/"><u>Transform Your Broadcasts  Streamlabs with OBS on Mac for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/turn-off-microsofts-windows-defender-in-windows-10-a-3-step-guide/"><u>Turn Off Microsoft's Windows Defender in Windows 10: A 3-Step Guide</u></a></li>
+</ul></div>

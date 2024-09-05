@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Instantly Purging Unwanted YouTube Comments Made Simple\""
-date: 2024-07-11T18:59:56.861Z
-updated: 2024-07-12T18:59:56.861Z
+date: 2024-09-04T22:11:04.245Z
+updated: 2024-09-05T22:11:04.245Z
 tags:
   - ai video
   - ai youtube
@@ -69,6 +69,12 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -112,22 +118,64 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
 ![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -153,3 +201,75 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-creating-a-multimedia-guide-adding-videos-to-text-articles/"><u>[New] 2024 Approved  Creating a Multimedia Guide  Adding Videos to Text Articles</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-microphone-efficiency-checklist/"><u>[New] 2024 Approved  Microphone Efficiency Checklist</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-vlogging-hurdles-how-to-triumph-over-ten-common-obstacles/"><u>[New] 2024 Approved  Vlogging Hurdles  How to Triumph Over Ten Common Obstacles</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-youtube-video-magic-advanced-editing-with-premiere-pro/"><u>[New] 2024 Approved  YouTube Video Magic  Advanced Editing with Premiere Pro</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/hannel-name-wizardry-brainstorm-and-create-in-2024/"><u>[New] Channel Name Wizardry  Brainstorm & Create, In 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-craft-compelling-fb-video-ads-free-toolkit-included-for-2024/"><u>[New] Craft Compelling FB Video Ads - Free Toolkit Included for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ut-through-the-noise-with-these-top-10-yt-short-standout-strategies/"><u>[New] Cut Through the Noise with These Top 10 YT Short Standout Strategies</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-best-3d-entrance-makers-for-youtube-creators/"><u>[New] In 2024, Best 3D Entrance Makers for YouTube Creators</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-crafting-splitscreen-youtube-videos-a-guide-to-creativity/"><u>[New] In 2024, Crafting Splitscreen YouTube Videos  A Guide to Creativity</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-elite-women-gaming-leaders-top-10-on-yt/"><u>[New] In 2024, Elite Women Gaming Leaders  Top 10 On YT</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-principles-of-creating-inspirational-day-to-day-visual-stories/"><u>[New] In 2024, Principles of Creating Inspirational Day-to-Day Visual Stories</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-vdsc-vidmaster-tale-a-comprehensive-evaluation/"><u>[New] In 2024, VDSC VidMaster Tale  A Comprehensive Evaluation</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-miniature-homes-japanese-and-chinese-inspirations/"><u>[New] Miniature Homes  Japanese & Chinese Inspirations</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ptimal-visual-branding-best-practices-for-youtube-channel-size-for-2024/"><u>[New] Optimal Visual Branding  Best Practices for YouTube Channel Size for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/erfect-shots-a-guide-to-capturing-engaging-youtube-content/"><u>[New] Perfect Shots  A Guide to Capturing Engaging YouTube Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nlocking-creativity-mastering-ios-screen-capture-for-youtube/"><u>[New] Unlocking Creativity  Mastering iOS Screen Capture for YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-boosting-income-with-effective-youtube-short-strategies/"><u>[Updated] 2024 Approved  Boosting Income with Effective Youtube Short Strategies</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-expert-tips-for-creating-dynamic-youtube-splits/"><u>[Updated] 2024 Approved  Expert Tips for Creating Dynamic YouTube Splits</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-ideal-portals-to-rewind-at-your-computer-ps3-edition/"><u>[Updated] 2024 Approved  Ideal Portals to Rewind at Your Computer (PS3 Edition)</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-memories-in-motion-the-premier-archive-for-tweeter-gifs/"><u>[Updated] 2024 Approved  Memories in Motion  The Premier Archive for Tweeter GIFs</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-resolved-mystery-of-absentee-shorts/"><u>[Updated] 2024 Approved  Resolved  Mystery of Absentee Shorts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-scaling-up-content-convert-youtube-to-igtv/"><u>[Updated] 2024 Approved  Scaling Up Content  Convert YouTube to IGTV</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-demystifying-youtube-shorts-for-total-beginners/"><u>[Updated] In 2024, Demystifying YouTube Shorts for Total Beginners</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-spectacular-ensemble-photos-plus-music-videos/"><u>[Updated] In 2024, Spectacular Ensemble  Photos + Music, Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-spice-up-your-videos-7-premium-royalty-free-audio-clips/"><u>[Updated] In 2024, Spice Up Your Videos  7 Premium, Royalty-Free Audio Clips</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-mastering-playback-pivot-a-step-by-step-yt-guide-for-2024/"><u>[Updated] Mastering Playback Pivot  A Step-by-Step YT Guide for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-navigating-screen-space-enlargement-on-youtube/"><u>[Updated] Navigating Screen Space Enlargement on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-quick-fixes-todays-rapidly-watched-videos/"><u>[Updated] Quick Fixes  Today's Rapidly Watched Videos</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-restore-pristine-photos-easily-discover-top-10-online-enhancers/"><u>[Updated] Restore Pristine Photos Easily  Discover Top 10 Online Enhancers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-skyrocket-your-channel-to-over-a-million-subscribers/"><u>[Updated] Skyrocket Your Channel to Over a Million Subscribers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-strategic-steps-towards-uncovering-youtubes-secret-videos/"><u>[Updated] Strategic Steps Towards Uncovering YouTube's Secret Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-swiftly-producing-high-quality-thumbnails-for-valorant-screenshots/"><u>[Updated] Swiftly Producing High-Quality Thumbnails for Valorant Screenshots</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-ultimate-crew-for-photographic-rhythm-films/"><u>[Updated] Ultimate Crew for Photographic Rhythm Films</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-unlocking-the-potential-of-facetime-voice-logging-for-2024/"><u>[Updated] Unlocking the Potential of FaceTime Voice Logging for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-unparalleled-asmr-channel-selection/"><u>[Updated] Unparalleled ASMR Channel Selection</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-youtube-income-mastery-latest-policy-guide/"><u>[Updated] YouTube Income Mastery  Latest Policy Guide</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-diving-into-the-worlds-best-free-online-editing-and-visual-effects-sites/"><u>2024 Approved  Diving Into the World's Best Free Online Editing and Visual Effects Sites</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-from-amateurs-to-aviators-9-top-rated-drone-editors-reviewed/"><u>2024 Approved  From Amateurs to Aviators  9 Top-Rated Drone Editors Reviewed</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-keep-your-digital-life-streamlined-blocking-youtube-channels-smartly/"><u>2024 Approved  Keep Your Digital Life Streamlined  Blocking Youtube Channels Smartly</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-micro-vids-unpacked-whats-the-score/"><u>2024 Approved  Micro Vids Unpacked  What's the Score?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-social-media-showdown-comparing-igtv-and-youtubes-unique-aspects/"><u>2024 Approved  Social Media Showdown  Comparing IGTV and YouTube's Unique Aspects</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-the-art-of-video-marketing-titles-and-tags-on-youtube/"><u>2024 Approved  The Art of Video Marketing  Titles & Tags on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-unveiling-profits-how-much-do-creators-earn-from-each-ad/"><u>2024 Approved  Unveiling Profits  How Much Do Creators Earn From Each Ad?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/prehensive-list-of-8-authentic-propagation-tools/"><u>A Comprehensive List of 8 Authentic Propagation Tools</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/chuckle-cheat-sheet-perfectly-timed-memes/"><u>Chuckle Cheat Sheet  Perfectly Timed Memes</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/crafting-wellness-chatgpt-driven-meal-plans/"><u>Crafting Wellness: ChatGPT-Driven Meal Plans</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/t-the-degrees-cutting-edge-youtube-video-manipulation-for-2024/"><u>Direct the Degrees  Cutting-Edge YouTube Video Manipulation for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-logitech-g35-sound-card-software-for-windows-os-vista-7-8-10/"><u>Download Logitech G35 Sound Card Software for Windows OS (Vista, 7, 8, 10)</u></a></li>
+<li><a href="https://win-dash.techidaily.com/effortless-configuration-setting-up-your-intel-dual-band-ac-3160-wifi-driver-today/"><u>Effortless Configuration: Setting Up Your Intel Dual Band AC 3160 WiFi Driver Today</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ce-audio-quality-get-high-quality-fx-in-2024/"><u>Enhance Audio Quality, Get High-Quality FX, In 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/essential-strategies-to-recover-or-restore-missing-wpcpatdll-components/"><u>Essential Strategies to Recover or Restore Missing WPCPAT.DLL Components</u></a></li>
+<li><a href="https://techidaily.com/explore-innovative-solutions-with-abbyy-at-their-may-2024-intelligence-automation-summit/"><u>Explore Innovative Solutions with ABBYY at Their May 2024 Intelligence Automation Summit</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/aking-simplified-create-an-inviting-youtube-subscription-button-in-filmora-for-2024/"><u>Filmmaking Simplified  Create an Inviting YouTube Subscription Button in Filmora for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-excel-2000-files-online-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How to sign Excel 2000 files online</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-8-plus-to-other-iphone-14-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 8 Plus To Other iPhone 14 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-13-mini-to-other-iphone-14-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 13 mini To Other iPhone 14 devices? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-15-pro-to-other-iphone-11-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 15 Pro to other iPhone 11 devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-framecraft-videocutter/"><u>In 2024, FrameCraft VideoCutter</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-realme-c51-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Realme C51 | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-video-edits-made-simple-with-windows-10s-story-remix/"><u>In 2024, Innovative Video Edits Made Simple with Windows 10'S Story Remix</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-multiple-ways-how-to-remove-icloud-activation-lock-from-your-apple-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, New Multiple Ways How To Remove iCloud Activation Lock From your Apple iPhone 11 Pro Max</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-quick-hands-turning-photos-into-compelling-youtube-thumbnails/"><u>In 2024, Quick Hands  Turning Photos Into Compelling YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-visualize-success-free-templates-to-elevate-your-youtube-presence/"><u>In 2024, Visualize Success  Free Templates to Elevate Your YouTube Presence</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/joint-monitor-capture-procedure-for-2024/"><u>Joint Monitor Capture Procedure for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rminds-of-immersive-marvellous-marvel-spheres-for-2024/"><u>Masterminds of Immersive Marvellous Marvel Spheres for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/streamlining-your-subtitle-workflow-with-leading-online-tools-for-2024/"><u>Streamlining Your Subtitle Workflow with Leading Online Tools for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/pps-for-downloading-youtube-content/"><u>Top Apps for Downloading YouTube Content</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-quicktime-video-editing-on-mac-tips-tricks-and-techniques/"><u>Updated In 2024, QuickTime Video Editing on Mac Tips, Tricks, and Techniques</u></a></li>
+</ul></div>
