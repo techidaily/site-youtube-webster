@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Next-Gen Streaming  Enable AV1 Codec on YouTube\""
-date: 2024-07-11T18:42:46.207Z
-updated: 2024-07-12T18:42:46.207Z
+date: 2024-09-10T18:29:26.093Z
+updated: 2024-09-15T16:34:12.122Z
 tags:
   - ai video
   - ai youtube
@@ -56,6 +56,13 @@ As mentioned before, AV1 is royalty-free. AV1 is such a next-generation of royal
 
 When it comes to the group that will ask for the royalty, MPEG is not the only one. There are also other patent groups and companies that can ask for it. Aomedia integrated Google, Mozilla, and Cisco, while they were busy creating their new video codec. However, the three companies joined together to create one codec to beat them all.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Better performance
 
 It is said that the AV1 codec is 30% more efficient. According to the tests conducted by Moscow State University, AV1 can outperform AV1 by about 28% in the efficiency of encoding and decoding. As per the performance graph from the Graphics & Media Lab Video Group, MSU below, AV1 can offer the exactly same quality as X264 at 55% of the average bitrate.
@@ -69,6 +76,13 @@ AV1 is designed so exclusively to function better than all the other codecs in t
 AV1 is undoubtedly superior if we compare it to other available video codecs and the exploration of the codec technology AV2 has already begun. This is such an early performance evaluation. There is some interesting part of the exploration development of AV2, such as multiple line selection for Intra prediction can make you select not just neighboring row/column for directional prediction. The same tool also exists in VVC.
 
 There are also three essential improvements, which are simplifying the existing feature (also complete removal) and picking the tool used by VVC/H.266 (It is lack originality but so much work on it) and improvement periodically improvement of an existing tool, it is too few and also not original. We haven't known yet when AV2 will be done completely though, maybe there still be some more essential improvements.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: What's the best video editor for YouTubers with AV1 format?
 
@@ -90,6 +104,13 @@ For today, YouTube encodes all the videos with the VP9 codec, but for some reaso
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: FAQ: Does YouTube use AV1 or VP9?
 
 For today, YouTube encodes all the videos with the VP9 codec, but for some reason displays for low view count videos. AV1 usage also had been pushed to very low view counts. When it comes to cost or quality tradeoffs, AV1 took about 18 times longer to encode than x264.
@@ -106,8 +127,6 @@ For today, YouTube encodes all the videos with the VP9 codec, but for some reaso
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -115,6 +134,21 @@ For today, YouTube encodes all the videos with the VP9 codec, but for some reaso
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-learn-how-to-create-engaging-animation-from-any-video/"><u>[New] Learn How To Create Engaging Animation From Any Video</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-accelerating-engagement-with-optimized-youtube-video-speeds/"><u>[Updated] In 2024, Accelerating Engagement with Optimized YouTube Video Speeds</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-critically-acclaimed-video-cards-for-clear-youtube-broadcasts/"><u>[Updated] In 2024, Critically Acclaimed Video Cards for Clear YouTube Broadcasts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-enhance-interaction-share-your-custom-youtube-playlist/"><u>2024 Approved Enhance Interaction Share Your Custom YouTube Playlist</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-the-ultimate-method-to-locate-fb-watched-content/"><u>2024 Approved The Ultimate Method to Locate FB Watched Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-visual-anonymity-in-sharing-blurring-methods-explained/"><u>2024 Approved Visual Anonymity in Sharing Blurring Methods Explained</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/best-no-cost-software-for-converting-dvds-into-mp3-files-windows-and-macos-supported/"><u>Best No-Cost Software for Converting DVDs Into MP3 Files - Windows & macOS Supported</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/can-you-unlock-iphone-14-pro-max-after-forgetting-the-passcode-by-drfone-ios/"><u>Can You Unlock iPhone 14 Pro Max After Forgetting the Passcode?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/motion-vs-youtube-who-earns-more-from-video-content-for-2024/"><u>Dailymotion vs YouTube Who Earns More From Video Content for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/effective-fix-for-remnant-from-the-ashes-endless-crash-cycle/"><u>Effective Fix for Remnant: From the Ashes’ Endless Crash Cycle</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-oppo-k11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Oppo K11 5G | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-realme-11-pro-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Realme 11 Pro Phone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-top-10-security-focused-video-chat-apps-on-mobile-devices/"><u>In 2024, Top 10 Security-Focused Video Chat Apps on Mobile Devices</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-top-earners-in-youtube-enterprises/"><u>In 2024, Top Earners in YouTube Enterprises</u></a></li>
+</ul></div>
 

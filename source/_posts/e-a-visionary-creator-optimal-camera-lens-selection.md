@@ -1,7 +1,7 @@
 ---
 title: "\"Become a Visionary Creator  Optimal Camera Lens Selection\""
-date: 2024-07-11T18:45:22.786Z
-updated: 2024-07-12T18:45:22.786Z
+date: 2024-09-14T17:19:16.922Z
+updated: 2024-09-15T16:26:44.419Z
 tags:
   - ai video
   - ai youtube
@@ -101,6 +101,13 @@ Canon released this lens in 2014 and shortly after it has gained the reputation 
 
 ![camera lens](https://images.wondershare.com/filmora/article-images/camera-lens-rec01.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The EF 50mm is a fixed lens with an f-stop of 1.8, which means it is great for blurring your background and performs well even in poorer lighting conditions. This is a really great lens for an opinion or beauty vlog, where you do not need to move around. You can stay put right where the focus is sharpest and stand out by blurring everything behind you. If you tend to reuse the same sets then you do not really need a zoom feature. If your shooting conditions rarely change then it is just as easy to use a reliable fixed lens like the EF 50mm since you will not need to be rethinking your set up and adjusting.
 
 If you are looking for an inexpensive prime lens that lets you create sharp videos with shallow depth of field, you should look no further. This model is one of three Canon's 50mm prime lenses, although the [50mm f/1.4 USM](https://www.amazon.com/Canon-Standard-Medium-Telephoto-Cameras/dp/B00009XVCZ/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-3&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=11bff1019e73f0462c30a04e98d4874f&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTe) and [50mm f/1.2 'L' USM](https://www.amazon.com/Canon-50mm-Lens-Digital-Cameras/dp/B000I1YIDQ/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-4&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=d77bb813550f12e8aa72c8738dfaad81&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTeAiw&slot) models are much more expensive. You can use it to record a lot of different types of YouTube videos, like product reviews or makeup tutorials. The 50 mm f/1.8 STM lens doesn't have image stabilization technology so you should try to be as still as you can possibly be when shooting handheld videos in order to avoid recording footage that has a lot of camera shakes.
@@ -112,6 +119,13 @@ Recording **moving objects** from a distance requires you to have a lens that al
 #### 5. Tamron SP AF 17-50mm f/2.8 XR Di II LD Aspherical (IF) Lens
 
 ![camera lens rec02](https://images.wondershare.com/filmora/article-images/camera-lens-rec02.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The Tamron's standard zoom lens offers good value at a very reasonable price. The maximum aperture is f/2.8, while the minimum aperture value this lens supports is f/32, which means that its users can easily experiment with different **depths of field.** The lens is **compatible with most Canon cameras** so if you have a camera from another manufacturer you may have to use the lens adapter in order to mount it onto your camera. Like most standard zoom lenses, Tamron SP AF model is **highly versatile** and you can use it to record **a wide range of different scenes**.
 
@@ -131,14 +145,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -147,6 +158,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-avoid-facebooks-targeted-video-promotions/"><u>[New] Avoid Facebook's Targeted Video Promotions</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-best-budget-friendly-ticking-clocks-online/"><u>[Updated] 2024 Approved Best Budget-Friendly Ticking Clocks Online</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-essential-selection-the-greatest-free-editing-software/"><u>[Updated] 2024 Approved Essential Selection The Greatest Free Editing Software</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-androids-best-youtube-video-downloaders-reviewed/"><u>[Updated] Android's Best YouTube Video Downloaders Reviewed</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-masterclass-guide-top-free-apps-for-iphone-and-ipad-edits/"><u>2024 Approved Masterclass Guide Top Free Apps for iPhone & iPad Edits</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-mastering-the-lens-focus-techniques-for-storify-success/"><u>2024 Approved Mastering the Lens Focus Techniques for Storify Success</u></a></li>
+<li><a href="https://change-location.techidaily.com/all-you-need-to-know-about-mega-greninja-for-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Vivo Y100 5G | Dr.fone</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/avoiding-pitfalls-in-intel-gfx-update-for-win7-users/"><u>Avoiding Pitfalls in Intel Gfx Update for Win7 Users</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ating-youtubes-economy-a-guide-to-video-revenue-generation/"><u>Navigating YouTube's Economy A Guide to Video Revenue Generation</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/peak-performance-pcs-top-rated-screen-capture-tools-reviewed/"><u>Peak Performance PCs Top-Rated Screen Capture Tools Reviewed</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/release-channeling-playlist-hits-online/"><u>Rush Release Channeling Playlist Hits Online</u></a></li>
+</ul></div>
 

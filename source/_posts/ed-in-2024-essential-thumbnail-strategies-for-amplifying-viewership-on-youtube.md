@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Essential Thumbnail Strategies for Amplifying Viewership on YouTube"
-date: 2024-07-11T18:44:10.787Z
-updated: 2024-07-12T18:44:10.787Z
+date: 2024-09-09T17:43:17.607Z
+updated: 2024-09-15T17:54:05.132Z
 tags:
   - ai video
   - ai youtube
@@ -62,11 +62,25 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 
 Make sure the images you choose are relevant to the topic of your video.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Make Your Text Huge
 
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
 
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
 
@@ -86,14 +100,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -102,6 +113,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-for-the-curious-young-and-novice-pilot-the-10-best-drones/"><u>[New] For the Curious Young and Novice Pilot - The 10 Best Drones</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-the-ultimate-guide-to-gamers-screen-recordings-with-win10/"><u>[New] The Ultimate Guide to Gamers' Screen Recordings with Win10</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/outube-income-guide-whats-new/"><u>[New] YouTube Income Guide - What's New?</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-introduction-to-plot-and-character-dynamics-for-2024/"><u>[Updated] Introduction to Plot and Character Dynamics for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-create-memorable-videos-with-the-right-thumbnail-font/"><u>2024 Approved Create Memorable Videos with the Right Thumbnail Font</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-harmonize-your-youtube-presence-with-these-ideal-microphones-for-various-channels/"><u>2024 Approved Harmonize Your YouTube Presence With These Ideal Microphones for Various Channels</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-evolved-2023-samsung-bd-j5900-a-deep-dive/"><u>2024 Approved The Evolved 2023 Samsung BD-J5900 A Deep Dive</u></a></li>
+<li><a href="https://os-tips.techidaily.com/android-users-essential-toolkit-seamlessly-syncing-your-apps-with-proven-backup-and-restore-techniques/"><u>Android Users' Essential Toolkit: Seamlessly Syncing Your Apps with Proven Backup and Restore Techniques</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/easy-steps-for-sending-files-directly-to-your-computer/"><u>Easy Steps for Sending Files Directly to Your Computer</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Oppo A56s 5G | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-can-i-unlock-my-iphone-15-pro-after-forgetting-my-pin-code-by-drfone-ios/"><u>How Can I Unlock My iPhone 15 Pro After Forgetting my PIN Code?</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722978815252-how-to-effortlessly-obtain-and-implement-your-usb-camera-drivers-now/"><u>How to Effortlessly Obtain & Implement Your USB Camera Drivers Now</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/by-step-guide-to-unmicrophonic-audio-recording-for-2024/"><u>Step-by-Step Guide to Unmicrophonic Audio Recording for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nail-insight-top-picks-for-maximizing-video-visibility/"><u>Thumbnail Insight Top Picks for Maximizing Video Visibility</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Time Management for Those Balancing Careers and YouTubing"
-date: 2024-07-11T18:47:51.365Z
-updated: 2024-07-12T18:47:51.365Z
+date: 2024-09-14T17:22:20.057Z
+updated: 2024-09-15T16:12:46.892Z
 tags:
   - ai video
   - ai youtube
@@ -52,9 +52,29 @@ A notebook planner is essential for keeping my life organized and on track. When
 
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
 
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4. Create 3-5 videos in advance
 
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5. Be creative! Create audios (audio-only videos)
 
@@ -76,14 +96,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -92,6 +109,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/ndroid-and-ios-leaders-in-asmr-content/"><u>[New] Android & iOS Leaders in ASMR Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/xciting-vlog-subjects-daily-selection/"><u>[New] Exciting Vlog Subjects Daily Selection</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-expected-daily-video-consumption-gb-calculation/"><u>[New] Expected Daily Video Consumption GB Calculation</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/1723001470944-solved-kernelbasedll-crash-issue-quickly-and-easily/"><u>[SOLVED] | “KernelBase.dll” Crash Issue | Quickly & Easily!</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-exclusive-list-of-leading-free-video-editing-programs/"><u>[Updated] Exclusive List of Leading Free Video Editing Programs</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-crafting-captivating-thumbnails-a-digital-marketers-guidebook/"><u>[Updated] In 2024, Crafting Captivating Thumbnails A Digital Marketer's Guidebook</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-initiate-ideate-implement-step-by-step-guide-to-building-a-youtube-channel/"><u>[Updated] Initiate, Ideate, Implement Step-by-Step Guide to Building a YouTube Channel</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-the-functionality-of-youtubes-media-hub-for-2024/"><u>Decoding the Functionality of YouTube's Media Hub for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-tecno-pop-8-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Tecno Pop 8 to PC? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-navigate-effortlessly-enablingdisabling-picture-in-picture-in-youtube/"><u>In 2024, Navigate Effortlessly Enabling/Disabling Picture In Picture in Youtube</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/simple-steps-for-legally-removing-dvd-drm/"><u>Simple Steps for Legally Removing DVD DRM</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/windows-11-image-adjustment-the-six-essential-techniques/"><u>Windows 11 Image Adjustment: The Six Essential Techniques</u></a></li>
+</ul></div>
 

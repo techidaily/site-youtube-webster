@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Premium Microphones for Videographers\""
-date: 2024-07-11T18:43:55.941Z
-updated: 2024-07-12T18:43:55.941Z
+date: 2024-09-09T17:26:31.503Z
+updated: 2024-09-15T17:19:53.375Z
 tags:
   - ai video
   - ai youtube
@@ -107,9 +107,23 @@ If you are a serious musician on YouTube, then you will need a serious microphon
 
 ![Best Microphone for Music (Vocals): Audio-Technica AT2035](https://images.wondershare.com/filmora/article-images/audio-technica-AT2035.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Nevertheless, this microphone does a fantastic job isolating the source of sound and eliminating background noise. Even if you’re recording in your bedroom, and not a professional studio, you’ll still get high quality vocals from this microphone.
 
 **Tip** : Position yourself 8-12 inches away from the mic when singing. This allows your voice to sound more natural (too close and it’ll sound bassy) and it prevents the audio volume from fluctuating too dramatically as you move around or sing loudly one part and quietly at another.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4. Best Microphone for Voice Over
 
@@ -173,6 +187,19 @@ The Rycote Lyre shock mount eliminates any external audio that can be caused by 
 
 ![Best Waterproof Microphone: Sennheiser MKE 2 elements - Action Mic for the GoPro HERO4](https://images.wondershare.com/filmora/article-images/best-waterproof-microphone.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 In or around water, nothing can ruin a day of shooting faster than getting your equipment wet. If you’re using GoPro Hero4 for shooting all your intense water shots, you would be familiar with the awful audio you capture when the camera is inside the waterproof casing.
 
 Lucky for you, Sennheiser has developed a waterproof microphone, the MKE 2 elements. This little furry ball that connects to your GoPro Hero4 can withstand up to 1 meter of water. Because underwater sound is captured differently (via a [hydrophone](https://www.azosensors.com/article.aspx?ArticleID=13) ), the Sennheiser MKE 2 elements can’t actually record audio underwater, however, it’ll be ready to keep recording quality audio once it resurfaces.
@@ -200,6 +227,19 @@ After picking up the best microphone based on your need, you can record your aud
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How to Sync your Audio in Filmora
 
 Both the LAV Mics and the R-05 will create separate audio clips which you will need to sync up with your video when you are finished recording.
@@ -213,6 +253,13 @@ Once you have finished recording and have opened up [Filmora Video Editor](https
 Now import the audio from your external microphone and drag and drop it to your audio track. The audio track is initially hidden, but it will appear when you pull an audio file into the timeline.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 2.Detach Default Audio from Video
 
@@ -238,14 +285,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -254,6 +298,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/ow-to-innovate-transforming-raw-footage-into-youtube-thumbnails-via-smartphones/"><u>[New] How to Innovate Transforming Raw Footage Into YouTube Thumbnails via Smartphones</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rganizing-chaos-a-guide-to-youtube-list-shuffling/"><u>[New] Organizing Chaos A Guide to YouTube List Shuffling</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/erfecting-your-youtube-presence-a-video-upload-manual/"><u>[New] Perfecting Your YouTube Presence A Video Upload Manual</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ising-viewers-rising-prosperity-the-youtube-route/"><u>[New] Rising Viewers, Rising Prosperity The Youtube Route</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-expert-tips-for-documenting-computer-speakers-and-mics-for-2024/"><u>[Updated] Expert Tips for Documenting Computer Speakers & Mics for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-intuitive-audio-fading-strategies-with-garageband/"><u>[Updated] Intuitive Audio Fading Strategies with Garageband</u></a></li>
+<li><a href="https://techidaily.com/best-fixes-for-samsung-galaxy-a23-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Samsung Galaxy A23 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/dealing-with-unexpected-outages-how-to-fix-your-erratic-internet-connection/"><u>Dealing With Unexpected Outages: How to Fix Your Erratic Internet Connection</u></a></li>
+<li><a href="https://facebook.techidaily.com/discreet-data-harvesting-securely-downloading-personal-fb-vids/"><u>Discreet Data Harvesting: Securely Downloading Personal FB Vids</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nguishing-between-youtube-content-control-and-creative-commons-flexibility-for-2024/"><u>Distinguishing Between YouTube Content Control and Creative Commons Flexibility for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/open-source-banner-resources-a-gift-to-youtubers-for-2024/"><u>Open Source Banner Resources A Gift to YouTubers for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/resolved-fixing-asus-pce-ac56-driver-problems-in-windows-operating-systems-1187/"><u>Resolved: Fixing ASUS PCE-AC56 Driver Problems in Windows Operating Systems (11/8/7)</u></a></li>
+</ul></div>
 

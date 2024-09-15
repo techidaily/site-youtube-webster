@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering the Art of Self-Talk in Online Videos\""
-date: 2024-09-09T13:05:59.719Z
-updated: 2024-09-10T13:05:59.719Z
+date: 2024-09-10T18:32:23.935Z
+updated: 2024-09-15T18:16:55.270Z
 tags:
   - ai video
   - ai youtube
@@ -14,24 +14,12 @@ keywords: "\"Video Self-Compassion,Self Talk Techniques,Positive Affirmations,Mi
 thumbnail: https://thmb.techidaily.com/e28897e8d930e3677167fd762a9f129952956dbe6cf005a7a223376477485be0.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Mastering the Art of Self-Talk in Online Videos
 
 # 4 Ways To Set Up Your Talking-Head Shots For YouTube
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Oct 26, 2023• Proven solutions
@@ -43,12 +31,6 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 | Table of Contents [1\. Close Quarters Wide-Angle Vlog Set-Up](#Close-Quarters-Wide-Angle-Vlog-Set-Up)[2\. Medium Vlog Set-Up](#Medium-Vlog-Set-Up)[3\. Two Person Vlog Set-Up](#Two-Person-Vlog-Set-Up)[4\. Long Teleprompter Vlog Set-Up](#Long-Teleprompter-Vlog-Set-Up) |
 | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Set Up Your Talking Heads Shots for YouTube Video \[Infographic\]
 
 We’ve summarized the key points about setting up talking head style video shots with the Infographic below. It is welcomed to share on social media.
@@ -72,11 +54,12 @@ Objects and people that just make it into the sides of the frame will appear mor
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -122,33 +105,25 @@ To make a talking-head video more interesting, you can add some background music
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -159,54 +134,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-a-beginners-guide-to-profitable-animated-advertising-in-facebook/"><u>[New] 2024 Approved  A Beginner's Guide to Profitable Animated Advertising in Facebook</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-hourly-headliners-the-leading-yt-videos-in-the-last-24-hours/"><u>[New] 2024 Approved  Hourly Headliners  The Leading YT Videos in the Last 24 Hours</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-mastering-youtube-monetization-a-cpm-perspective/"><u>[New] 2024 Approved  Mastering YouTube Monetization  A CPM Perspective</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-the-art-of-creating-compelling-youtube-video-outlines/"><u>[New] 2024 Approved  The Art of Creating Compelling YouTube Video Outlines</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-what-is-the-youtube-highlighted-comment/"><u>[New] 2024 Approved  What Is the YouTube Highlighted Comment?</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/est-practices-for-boosting-views-on-freefire-gaming-channels-for-2024/"><u>[New] Best Practices for Boosting Views on FreeFire Gaming Channels for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-flash-vids-unpacked-whats-inside/"><u>[New] Flash Vids Unpacked  What's Inside?</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-best-sites-to-buy-monetized-youtube-channels-for-beginners/"><u>[New] In 2024, Best Sites to Buy Monetized YouTube Channels for Beginners</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-how-to-estimate-income-from-youtube-video-snippets/"><u>[New] In 2024, How to Estimate Income From YouTube Video Snippets</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-revitalizing-video-engagement-easy-steps-for-an-animated-subscribe-button-in-filmora/"><u>[New] In 2024, Revitalizing Video Engagement  Easy Steps for an Animated Subscribe Button in Filmora</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-share-your-videos-and-photos-posting-to-twitter-no-retweeting/"><u>[New] In 2024, Share Your Videos and Photos  Posting to Twitter - No Retweeting</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/astering-collaborative-video-creation-a-guide-to-youtube-partnering-for-2024/"><u>[New] Mastering Collaborative Video Creation  A Guide to YouTube Partnering for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/astering-video-privacy-directly-share-yt-clips-using-googleid/"><u>[New] Mastering Video Privacy  Directly Share YT Clips Using GoogleID</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-ranking-moba-titles-exclusively-for-android-phones/"><u>[New] Ranking MOBA Titles Exclusively for Android Phones</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/he-most-effective-7-apps-for-blocking-android-web-ads/"><u>[New] The Most Effective 7 Apps for Blocking Android Web Ads</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-accelerate-thumbnail-designs-for-professional-valorant-portraits/"><u>[Updated] 2024 Approved  Accelerate Thumbnail Designs for Professional Valorant Portraits</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-crafting-a-legacy-youtubers-playbook-for-success/"><u>[Updated] 2024 Approved  Crafting a Legacy  YouTuber’s Playbook for Success</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-vr-adventures-that-will-captivate-you/"><u>[Updated] 2024 Approved  VR Adventures That Will Captivate You</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-5-amazing-free-youtube-intro-makers-ranked/"><u>[Updated] 5 Amazing Free YouTube Intro Makers Ranked</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-craft-your-story-with-immersive-youtube-video-editing-tips-for-2024/"><u>[Updated] Craft Your Story with Immersive YouTube Video Editing Tips for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-essential-guide-to-hashtagging-for-game-focused-yt-channels-for-2024/"><u>[Updated] Essential Guide to Hashtagging for Game-Focused YT Channels for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-80plus-creative-cooking-channel-names-to-attract-more-audience/"><u>[Updated] In 2024, 80+ Creative Cooking Channel Names to Attract More Audience</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-download-free-sound-effects-for-youtubers/"><u>[Updated] In 2024, Download Free Sound Effects for YouTubers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-economical-audience-expansion-buy-subscribers-not-time/"><u>[Updated] In 2024, Economical Audience Expansion  Buy Subscribers, Not Time</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-high-revenue-streaming-star-across-the-globe/"><u>[Updated] In 2024, High Revenue Streaming Star Across the Globe</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-rhythmic-revelations-top-15-vlogs-celebrating-music-creators-stories/"><u>[Updated] In 2024, Rhythmic Revelations  Top 15 Vlogs Celebrating Music Creators' Stories</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-inquiry-into-youtubes-monetary-frequency/"><u>[Updated] Inquiry Into YouTube's Monetary Frequency</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-ultimate-checklist-for-top-tier-instagram-reels/"><u>[Updated] The Ultimate Checklist for Top-Tier Instagram Reels</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-valorant-thumbnail-geniuses-quick-skilled-and-professionally-done/"><u>[Updated] Valorant Thumbnail Geniuses  Quick, Skilled, and Professionally Done</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-can-a-brief-subscribe-boost-your-content-viewing/"><u>2024 Approved  Can a Brief Subscribe Boost Your Content Viewing?</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-edit-like-a-pro-with-any-of-these-top-7-free-options/"><u>2024 Approved  Edit Like a Pro with Any of These Top 7 Free Options</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-the-analytical-approach-to-youtube-content-performance/"><u>2024 Approved  The Analytical Approach to YouTube Content Performance</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/fy-engagement-utilizing-youtube-analytics-wisely/"><u>Amplify Engagement  Utilizing YouTube Analytics Wisely</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/te-your-youtube-presentations-with-imovie-editing-skills-for-2024/"><u>Elevate Your YouTube Presentations with iMovie Editing Skills for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-gaming-setup-essentials-revealed-for-2024/"><u>Elite Gaming Setup Essentials Revealed for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ing-authenticity-of-your-youtube-account/"><u>Ensuring Authenticity of Your YouTube Account</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-13-to-other-iphone-13-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 13 to other iPhone 13 Pro devices? | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-a-comprehensive-walkthrough-creating-channel-banners/"><u>In 2024, A Comprehensive Walkthrough  Creating Channel Banners</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-brilliant-hues-ranking-11-expert-color-correction-tutorials/"><u>In 2024, Brilliant Hues  Ranking 11 Expert Color Correction Tutorials</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-crafting-compelling-combinations-a-guide-to-creating-your-own-youtube-playlists/"><u>In 2024, Crafting Compelling Combinations  A Guide to Creating Your Own YouTube Playlists</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-enhancing-youtube-videos-for-superior-quality/"><u>In 2024, Enhancing YouTube Videos for Superior Quality</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-harmonize-your-hours-synchronized-video-playback-across-platforms/"><u>In 2024, Harmonize Your Hours  Synchronized Video Playback Across Platforms</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/monday-a-dimanche-en-france/"><u>Monday À Dimanche en France</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/new-2024-approved-revealing-translation-methods-netflix-subtitle-software-comprehensive-guide/"><u>New 2024 Approved Revealing Translation Methods Netflix Subtitle Software Comprehensive Guide</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-the-storage-savior-a-comprehensive-guide-to-freeing-up-space-for-fcpx-for-2024/"><u>New The Storage Savior A Comprehensive Guide to Freeing Up Space for FCPX for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/next-gen-film-viewers-guide-youtubes-top-choices/"><u>Next-Gen Film Viewers' Guide  YouTube's Top Choices</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-vlog-talk-points-everyday-for-2024/"><u>Novel Vlog Talk Points Everyday for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-sites-intertwine-fb-insta-unity-emerges/"><u>Social Sites Intertwine: FB, Insta Unity Emerges</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-apps-and-online-tools-to-track-samsung-galaxy-a05-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Samsung Galaxy A05 Phone With/Without IMEI Number</u></a></li>
-<li><a href="https://apple-account.techidaily.com/unlock-apple-id-without-phone-number-from-apple-iphone-14-pro-max-by-drfone-ios/"><u>Unlock Apple ID without Phone Number From Apple iPhone 14 Pro Max</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-the-ultimate-guide-to-the-10-best-windows-cameras/"><u>[New] In 2024, The Ultimate Guide to the 10 Best Windows Cameras</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-custom-soundtracks-simplified-converting-from-spotify-playlists-to-youtube-music/"><u>[Updated] 2024 Approved Custom Soundtracks Simplified Converting From Spotify Playlists to YouTube Music</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-historical-insights-the-most-relevant-youtube-channels-for-learners/"><u>[Updated] In 2024, Historical Insights - The Most Relevant YouTube Channels for Learners</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-mastering-online-channel-name-creation-tips-and-tricks/"><u>[Updated] Mastering Online Channel Name Creation Tips & Tricks</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-monetary-spectrum-a-glimpse-into-mr-beasts-world-for-2024/"><u>[Updated] Monetary Spectrum A Glimpse Into Mr. Beast’s World for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-navigating-top-purchasers-for-monetized-yt-channels/"><u>[Updated] Navigating Top Purchasers for Monetized YT Channels</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/discover-the-best-pinterest-automation-software-a-selection-of-5-exceptional-options/"><u>Discover the Best Pinterest Automation Software: A Selection of 5 Exceptional Options</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/gpt-as-a-literary-polishing-agent/"><u>GPT as a Literary Polishing Agent?</u></a></li>
+<li><a href="https://techidaily.com/how-to-hard-reset-honor-v-purse-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Honor V Purse Without Password | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-integrating-jobs-and-passion-projects-effectively/"><u>In 2024, Integrating Jobs & Passion Projects Effectively</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-from-still-to-motion-10-top-image-to-video-maker-tools/"><u>New From Still to Motion 10 Top Image to Video Maker Tools</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/mlining-multiple-youtube-videos-into-one-for-2024/"><u>Streamlining Multiple YouTube Videos Into One for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-differences-between-microsofts-chatgpt-plus-and-the-revolutionary-claude-pro-ai/"><u>The Differences Between Microsoft's ChatGPT Plus and the Revolutionary Claude Pro AI</u></a></li>
 </ul></div>
+

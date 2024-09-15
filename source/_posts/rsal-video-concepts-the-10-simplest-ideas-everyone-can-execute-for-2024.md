@@ -1,7 +1,7 @@
 ---
 title: "\"Universal Video Concepts  The 10 Simplest Ideas Everyone Can Execute for 2024\""
-date: 2024-07-11T18:43:08.983Z
-updated: 2024-07-12T18:43:08.983Z
+date: 2024-09-10T16:15:33.572Z
+updated: 2024-09-15T17:17:39.071Z
 tags:
   - ai video
   - ai youtube
@@ -73,11 +73,25 @@ Are you a Tarantino fan? Why not? When you are struggling to find inspiration fo
 
 You can do a ‘my 5 favorite songs’ type of video, or talk in detail about just one favorite.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2128843/7443" target="_top" id="2128843">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128843" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128843/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 6\. What’s on Your Phone?
 
 There were over two billion smartphone users worldwide in 2017, and this number is only going to continue rising in the next couple of years. Furthermore, thousands of YouTubers are already producing unimaginable amounts of videos about the latest apps or smartphone devices.
 
 Finding a way to talk about the apps you like to use the most can be a good idea if you want to attract more visitors to your YouTube channel. However, you need to be clear about whether this is a lifestyle or vlog-style video covering a topic that usually exists in the tech genre, or if you are a tech YouTuber, so as not to confuse your audience (you don’t want people to start expecting app reviews if that’s not what you usually do).
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 7\. Make a Slideshow
 
@@ -105,9 +119,23 @@ Don't try to fake a rant, because they only work if they are natural. Scripting 
 
 Do you have any [easy video ideas for other creators](https://tools.techidaily.com/wondershare/filmora/download/) to try?
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Start Editing Videos with Beginner-friendly Software
 
 If you start your YouTube channel but have no video editing experience, Wondershare Filmora will definitely help you get over the problems. Download Filmora now ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -117,14 +145,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -133,6 +158,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-building-blocks-for-a-thriving-design-career/"><u>[New] Building Blocks for a Thriving Design Career</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-expanding-your-audience-stream-successfully-across-30plus-outlets/"><u>[Updated] 2024 Approved Expanding Your Audience Stream Successfully Across 30+ Outlets</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-tune-into-success-constructing-your-youtube-playlist/"><u>[Updated] 2024 Approved Tune Into Success Constructing Your YouTube Playlist</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-glam-rific-guide-to-hauls-and-hair-care/"><u>[Updated] In 2024, Glam-Rific Guide to Hauls and Hair Care</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-technical-aspects-that-elevate-youtube-video-ranks-for-2024/"><u>[Updated] Technical Aspects That Elevate YouTube Video Ranks for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-12-exceptional-game-starting-tutorials-from-youtube-pros-freepremium/"><u>2024 Approved 12 Exceptional Game-Starting Tutorials From YouTube Pros (Free/Premium)</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-you-play-mov-files-on-samsung-by-aiseesoft-video-converter-play-mov-on-android/"><u>How do you play .mov files on Samsung ?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-nokia-105-classic-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Nokia 105 Classic Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-vivo-y100t-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Vivo Y100t? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-behind-closed-doors-of-youtube-a-discovery-manual/"><u>In 2024, Behind Closed Doors of YouTube A Discovery Manual</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-11-apples-new-iphone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 11, Apples New iPhone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-keywords-that-catapult-hashtag-hacks-in-gameplay-videos/"><u>In 2024, Keywords that Catapult Hashtag Hacks in Gameplay Videos</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/iphone-12-asking-for-passcode-after-ios-1714-update-what-to-do-by-drfone-ios/"><u>iPhone 12 Asking for Passcode after iOS 17/14 Update, What to Do?</u></a></li>
+</ul></div>
 

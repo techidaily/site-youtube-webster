@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  From Clicks to Cash  The Journey of YouTube's Ajay Nagar\""
-date: 2024-07-11T18:42:02.700Z
-updated: 2024-07-12T18:42:02.700Z
+date: 2024-09-10T17:50:45.466Z
+updated: 2024-09-15T18:55:41.233Z
 tags:
   - ai video
   - ai youtube
@@ -148,6 +148,13 @@ Step4 If further customization is needed, you can even adjust the AI Portrait se
 
 ![wondershare filmora ai portrait 4](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-07.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5 When finally, all the settings are done, click on the Export button to save the file.
 
 ![wondershare filmora ai portrait 5](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-08.jpg)
@@ -169,6 +176,13 @@ Calculating the income from a YouTube video can be a complicated task that depen
 Carry Minati has interviewed popular actors like Tom Cruise, Tessa Thompson, Henry Cavil, and others celebrities.
 
 ![carryminati with tom cruise](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-09.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -231,6 +245,13 @@ The End (The video was uploaded on 8th May 2020 and had over 65 million views wi
 
 ![youtube vs tiktok the end](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-02.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Film the Flare](https://www.youtube.com/watch?v=GOFQN8otiYs)
 
 <https://youtu.be/GOFQN8otiYs>
@@ -275,6 +296,13 @@ Step2 Next, go to Effects > Ai Portrait, and the options of the features can be 
 
 ![wondershare filmora ai portrait 2](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-05.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Drag the selected Portrait to the timeline and from the pop-up window choose to Purchase the additional module. You can check the result by playing the video. If needed multiple AI Portraits can be added to the video.
 
 ![wondershare filmora ai portrait 3](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-06.jpg)
@@ -305,6 +333,13 @@ Carry Minati has interviewed popular actors like Tom Cruise, Tessa Thompson, Hen
 
 ![carryminati with tom cruise](https://images.wondershare.com/filmora/article-images/2022/11/youtube-monetization-carryminati-youtube-income-2022-09.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Final Words
 
 Gone are the days when only high posts at big-shot companies can bring in money and proving this right is CarryMinati who is not only earning big but has also earned worldwide fans and has created a name for himself. With his comic skits and engaging videos, this popular YouTube influencer is growing and stretching his wings.
@@ -327,8 +362,6 @@ If you too have got inspired and looking forward to starting with some interesti
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -336,6 +369,23 @@ If you too have got inspired and looking forward to starting with some interesti
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/elightful-digests-a-list-of-top-food-channels/"><u>[New] Delightful Digests A List of Top Food Channels</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-streamlined-methods-for-iphone-screen-recordings-for-2024/"><u>[New] Streamlined Methods for iPhone Screen Recordings for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-the-blueprint-for-crafting-an-individual-tiktok-marker-for-2024/"><u>[New] The Blueprint for Crafting an Individual TikTok Marker for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-essential-selection-the-greatest-free-editing-software/"><u>[Updated] 2024 Approved Essential Selection The Greatest Free Editing Software</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-androids-best-youtube-video-downloaders-reviewed/"><u>[Updated] Android's Best YouTube Video Downloaders Reviewed</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-twitter-video-dimensions-aspect-ratio-standards/"><u>[Updated] In 2024, Twitter Video Dimensions Aspect Ratio Standards</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-gifts-that-speak-volumes-a-compendium-of-custom-box-shops-online/"><u>2024 Approved Gifts That Speak Volumes A Compendium of Custom Box Shops Online</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-masterclass-guide-top-free-apps-for-iphone-and-ipad-edits/"><u>2024 Approved Masterclass Guide Top Free Apps for iPhone & iPad Edits</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-pro-tips-for-effortless-photos-and-videos-in-windows-11/"><u>2024 Approved Pro Tips for Effortless Photos & Videos in Windows 11</u></a></li>
+<li><a href="https://fox-that.techidaily.com/easy-tips-to-fix-iphones-location-service-failures-and-restart-accurate-positioning/"><u>Easy Tips to Fix iPhone's Location Service Failures and Restart Accurate Positioning</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/effective-techniques-to-recover-from-a-libcurldll-not-detected-problem/"><u>Effective Techniques to Recover From a 'libcurl.dll Not Detected' Problem</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-professional-video-editing-simplified-with-mac-mp4-cutters/"><u>In 2024, Professional Video Editing Simplified with Mac MP4 Cutters</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-step-by-step-to-maximizing-adobe-storages-and-exploring-more/"><u>In 2024, Step-by-Step to Maximizing Adobe Storages and Exploring More</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ating-youtubes-economy-a-guide-to-video-revenue-generation/"><u>Navigating YouTube's Economy A Guide to Video Revenue Generation</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/release-channeling-playlist-hits-online/"><u>Rush Release Channeling Playlist Hits Online</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-most-advanced-virtual-reality-engines-of-2023/"><u>The Most Advanced Virtual Reality Engines of 2023</u></a></li>
+</ul></div>
 

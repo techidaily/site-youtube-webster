@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Make Thumbnails for YouTube With Mobile Phones"
-date: 2024-07-11T18:48:17.728Z
-updated: 2024-07-12T18:48:17.728Z
+date: 2024-09-09T19:01:52.600Z
+updated: 2024-09-15T18:54:23.689Z
 tags:
   - ai video
   - ai youtube
@@ -142,6 +142,13 @@ Step5 Tap Save in the top right corner to upload the thumbnail to your video.
 
 That's it! Your new thumbnail will now be displayed on your YouTube video, helping it stand out and attract more views. You can repeat this process for other videos if you want to add a custom thumbnail.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## It May Interest You – Make YouTube Thumbnails on Windows/Mac
 
 While it's convenient to create YouTube thumbnails on your mobile device, there may be times when you need to create a thumbnail on your Windows or Mac computer.
@@ -246,6 +253,13 @@ Step6 Save the image to your gallery by exporting it.
 
 ![pixellab export image](https://images.wondershare.com/filmora/article-images/pixellab-export-image.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Pros
 
 * More customization options
@@ -276,6 +290,13 @@ Step2 Tap on the **My Videos** tab to view a list of your uploaded videos.
 Step3 Tap on the video and tap the "**Edit**" button in the top right corner of the screen.
 
 ![youtube edit video](https://images.wondershare.com/filmora/article-images/youtube-edit-video.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4 Tap the **Custom thumbnail** button and **upload** the image you want to use from your photo library.
 
@@ -311,6 +332,19 @@ Step2 Scale up and reposition the photo.
 
 ![filmora import image](https://images.wondershare.com/filmora/article-images/filmora-import-image.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Add a new background to the track below the picture. **Use** the other editing tools in Filmora to customize the image as desired, such as adding text, graphics, and special effects.
 
 ![filmora editing options](https://images.wondershare.com/filmora/article-images/filmora-editing-options.JPG)
@@ -328,6 +362,13 @@ For more detailed instructions and a visual guide, you can watch the following v
 Add a video
 
 This video will show you how to use Filmora to create a custom thumbnail for your YouTube video, step by step.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## People Also Ask
 
@@ -369,8 +410,6 @@ Whether you create your thumbnails on your mobile device or your computer, use a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -378,6 +417,23 @@ Whether you create your thumbnails on your mobile device or your computer, use a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-youtube-mastery-elevate-your-content-with-smart-tag-techniques/"><u>[New] In 2024, YouTube Mastery Elevate Your Content with Smart Tag Techniques</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-tips-for-staying-positive-in-the-face-of-critical-youtube-comments/"><u>[New] Tips for Staying Positive in the Face of Critical YouTube Comments</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-elevate-console-experience-with-personalized-audio-settings/"><u>[Updated] 2024 Approved Elevate Console Experience with Personalized Audio Settings</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-into-the-code-labyrinastr-facebooks-message-extraction-guide/"><u>[Updated] 2024 Approved Into the Code Labyrinastr - Facebook's Message Extraction Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-behind-the-scenes-youtubes-view-count-algorithm/"><u>[Updated] Behind the Scenes YouTube's View Count Algorithm</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-from-viewers-to-vips-ajays-strategy-for-sustainable-income-streams/"><u>[Updated] From Viewers to VIPs Ajay's Strategy for Sustainable Income Streams</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-high-performance-gpus-for-4k-vision/"><u>[Updated] High-Performance GPUs for 4K Vision</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-designing-custom-youtube-music-sequences/"><u>[Updated] In 2024, Designing Custom YouTube Music Sequences</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-essential-banner-design-rules-for-top-youtube-channels/"><u>[Updated] In 2024, Essential Banner Design Rules for Top YouTube Channels</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/emier-video-game-entrances-by-top-youtubers-free-and-paid-analysis/"><u>12 Premier Video Game Entrances by Top Youtubers Free & Paid Analysis</u></a></li>
+<li><a href="https://win-able.techidaily.com/cant-reach-oculus-runtime-service-how-to-fix-your-oculus-rift/"><u>Can't Reach Oculus Runtime Service? How to Fix Your Oculus Rift</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-nubia-z50-ultra-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Nubia Z50 Ultra Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-soft-reset-vivo-y78plus-t1-edition-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Vivo Y78+ (T1) Edition phone? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ey-through-time-with-these-top-10-historical-youtube-sources-for-2024/"><u>Journey Through Time with These Top 10 Historical YouTube Sources for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-the-ultimate-video-flip-tutorial-quick-and-easy-methods/"><u>New The Ultimate Video Flip Tutorial Quick and Easy Methods</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/st-rewards-for-creators/"><u>Richest Rewards for Creators</u></a></li>
+</ul></div>
 

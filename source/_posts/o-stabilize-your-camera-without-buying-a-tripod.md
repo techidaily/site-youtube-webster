@@ -1,7 +1,7 @@
 ---
 title: "How to Stabilize Your Camera without Buying a Tripod?"
-date: 2024-07-11T18:42:22.599Z
-updated: 2024-07-12T18:42:22.599Z
+date: 2024-09-14T17:08:28.239Z
+updated: 2024-09-15T18:38:00.471Z
 tags:
   - ai video
   - ai youtube
@@ -75,6 +75,13 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -82,6 +89,13 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -111,14 +125,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,6 +138,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-fine-tuning-frames-a-comprehensible-approach-to-iphone-editing-for-2024/"><u>[New] Fine-Tuning Frames A Comprehensible Approach to iPhone Editing for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-how-can-you-air-facebook-videos-on-your-television-set-for-2024/"><u>[New] How Can You Air Facebook Videos on Your Television Set for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-navigating-the-multitude-of-yt-videos-together/"><u>[New] In 2024, Navigating the Multitude of YT Videos Together</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-stepwise-approach-to-implementing-youtube-cards-and-annotations/"><u>[New] In 2024, Stepwise Approach to Implementing YouTube Cards & Annotations</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-the-digital-cashmans-codex-flourishing-on-youtube-free-from-ads/"><u>[New] In 2024, The Digital Cashman's Codex Flourishing on YouTube, Free From Ads</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/astering-shots-a-vloggers-lens-compendium-for-2024/"><u>[New] Mastering Shots A Vlogger’s Lens Compendium for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-disable-youtube-preview-across-platforms/"><u>[Updated] 2024 Approved Disable Youtube Preview Across Platforms</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-expert-advice-incorporating-narrative-elements-into-youtube-videos-for-2024/"><u>[Updated] Expert Advice Incorporating Narrative Elements Into YouTube Videos for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/access-all-features-on-xbox-1-without-standard-controls/"><u>Access All Features on Xbox 1 without Standard Controls</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ais-impact-on-society-unleashing-a-new-era-of-innovation/"><u>AI's Impact on Society: Unleashing a New Era of Innovation</u></a></li>
+<li><a href="https://windows11.techidaily.com/converting-your-notepad-to-nighttime-mode-with-ease-on-windows-11/"><u>Converting Your Notepad to Nighttime Mode with Ease on Windows 11</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-unleash-creativity-best-free-video-editor-apps-android-edition/"><u>In 2024, Unleash Creativity Best Free Video Editor Apps, Android Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/one-platform-one-game-7-days-to-die-a-fresh-take-on-classic-zombie-lore-reviewed-here/"><u>One Platform, One Game – '7 Days to Die': A Fresh Take on Classic Zombie Lore Reviewed Here</u></a></li>
+<li><a href="https://techidaily.com/this-is-how-you-can-recover-deleted-pictures-from-sony-xperia-10-v-by-fonelab-android-recover-pictures/"><u>This is how you can recover deleted pictures from Sony Xperia 10 V.</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-optimal-picture-configuration-for-your-samsung-4k-television/"><u>Ultimate Guide: Optimal Picture Configuration for Your Samsung 4K Television</u></a></li>
+</ul></div>
 

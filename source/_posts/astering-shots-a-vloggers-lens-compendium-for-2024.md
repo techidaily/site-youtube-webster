@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering Shots  A Vlogger’s Lens Compendium for 2024\""
-date: 2024-09-09T13:10:41.158Z
-updated: 2024-09-10T13:10:41.158Z
+date: 2024-09-14T17:41:52.274Z
+updated: 2024-09-15T16:37:20.024Z
 tags:
   - ai video
   - ai youtube
@@ -14,24 +14,12 @@ keywords: "Video Editing Basics,Perfect Lighting Tips,Frame Selection Guide,Audi
 thumbnail: https://thmb.techidaily.com/502bcc92fd452403f6c08525ae02c0d2e78a33616170701a3383a08e8dcec924.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Mastering Shots: A Vlogger’s Lens Compendium
 
 # A Vlogger's Guide To Camera Lenses
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Nov 01, 2022• Proven solutions
@@ -68,12 +56,6 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -96,18 +78,6 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -131,22 +101,30 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
@@ -186,25 +164,23 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -215,53 +191,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-youtube-update-easy-access-to-your-shorts/"><u>[New] 2024 Approved YouTube Update Easy Access to Your Shorts</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-high-quality-videos-at-your-fingertesps-selecting-the-right-fps-for-2024/"><u>[New] High-Quality Videos at Your Fingertesps Selecting the Right FPS for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-crucial-details-for-deciding-on-a-youtube-tv-subscription/"><u>[New] In 2024, Crucial Details for Deciding on a YouTube TV Subscription</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-how-to-shave-seconds-off-your-youtube-video-submission/"><u>[New] In 2024, How to Shave Seconds Off Your YouTube Video Submission</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-iphone-guide-jpegpng-to-pdf-conversion-techniques/"><u>[New] In 2024, IPhone Guide JPEG/PNG to PDF Conversion Techniques</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-quick-resize-youtube-videos-to-right-aspect-ratio-on-mac/"><u>[New] In 2024, Quick Resize YouTube Videos to Right Aspect Ratio on Mac</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-top-5-best-ps1-emulators-for-pc/"><u>[New] In 2024, Top 5 Best Ps1 Emulators for PC</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ac-users-launch-your-own-sports-videography-hub/"><u>[New] Mac Users Launch Your Own Sports Videography Hub</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/astering-creative-splitscreens-in-youtube-filmmaking/"><u>[New] Mastering Creative Splitscreens in YouTube Filmmaking</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/astering-online-channel-name-creation-tips-and-tricks-for-2024/"><u>[New] Mastering Online Channel Name Creation Tips & Tricks for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/avigating-algorithm-advantages-maximizing-view-count-effortlessly/"><u>[New] Navigating Algorithm Advantages Maximizing View Count Effortlessly</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-screen-caption-composer-for-2024/"><u>[New] On-Screen Caption Composer for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/afe-sharing-safe-viewing-tips-for-hiding-online-images-for-2024/"><u>[New] Safe Sharing, Safe Viewing Tips for Hiding Online Images for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/he-pathway-to-perfect-audio-placement-on-youtube/"><u>[New] The Pathway to Perfect Audio Placement on YouTube</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-the-screencast-lifeline-crucial-knowledge-for-success/"><u>[New] The Screencast Lifeline Crucial Knowledge for Success</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nified-media-playback-on-youtube-flv-files-tutorial/"><u>[New] Unified Media Playback on YouTube FLV Files Tutorial</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-amplifying-your-brand-the-famebit-approach-to-youtube-affiliates/"><u>[Updated] 2024 Approved Amplifying Your Brand The FameBit Approach to YouTube Affiliates</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-saving-your-hangout-participation/"><u>[Updated] 2024 Approved Saving Your Hangout Participation</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-crafting-comfortable-cinematography-amidst-the-chill/"><u>[Updated] Crafting Comfortable Cinematography Amidst the Chill</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-crafting-the-perfect-panel-of-playback-with-youtube-for-2024/"><u>[Updated] Crafting the Perfect Panel of Playback with YouTube for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-how-to-animate-and-make-your-own-effects/"><u>[Updated] In 2024, How to Animate and Make Your Own Effects</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-the-complete-checklist-for-recording-fb-chats-and-meets/"><u>[Updated] In 2024, The Complete Checklist for Recording FB Chats and Meets</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-is-youtubes-monetization-routine-for-2024/"><u>[Updated] Is YouTube’s Monetization Routine for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-mastering-media-analysis-evaluating-your-vs-opponents-youtube-content/"><u>[Updated] Mastering Media Analysis Evaluating Your Vs. Opponents' YouTube Content</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-perfect-pixels-selecting-best-cameras-for-yt-for-2024/"><u>[Updated] Perfect Pixels Selecting Best Cameras For YT for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-streamline-youtube-sounds-to-mp3-using-mac/"><u>[Updated] Streamline YouTube Sounds to MP3 Using Mac</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-unlocking-youtubes-central-hub-for-video-crafting/"><u>[Updated] Unlocking YouTube's Central Hub for Video Crafting</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-best-price-to-performance-laptops-under-500-gaming-edition/"><u>2024 Approved Best Price-to-Performance Laptops Under $500 (Gaming Edition)</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-step-up-your-content-learn-how-to-make-captivating-youtube-shorts/"><u>2024 Approved Step Up Your Content Learn How to Make Captivating YouTube Shorts</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-tuneup-snapchat-a-guide-to-musical-video-clips/"><u>2024 Approved TuneUp Snapchat A Guide to Musical Video Clips</u></a></li>
-<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-tecno-phantom-v-fold-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Tecno Phantom V Fold | Dr.fone</u></a></li>
-<li><a href="https://discover-alternatives.techidaily.com/effective-methods-for-compressing-oversize-videos-on-facebook-platform/"><u>Effective Methods for Compressing Oversize Videos on Facebook Platform</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/high-quality-youtube-banner-samples-inside-in-2024/"><u>Free High-Quality YouTube Banner Samples Inside, In 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>How to Change Netflix Location to Get More Country Version On Apple iPhone 15 Plus | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-lava-blaze-2-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Lava Blaze 2? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Sony Xperia 10 V? | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/innovative-activities-for-the-modern-podcaster/"><u>Innovative Activities for the Modern Podcaster</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/insider-tips-what-to-scrutinize-before-buying-a-game-pc/"><u>Insider Tips: What to Scrutinize Before Buying a Game PC</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/uctions-clearing-stored-videos-on-youtubes-watchlater/"><u>Instructions Clearing Stored Videos on YouTube's Watchlater</u></a></li>
-<li><a href="https://driver-download.techidaily.com/quick-guide-microsoft-drivers-downloading-and-updating-for-windows-10-8-and-7/"><u>Quick Guide: Microsoft Drivers Downloading and Updating for Windows 10, 8, and 7</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/scrutinizing-the-legalities-of-youtube-versus-creative-commons/"><u>Scrutinizing the Legalities of Youtube Versus Creative Commons</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ting-prime-apps-for-iphoneandroid-intro-videos-for-2024/"><u>Selecting Prime Apps for iPhone/Android Intro Videos for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ar-streamers-summit-global-subscriber-counts-showcased/"><u>Stellar Streamers' Summit Global Subscriber Counts Showcased</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ost-intriguing-movies-on-youtube-streams/"><u>The Most Intriguing Movies on YouTube Streams</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-ultimate-recorders-companion-for-clear-notes-for-2024/"><u>The Ultimate Recorder's Companion for Clear Notes for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-xiaomi-13t-pro-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Xiaomi 13T Pro Phones</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/unveiling-chrome-based-techniques-for-tiktok-content/"><u>Unveiling Chrome-Based Techniques for TikTok Content</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/be-video-links-made-better-with-desktop-and-mobile-timestamping/"><u>YouTube Video Links Made Better with Desktop & Mobile Timestamping</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/hanneling-musical-charm-crafting-custom-playlists-on-youtube-for-2024/"><u>[New] Channeling Musical Charm Crafting Custom Playlists on Youtube for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-current-drone-applications-vs-future-technological-paradigm-for-2024/"><u>[New] Current Drone Applications vs Future Technological Paradigm for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/arnings-demystified-youtube-shorts-revenue-split-explained-for-2024/"><u>[New] Earnings Demystified YouTube Shorts Revenue Split Explained for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-visual-prowess-meets-audio-excellence-top-5-hd-webcams/"><u>[New] In 2024, Visual Prowess Meets Audio Excellence - Top 5 HD Webcams</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-navigating-copyright-challenges-on-youtube-shorts/"><u>[Updated] In 2024, Navigating Copyright Challenges on YouTube Shorts</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-instagrams-best-practices-for-video-editing-and-cropping-for-2024/"><u>[Updated] Instagram's Best Practices for Video Editing & Cropping for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-sleeper-strikers-top-10-undetected-fb-memes-for-2024/"><u>[Updated] Sleeper Strikers Top 10 Undetected FB Memes for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-step-by-step-guide-youtube-videos-in-avi-format/"><u>[Updated] Step-by-Step Guide YouTube Videos in AVI Format</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-disseminating-wirecast-insights-and-alternatives/"><u>2024 Approved Disseminating WireCast Insights and Alternatives</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/p-by-step-approach-to-youtube-gold-music-reaction-magic/"><u>A Step-by-Step Approach to YouTube Gold Music Reaction Magic</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/zero-to-hero-boosting-youtube-view-count-quickly/"><u>From Zero to Hero Boosting YouTube View Count Quickly</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-tecno-spark-go-2023-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Tecno Spark Go (2023) | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-pro-gamers-equipment-showcase-series/"><u>In 2024, Pro Gamer's Equipment Showcase Series</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/mercedes-innovation-blending-gpt-tech-with-car-voices/"><u>Mercedes' Innovation: Blending GPT Tech with Car Voices</u></a></li>
+<li><a href="https://games-able.techidaily.com/1719172797184-playing-fortnite-on-mac-watch-out-for-exceptions/"><u>Playing Fortnite on Mac? Watch Out for Exceptions</u></a></li>
 </ul></div>
+
