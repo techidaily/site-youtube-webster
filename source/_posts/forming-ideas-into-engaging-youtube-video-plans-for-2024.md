@@ -1,7 +1,7 @@
 ---
 title: "Transforming Ideas Into Engaging YouTube Video Plans for 2024"
-date: 2024-09-14T17:49:50.009Z
-updated: 2024-09-15T17:33:07.310Z
+date: 2024-09-16T22:17:28.708Z
+updated: 2024-09-20T20:31:44.212Z
 tags:
   - ai video
   - ai youtube
@@ -53,16 +53,10 @@ Before you write the script, it’s a good idea to gather ideas. If you think of
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
 
 <!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Writing a Script for a YouTube Video
@@ -76,6 +70,13 @@ The first step in writing a script is to develop an outline for the story. You m
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Just keep writing
 
@@ -104,16 +105,10 @@ While you are scripting and focusing on the information you want to deliver, it�
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
 <!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## After Writing your YouTube Video Script
@@ -129,13 +124,6 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -158,15 +146,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-guffaws-galore-compiled-list-of-10-funniest-youtube-short-videos/"><u>[New] 2024 Approved Guffaws Galore Compiled List of 10 Funniest YouTube Short Videos</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-the-best-laptops-for-video-editing-you-should-know/"><u>[New] In 2024, The Best Laptops For Video Editing You Should Know</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-perfect-pairing-top-ten-kiss-off-classics-at-romances-peak/"><u>[New] Perfect Pairing Top Ten Kiss-Off Classics at Romance's Peak</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-get-paid-to-review-products-on-youtube/"><u>[Updated] In 2024, How to Get Paid to Review Products on YouTube</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-kickstart-your-stream-must-have-youtube-tools-for-2024/"><u>[Updated] Kickstart Your Stream Must-Have YouTube Tools for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-surging-social-media-accelerating-instagram-interactions/"><u>2024 Approved Surging Social Media Accelerating Instagram Interactions</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ing-for-accuracy-youtube-monetization-compliance/"><u>Auditing for Accuracy YouTube Monetization Compliance</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-locked-for-security-reasons-on-iphone-14-pro-max-find-the-best-solution-here-by-drfone-ios/"><u>In 2024, Apple ID Locked for Security Reasons On iPhone 14 Pro Max? Find the Best Solution Here</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/latest-guide-how-to-bypass-itel-a60-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Itel A60 FRP Without Computer</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/understanding-bert-a-guide-to-googles-advanced-nlp-technology-vs-gpt/"><u>Understanding BERT: A Guide to Google's Advanced NLP Technology Vs. GPT</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ccessible-visual-aids-for-youtube-videos/"><u>[New] Accessible Visual Aids for YouTube Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/oremost-10-recording-apps-for-social-media-vids-for-2024/"><u>[New] Foremost 10 Recording Apps for Social Media Vids for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-best-video-apps-review-youtube-iphones-and-androids/"><u>[Updated] In 2024, Best Video Apps Review YouTube iPhones & Androids</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-premium-viewership-the-ultimate-youtube-wealth/"><u>[Updated] In 2024, Premium Viewership The Ultimate YouTube Wealth</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-free-editing-powerhouses-top-9-simplified-video-tools/"><u>2024 Approved Free Editing Powerhouses Top 9 Simplified Video Tools</u></a></li>
+<li><a href="https://win11.techidaily.com/boost-your-efficiency-setting-up-shortcuts-for-fixed-text-paste-and-copy/"><u>Boost Your Efficiency: Setting Up Shortcuts for Fixed Text Paste & Copy</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/y-canvas-painting-laughter-with-top-10-video-concepts-for-2024/"><u>Comedy Canvas Painting Laughter with Top 10 Video Concepts for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/experience-worldwide-convenience-google-unveils-its-global-ai-infused-personal-planner/"><u>Experience Worldwide Convenience: Google Unveils Its Global AI-Infused Personal Planner!</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-resolve-bluetooth-driver-glitches-in-windows-10-effortlessly/"><u>How to Resolve Bluetooth Driver Glitches in Windows 10 Effortlessly</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Tecno Spark 10 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-online-spaces-deciphering-and-evading-shadowbans/"><u>Navigating Online Spaces: Deciphering and Evading Shadowbans</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/um-5-noise-canceling-gaming-mics-for-2024/"><u>Premium 5 Noise-Canceling Gaming Mics for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-youtube-rank-tracker-to-track-your-video/"><u>Top 8 YouTube Rank Tracker to Track Your Video</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-honor-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Honor Users</u></a></li>
 </ul></div>
 

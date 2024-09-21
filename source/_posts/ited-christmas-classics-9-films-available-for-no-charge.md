@@ -1,7 +1,7 @@
 ---
 title: "\"Unlimited Christmas Classics  9 Films Available for No Charge!\""
-date: 2024-09-12T19:33:33.893Z
-updated: 2024-09-15T16:57:07.747Z
+date: 2024-09-18T17:01:24.261Z
+updated: 2024-09-20T20:30:02.548Z
 tags:
   - ai video
   - ai youtube
@@ -43,31 +43,38 @@ A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and sta
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115926/19272" target="_top" id="2115926">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115926" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115926/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5. Richie Rich's Christmas wish
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 7. Santa Who?
 
@@ -82,13 +89,6 @@ In this film from 1984 George C Scott brings to life the role of Ebenezer Scroog
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -111,15 +111,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-gamings-apex-predators-best-7-shooter-titles/"><u>[New] In 2024, Gaming's Apex Predators Best 7 Shooter Titles</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-shadow-play-with-iphone-pro-photography-tips/"><u>[New] Shadow Play with iPhone Pro Photography Tips</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-perfect-speech-interpretation-googles-innovative-solution/"><u>[Updated] 2024 Approved Perfect Speech Interpretation Google's Innovative Solution</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-elite-media-maestro-picture-perfect-with-pitches-for-2024/"><u>[Updated] Elite Media Maestro Picture Perfect with Pitches for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-unlock-the-full-potential-of-game-recordings-in-w11/"><u>[Updated] Unlock the Full Potential of Game Recordings in W11</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-clearer-sound-with-these-ipad-tips/"><u>2024 Approved Clearer Sound with These iPad Tips</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-maximizing-youtube-profits-strategies-for-revenue-growth/"><u>2024 Approved Maximizing YouTube Profits Strategies for Revenue Growth</u></a></li>
-<li><a href="https://article-helps.techidaily.com/best-action-cameras-unlocked-your-2023-snorkeling-guide/"><u>Best Action Cameras Unlocked - Your 2023 Snorkeling Guide</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-strategic-marketing-insights-for-maximizing-youtube-shorts-popularity/"><u>In 2024, Strategic Marketing Insights for Maximizing YouTube Shorts Popularity</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ring-revenue-division-on-youtube-shorts-for-2024/"><u>Mastering Revenue Division on YouTube Shorts for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nhance-every-viewing-moment-with-these-top-6-free-platforms-for-youtube-short-downloads/"><u>[New] Enhance Every Viewing Moment with These Top 6 Free Platforms for YouTube Short Downloads</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/avigate-to-top-compre-written-in-english-please-here-is-a-list-of-30-alternative-titles-that-convey-similar-meanings-to-track-your-videos-with-these-to/"><u>[New] Navigate to Top Compre Written in English, Please. Here Is a List of 30 Alternative Titles that Convey Similar Meanings to Track Your Videos With These Top 8 YouTube Rank Trackers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-delving-into-the-world-of-mukbang-videos/"><u>[Updated] Delving Into the World of Mukbang Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-get-rid-of-youtube-distractions-ad-blocking-on-chrome-firefox-and-ios/"><u>[Updated] Get Rid of YouTube Distractions Ad-Blocking on Chrome, Firefox & iOS</u></a></li>
+<li><a href="https://extra-information.techidaily.com/choreographing-gripping-podcast-openings/"><u>Choreographing Gripping Podcast Openings</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/examining-the-elegant-yet-imperfect-asus-bw-16d1x-u-blu-ray-writer-a-thorough-review/"><u>Examining the Elegant Yet Imperfect Asus BW-16D1X-U Blu-Ray Writer: A Thorough Review</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/helldivers-2-not-launching-on-steam-how-to-fix/"><u>Helldivers 2 Not Launching on Steam - How to Fix</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-on-oneplus-12r-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on OnePlus 12R FRP Bypass</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-unveiling-frames-5-effective-charge-free-youtube-techniques/"><u>In 2024, Unveiling Frames 5 Effective, Charge-Free YouTube Techniques</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/mastering-empathy-utilizing-chatgpt-for-building-better-emotional-awareness/"><u>Mastering Empathy: Utilizing ChatGPT for Building Better Emotional Awareness</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/mastering-gamified-views-selecting-the-best-webcams-for-players-for-2024/"><u>Mastering Gamified Views Selecting the Best Webcams for Players for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/movavimp4and/"><u>Movaviのプロセス：無料でMP4ビデオを簡易編集&変換</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/cket-views-with-smartly-chosen-video-release-times-for-2024/"><u>Skyrocket Views with Smartly Chosen Video Release Times for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-apps-and-online-tools-to-track-tecno-spark-go-2023-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Tecno Spark Go (2023) Phone With/Without IMEI Number</u></a></li>
 </ul></div>
 

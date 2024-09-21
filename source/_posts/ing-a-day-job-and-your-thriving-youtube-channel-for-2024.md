@@ -1,7 +1,7 @@
 ---
 title: "Managing a Day Job and Your Thriving YouTube Channel for 2024"
-date: 2024-09-11T18:50:25.313Z
-updated: 2024-09-15T19:29:57.678Z
+date: 2024-09-18T23:47:04.800Z
+updated: 2024-09-20T19:40:11.172Z
 tags:
   - ai video
   - ai youtube
@@ -59,16 +59,16 @@ A notebook planner is essential for keeping my life organized and on track. When
 
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4. Create 3-5 videos in advance
 
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5. Be creative! Create audios (audio-only videos)
 
@@ -84,14 +84,14 @@ Just try it and create your own YouTube video!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -114,17 +114,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-your-complete-reference-to-durecorders-features-for-2024/"><u>[New] Your Complete Reference to DuRecorder’s Features for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-end-screen-creation-made-simple-free-templates-and-guides/"><u>[Updated] 2024 Approved End Screen Creation Made Simple - Free Templates & Guides</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-perfect-patches-backgrounds-for-online-streaming/"><u>[Updated] 2024 Approved Perfect Patches Backgrounds for Online Streaming</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-the-reimagined-sony-bdp-s6700-experience/"><u>[Updated] 2024 Approved The Reimagined Sony BDP-S6700 Experience</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-seize-endless-photographic-content-from-elite-4-video-clips/"><u>[Updated] Seize Endless Photographic Content From Elite 4 Video Clips</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-pushing-perceptions-with-the-advanced-dell-p2715q-display-review/"><u>2024 Approved Pushing Perceptions with the Advanced Dell P2715Q Display Review</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ver-websites-your-gateway-to-youtube-branded-content-for-2024/"><u>Discover Websites Your Gateway to YouTube Branded Content for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/helmet-hats-a-comprehensive-look-at-best-cams-in-bike-culture-for-2024/"><u>Helmet Hats A Comprehensive Look at Best Cams in Bike Culture for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-infinix-hot-40i-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Infinix Hot 40i without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-13-mini-by-drfone-ios/"><u>How to Unlock iPhone 13 mini?</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-motorola-moto-g04-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Motorola Moto G04? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/online-signatures-for-docm-file-by-ldigisigner-sign-a-word-sign-a-word/"><u>Online signatures for .docm file</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-bridging-platforms-posting-twitter-content-on-facebook-for-2024/"><u>[New] Bridging Platforms Posting Twitter Content on Facebook for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-in-2024-key-points-to-consider-when-navigating-tiktok-web-on-macos/"><u>[New] In 2024, Key Points to Consider When Navigating TikTok Web on macOS</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-tricks-to-flawless-screen-casting-on-mobile-and-desktop/"><u>[New] In 2024, Tricks to Flawless Screen Casting on Mobile and Desktop</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/aving-the-way-to-success-with-professional-insights-into-youtube-banners-for-2024/"><u>[New] Paving the Way to Success with Professional Insights Into YouTube Banners for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-take-your-youtube-clips-to-the-next-level-ultimate-editing-tips/"><u>[Updated] 2024 Approved Take Your YouTube Clips to the Next Level Ultimate Editing Tips</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-earnings-breakdown-youtubes-adsense-payments-by-thousands-of-views/"><u>[Updated] Earnings Breakdown Youtube's AdSense Payments by Thousands of Views</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-from-lurker-to-leader-the-roadmap-to-higher-fb-page-rankings/"><u>[Updated] From Lurker to Leader The Roadmap to Higher FB Page Rankings</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-get-more-viewers-with-social-media-marketing-for-youtube-for-2024/"><u>[Updated] Get More Viewers with Social Media Marketing for YouTube for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-harnessing-digital-artistry-top-6-nft-makers-reviewed/"><u>[Updated] In 2024, Harnessing Digital Artistry - Top 6 NFT Makers Reviewed</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-meditative-movement-youtubes-finest-yogis-for-2024/"><u>[Updated] Meditative Movement YouTube's Finest Yogis for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-step-by-step-guide-to-perfecting-videos-in-youtube-studio/"><u>[Updated] Step-by-Step Guide to Perfecting Videos in YouTube Studio</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-nextgen-videotron-app-evaluation/"><u>2024 Approved NextGen Videotron App Evaluation</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-propel-your-youtube-presence-upwards-by-thousands/"><u>2024 Approved Propel Your YouTube Presence Upwards by Thousands</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-your-hp-elitebook-8460p-running-smoothly-with-updated-drivers-on-windows-solved/"><u>Get Your HP EliteBook 8460P Running Smoothly with Updated Drivers on Windows [SOLVED]</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-unleashing-creative-potential-making-youtube-trailers-in-filmora/"><u>In 2024, Unleashing Creative Potential Making YouTube Trailers in Filmora</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/re-enabled-local-security-framework-ensuring-robust-protection/"><u>Re-Enabled Local Security Framework - Ensuring Robust Protection</u></a></li>
 </ul></div>
 

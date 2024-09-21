@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Practical Steps for Immediate Deletion on Youtube Platform"
-date: 2024-09-09T16:41:36.051Z
-updated: 2024-09-15T17:14:40.814Z
+date: 2024-09-15T22:25:16.737Z
+updated: 2024-09-20T17:49:29.740Z
 tags:
   - ai video
   - ai youtube
@@ -109,16 +109,10 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -130,6 +124,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
@@ -139,10 +140,10 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
@@ -152,13 +153,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -181,18 +175,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-the-complete-curve-editing-manual-for-photoshop/"><u>[New] The Complete Curve Editing Manual for Photoshop</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/nveil-the-secrets-of-adventure-with-these-vids-for-2024/"><u>[New] Unveil the Secrets of Adventure with These Vids for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-choreographing-newscast-endings/"><u>[Updated] In 2024, Choreographing Newscast Endings</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-bypassing-youtubes-copyright-strike-legal-strategies-and-precautions/"><u>2024 Approved Bypassing YouTube's Copyright Strike Legal Strategies and Precautions</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-how-to-add-video-to-text-for-free/"><u>2024 Approved How to Add Video to Text for Free</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/acer-predator-triton-300-se-review/"><u>Acer Predator Triton 300 SE Review</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/enhance-quality-in-filming-and-photos-on-iphone-for-2024/"><u>Enhance Quality in Filming & Photos on iPhone for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/hdr-camera-mastery-essential-buying-tips-for-2024/"><u>HDR Camera Mastery Essential Buying Tips for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-dodge-digital-duplicates-to-increase-youtube-exposure/"><u>In 2024, Dodge Digital Duplicates to Increase YouTube Exposure</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ining-the-art-of-editing-a-deep-dive-into-youtube-studios-capabilities/"><u>Redefining the Art of Editing A Deep Dive Into YouTube Studio's Capabilities</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/1722877048883-the-ultimate-fix-for-msvcr100dll-not-found-tips-and-tricks-inside/"><u>The Ultimate Fix for 'MSVCR100.DLL' Not Found – Tips and Tricks Inside!</u></a></li>
-<li><a href="https://blog-min.techidaily.com/ultimate-tutorial-change-your-mts-and-m2ts-videos-into-any-format-with-handbrake/"><u>Ultimate Tutorial: Change Your MTS and M2TS Videos Into Any Format With HandBrake</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/unlocking-photo-magic-intro-to-snapseed-features/"><u>Unlocking Photo Magic Intro to Snapseed Features</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-ideas-on-improving-gopros-energy-management/"><u>[New] Ideas on Improving GoPro's Energy Management</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-time-markers-for-youtube-videos-expert-tips-desktopmobile/"><u>[New] In 2024, Time Markers for YouTube Videos Expert Tips (Desktop/Mobile)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-top-15-gaming-capture-utilities/"><u>[New] In 2024, Top 15 Gaming Capture Utilities</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/outube-live-thumbnails-a-comprehensive-look-for-2024/"><u>[New] YouTube Live Thumbnails A Comprehensive Look for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-a-social-storytellers-playbook-maximizing-video-impact-on-fb-for-2024/"><u>[Updated] A Social Storyteller’s Playbook Maximizing Video Impact on FB for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-enter-immersive-realms-top-10-youtubes-most-captivating-vr-videos/"><u>[Updated] Enter Immersive Realms Top 10 YouTube's Most Captivating VR Videos</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/easy-steps-to-enhancing-your-kodi-experience-with-custom-addons/"><u>Easy Steps to Enhancing Your Kodi Experience with Custom Addons</u></a></li>
+<li><a href="https://common-error.techidaily.com/error-code-80240020-in-windows-10-installation-troubleshooting-steps-and-fixes/"><u>Error Code 80240020 in Windows 10 Installation: Troubleshooting Steps & Fixes</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Samsung Galaxy M14 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/lements-impacting-youtube-content-visibility/"><u>Key Elements Impacting YouTube Content Visibility</u></a></li>
+<li><a href="https://win-answers.techidaily.com/overcoming-launch-hurdles-7-key-fixes-for-playing-overwatch-2-successfully/"><u>Overcoming Launch Hurdles: 7 Key Fixes for Playing Overwatch 2 Successfully</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unlocking-the-potential-of-auto-gpt-with-these-8-strategies/"><u>Unlocking the Potential of Auto-GPT with These 8 Strategies</u></a></li>
 </ul></div>
 

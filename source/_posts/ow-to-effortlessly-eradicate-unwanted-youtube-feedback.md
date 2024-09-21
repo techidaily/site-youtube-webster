@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Effortlessly Eradicate Unwanted YouTube Feedback"
-date: 2024-07-11T18:35:45.902Z
-updated: 2024-07-12T18:35:45.902Z
+date: 2024-09-14T18:08:41.771Z
+updated: 2024-09-20T20:18:25.938Z
 tags:
   - ai video
   - ai youtube
@@ -103,6 +103,13 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -116,6 +123,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
@@ -128,20 +142,24 @@ YouTube can be an unsafe place with unwanted comments everywhere. In this blog, 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -150,6 +168,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-capture-the-moment-iphone-xs-revolutionary-camera/"><u>[New] 2024 Approved Capture the Moment IPhone X's Revolutionary Camera</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ssential-apps-best-10-software-to-capture-your-screens-for-2024/"><u>[New] Essential Apps Best 10 Software to Capture Your Screens for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-improve-your-channels-meta-description-powerfully/"><u>[New] In 2024, Improve Your Channel's Meta Description Powerfully</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ocial-media-live-services-showdown-facebook-vs-youtube-vs-twitter-spaces-for-2024/"><u>[New] Social Media Live Services Showdown Facebook Vs. YouTube Vs. Twitter Spaces for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/se-social-blade-for-youtube-analytics-stats-and-how-to-use-them/"><u>[New] Use Social Blade for YouTube Analytics - Stats & How to Use Them</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-how-to-innovate-transforming-raw-footage-into-youtube-thumbnails-via-smartphones/"><u>[Updated] 2024 Approved How to Innovate Transforming Raw Footage Into YouTube Thumbnails via Smartphones</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-imovie-tricks-for-perfecting-your-video-introduction-craft/"><u>[Updated] In 2024, IMovie Tricks for Perfecting Your Video Introduction Craft</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-flipping-frames-innovative-techniques-for-backward-viewing-on-yt/"><u>2024 Approved Flipping Frames Innovative Techniques for Backward Viewing on YT</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-perfect-video-gear-starting-with-beginner-cameras/"><u>In 2024, Perfect Video Gear Starting with Beginner Cameras</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-sculpt-social-shares/"><u>In 2024, Sculpt Social Shares</u></a></li>
+<li><a href="https://extra-support.techidaily.com/sns-hdr-pro-analysis-worth-its-weight-in-gold-for-2024/"><u>SNS HDR Pro Analysis Worth Its Weight in Gold for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/by-step-building-your-perfect-youtube-playlist-for-2024/"><u>Step-by-Step Building Your Perfect YouTube Playlist for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-tutorial-resolving-minecraft-peer-to-peer-network-issues-for-seamless-play/"><u>Step-by-Step Tutorial: Resolving Minecraft Peer-to-Peer Network Issues for Seamless Play</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/egies-for-youtube-music-fusions-for-2024/"><u>Strategies for YouTube Music Fusions for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/the-best-methods-to-unlock-the-iphone-locked-to-owner-for-apple-iphone-se-2020-by-drfone-ios/"><u>The Best Methods to Unlock the iPhone Locked to Owner for Apple iPhone SE (2020)</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-the-ultimate-4k-showcase-must-see-video-clips-for-any-enthusiast/"><u>Updated In 2024, The Ultimate 4K Showcase Must-See Video Clips for Any Enthusiast</u></a></li>
+</ul></div>
 

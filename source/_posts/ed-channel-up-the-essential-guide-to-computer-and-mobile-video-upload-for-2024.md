@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Channel Up  The Essential Guide to Computer & Mobile Video Upload for 2024\""
-date: 2024-09-11T17:37:18.119Z
-updated: 2024-09-15T19:25:07.024Z
+date: 2024-09-19T20:56:37.633Z
+updated: 2024-09-20T18:02:36.217Z
 tags:
   - ai video
   - ai youtube
@@ -118,10 +118,10 @@ Please note you will not see the **Create a Short** option if you are outsides o
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
@@ -140,24 +140,18 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -182,19 +176,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2023how-to-share-videos-on-twitter-on-your-phone-without-retweeting/"><u>[New] 2023|How to Share Videos on Twitter on Your Phone Without Retweeting?</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-mastering-podcast-playback-iphone-edition/"><u>[New] 2024 Approved Mastering Podcast Playback IPhone Edition</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-native-chrome-os-screen-replay-app/"><u>[New] 2024 Approved Native Chrome OS Screen Replay App</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ultimedia-text-producer/"><u>[New] Multimedia Text Producer</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-navigating-the-world-of-audio-with-apods/"><u>[New] Navigating the World of Audio with APods</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/nveil-creativity-15plus-free-tools-for-youtube-intros/"><u>[New] Unveil Creativity 15+ Free Tools for YouTube Intros</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-maximizing-your-youtube-earnings-with-smart-tactics/"><u>[Updated] 2024 Approved Maximizing Your YouTube Earnings with Smart Tactics</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-elevate-viewing-experience-activating-av1-codec-on-youtube-for-2024/"><u>[Updated] Elevate Viewing Experience Activating AV1 Codec on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-mastering-youtube-metrics-a-compreousible-roadmap-to-tracking-traffic-and-turnover/"><u>[Updated] In 2024, Mastering YouTube Metrics A Compreousible Roadmap to Tracking Traffic and Turnover</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-mirthmaker-join-and-start-your-humor-storytelling/"><u>[Updated] MirthMaker Join & Start Your Humor Storytelling</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-optimize-video-search-with-these-top-7-youtube-tags-extractor-tools-for-2024/"><u>[Updated] Optimize Video Search with These Top 7 Youtube Tags Extractor Tools for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/accelerate-pc-diagnostics-finding-out-your-true-ram-throughput-for-windows-versions-10-and-11/"><u>Accelerate PC Diagnostics: Finding Out Your True RAM Throughput for Windows Versions 10 and 11</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/explore-the-10-fastest-expanding-yt-hubs-for-wisdom/"><u>Explore the 10 Fastest-Expanding YT Hubs for Wisdom</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ring-video-production-with-chroma-key-techniques-for-2024/"><u>Mastering Video Production with Chroma Key Techniques for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-micro-moments-of-fame-do-youtubes-shorts-or-tiktoks-get-the-edge/"><u>[Updated] 2024 Approved Micro-Moments of Fame Do YouTubes Shorts or TikToks Get the Edge?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-navigating-the-world-of-time-stamps-in-youtube-links-desktopmobile/"><u>[Updated] 2024 Approved Navigating the World of Time Stamps in YouTube Links (Desktop/Mobile)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-online-showdown-fb-live-yt-live-and-periscope-vs-spaces/"><u>[Updated] In 2024, Online Showdown FB LIVE, YT Live & Periscope Vs. Spaces</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-expert-advice-on-free-youtube-events-without-extra-cost/"><u>2024 Approved Expert Advice on Free Youtube Events without Extra Cost</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/diy-how-to-edit-your-discord-user-image-easily/"><u>DIY: How to Edit Your Discord User Image Easily</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-compatible-hp-printer-drivers-download-updates-for-windows-10-and-11-devices/"><u>Get Compatible HP Printer Drivers - Download Updates for Windows 10 & 11 Devices</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-oppo-a59-5g-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Oppo A59 5G Phone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-complete-fixes-to-solve-apple-iphone-12-pro-max-randomly-asking-for-apple-id-password-by-drfone-ios/"><u>In 2024, Complete Fixes To Solve Apple iPhone 12 Pro Max Randomly Asking for Apple ID Password</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-elevate-your-youtube-presence-with-simple-seo-techniques/"><u>In 2024, Elevate Your YouTube Presence with Simple SEO Techniques</u></a></li>
+<li><a href="https://win-able.techidaily.com/latest-solutions-for-stable-play-in-maplestory-on-windows-11-tips-and-tricks/"><u>Latest Solutions for Stable Play in MapleStory on Windows 11 - Tips & Tricks</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-tips-for-perfecting-your-talking-face-content-a-complete-guide/"><u>New 2024 Approved Tips for Perfecting Your Talking Face Content A Complete Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/quick-refresher-green-screen-film-tech-basics-for-2024/"><u>Quick Refresher Green Screen Film Tech Basics for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ual-lens-approach-gaining-audience-insight-with-3-pov-strategies-for-youtube-reactions/"><u>The Dual Lens Approach Gaining Audience Insight with 3 POV Strategies for YouTube Reactions</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-merge-mov-files-for-free-5-best-options/"><u>Updated In 2024, Merge MOV Files for Free 5 Best Options</u></a></li>
 </ul></div>
 

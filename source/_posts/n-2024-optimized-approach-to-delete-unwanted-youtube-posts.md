@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Optimized Approach to Delete Unwanted YouTube Posts"
-date: 2024-09-12T17:02:16.636Z
-updated: 2024-09-15T17:50:20.975Z
+date: 2024-09-15T16:30:18.985Z
+updated: 2024-09-20T16:18:33.439Z
 tags:
   - ai video
   - ai youtube
@@ -74,6 +74,13 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -89,16 +96,10 @@ If it is your video where the comment to be removed is, you can go to My Channel
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
 <!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
@@ -121,13 +122,6 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -145,6 +139,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
 ### Final Thoughts
@@ -152,19 +153,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -187,20 +175,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-unlisting-youtube-videos-a-guide-to-non-indexable-content/"><u>[New] 2024 Approved Unlisting YouTube Videos A Guide to Non-Indexable Content</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-banter-bonanza-the-best-comedians-on-the-web/"><u>[New] Banter Bonanza The Best Comedians on the Web</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-elevate-your-reels-to-new-heights-with-top-6-innovative-apps/"><u>[New] In 2024, Elevate Your Reels to New Heights with Top 6 Innovative Apps</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-navigating-the-multitude-of-yt-videos-together/"><u>[New] In 2024, Navigating the Multitude of YT Videos Together</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-the-blueprint-for-youtube-income-generation/"><u>[New] In 2024, The Blueprint for YouTube Income Generation</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-the-digital-cashmans-codex-flourishing-on-youtube-free-from-ads/"><u>[New] In 2024, The Digital Cashman's Codex Flourishing on YouTube, Free From Ads</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/astering-shots-a-vloggers-lens-compendium-for-2024/"><u>[New] Mastering Shots A Vlogger’s Lens Compendium for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/hat-is-youtube-tag-and-how-to-find-great-tags-for-your-videos/"><u>[New] What Is YouTube Tag and How to Find Great Tags For Your Videos?</u></a></li>
-<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-samsung-galaxy-a34-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Samsung Galaxy A34 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/best-breaks-and-takes-from-snowspeedcross-games-for-2024/"><u>Best Breaks & Takes From Snowspeedcross Games for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-14-pro-to-other-iphone-15-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 14 Pro to other iPhone 15 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-use-life360-on-windows-pc-for-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Lava Yuva 3? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Motorola Edge+ (2023) | Dr.fone</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-switch-cards-between-apple-iphone-11-pro-max-and-other-iphones-will-move-all-phone-services-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Switch Cards Between Apple iPhone 11 Pro Max and other iPhones Will Move All Phone Services? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-pixelated-panoramas-instaslideshow/"><u>[New] 2024 Approved Pixelated Panoramas InstaSlideShow</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagram-clips-to-tunes-explained-in-detail-for-2024/"><u>[New] Instagram Clips to Tunes Explained in Detail for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-how-to-make-outstanding-youtube-outro/"><u>[Updated] 2024 Approved How to Make Outstanding YouTube Outro?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/fixing-vcompdll-errors-in-windows-a-step-by-step-guide-to-resolve-not-detected-or-absent-messages/"><u>Fixing vcomp.dll Errors in Windows: A Step-by-Step Guide to Resolve Not Detected or Absent Messages</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-transform-your-footage-tips-for-youtube-studios-video-editing/"><u>In 2024, Transform Your Footage Tips for YouTube Studio's Video Editing</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/inside-look-expert-techniques-with-vlc-playback-for-2024/"><u>Inside Look Expert Techniques with VLC Playback for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/e-capture-screen-to-youtube-posting-with-pcmac/"><u>Online Capture Screen-to-YouTube Posting with PC/Mac</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/phone-care-tips-removing-and-replacing-screen-guard-films-without-damage/"><u>Phone Care Tips: Removing and Replacing Screen Guard Films Without Damage</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/step-by-step-tutorial-on-effortlessly-transforming-flv-videos-into-mov-format/"><u>Step-by-Step Tutorial on Effortlessly Transforming FLV Videos Into MOV Format</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/top-5-tecno-camon-20-premier-5g-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Tecno Camon 20 Premier 5G Bypass FRP Tools for PC That Actually Work</u></a></li>
 </ul></div>
 

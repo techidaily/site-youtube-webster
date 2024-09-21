@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Edit Youtube Videos by the YouTube Video Editor"
-date: 2024-07-11T18:38:51.333Z
-updated: 2024-07-12T18:38:51.333Z
+date: 2024-09-14T17:52:52.229Z
+updated: 2024-09-20T18:32:07.381Z
 tags:
   - ai video
   - ai youtube
@@ -68,6 +68,13 @@ To do this, go to the CC tab, find a video and drag it to the timeline.
 
 ![youtube video editor](https://images.wondershare.com/images/multimedia/video-editor/import-video-youtube.jpg "youtube video editor")
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Looking for best YouTube video editor alternatives? Check this [complete guide here](https://tools.techidaily.com/wondershare/filmora/download/) \>>
 
 ### Step 3. Edit the videos as you like
@@ -88,6 +95,13 @@ To cut or split your video, hover over the target clip and hit the scissor icon 
 
 ![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-split.png "youtube video editor trim video")
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### #2 Change video settings
 
 YouTube Video Editor also provides the "Quick fixes" function which does a quick analysis of the video and tweaks its color, brightness, and contrast settings automatically.
@@ -95,6 +109,13 @@ YouTube Video Editor also provides the "Quick fixes" function which does a quick
 You can just double click the video to enter the "Quick fixes" tab and easily change brightness and contrast, add slow motion and pan zoom effect, and stabilize, audio fix or rotate video.
 
 ![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-fix.png "youtube video editor")
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### #3 Add filters
 
@@ -107,6 +128,19 @@ You can also add stunning video filters provided by this editor. To get access t
 To add text to video, go to the "Text" tab, tick "Enable text" and enter the text to the text column. Then customize the font, size, color, position of the text as you like.
 
 ![youtube video editor](https://images.wondershare.com/topic/video-editing/youtube-video-editor-add-text.png "how to edit a youtube video")
+
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### #5 Add music to video
 
@@ -138,14 +172,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -154,6 +185,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/o-money-no-problem-the-best-free-subtitles-apps-for-2024/"><u>[New] No Money, No Problem The Best Free Subtitles Apps for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-top-tech-brands-in-online-recording-solutions/"><u>[New] Top Tech Brands in Online Recording Solutions</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-unveiling-the-power-of-tags-in-your-youtube-content/"><u>2024 Approved Unveiling the Power of Tags in Your YouTube Content</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-voice-clarity-the-premier-podcast-microphones/"><u>2024 Approved Voice Clarity The Premier Podcast Microphones</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/alcwavmp3alc/"><u>ALC変更手順：高品質のWAV/MP3へのALCファイル変換ガイド</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/easy-tutorial-for-activating-icloud-on-iphone-se-2020-safe-and-legal-by-drfone-ios/"><u>Easy Tutorial for Activating iCloud on iPhone SE (2020) Safe and Legal</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-3-ways-of-how-to-get-someones-apple-id-off-iphone-13-pro-max-without-password-by-drfone-ios/"><u>In 2024, 3 Ways of How to Get Someones Apple ID Off iPhone 13 Pro Max without Password</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-decoding-youtubes-economic-strategy-the-rise-of-short-videos/"><u>In 2024, Decoding YouTube’s Economic Strategy The Rise of Short Videos</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/1722854457960-ipad-hacked-or-forgotten-passcode-unlock-it-like-a-pro-without-any-codes/"><u>IPad Hacked or Forgotten Passcode? Unlock It Like a Pro Without Any Codes!</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-top-10-free-surveillance-software-for-home-security-2023-update/"><u>New Top 10 Free Surveillance Software for Home Security 2023 Update</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/1715701116348-silent-blades-and-righteous-honor-your-next-game-adventure-awaits/"><u>Silent Blades & Righteous Honor Your Next Game Adventure Awaits!</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-comparison-game-youtube-against-dailymention/"><u>The Comparison Game YouTube Against DailyMention</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ited-christmas-classics-9-films-available-for-no-charge/"><u>Unlimited Christmas Classics 9 Films Available for No Charge!</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] How to Effortlessly Eradicate Unwanted Youtube Post-Comments for 2024\""
-date: 2024-07-11T18:40:27.146Z
-updated: 2024-07-12T18:40:27.146Z
+date: 2024-09-14T16:45:58.833Z
+updated: 2024-09-20T18:37:30.256Z
 tags:
   - ai video
   - ai youtube
@@ -69,6 +69,13 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -82,6 +89,13 @@ If it is your video where the comment to be removed is, you can go to My Channel
 
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
 
@@ -120,6 +134,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
 ### Final Thoughts
@@ -134,14 +155,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -150,6 +168,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-simplicity-in-code-constructing-a-streamlined-youtube-sign-up/"><u>[New] In 2024, Simplicity in Code Constructing a Streamlined YouTube Sign-Up</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-tweaked-sound-from-video-to-mp3aac-for-2024/"><u>[New] Tweaked Sound From Video to MP3/AAC for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-finding-the-highlighted-online-discourse/"><u>2024 Approved Finding the Highlighted Online Discourse</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-opinion-on-the-immersive-adventures-skin-suite-for-minecraft/"><u>Expert Opinion on the Immersive Adventures Skin Suite for Minecraft</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-mov-file-saving-techniques-for-windows-11-users/"><u>In 2024, .MOV File Saving Techniques for Windows 11 Users</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/izing-chaos-a-guide-to-youtube-list-shuffling/"><u>Organizing Chaos A Guide to YouTube List Shuffling</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ng-8-real-time-strategies-to-grow-youtube-success/"><u>Ranking 8 Real-Time Strategies to Grow YouTube Success</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-vivo-y27s-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Vivo Y27s | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-gear-youtube-pros-choice-in-shaky-free-video-capture-for-2024/"><u>Top Gear YouTube Pros' Choice in Shaky-Free Video Capture for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-reviews-for-like-a-dragon-from-the-yakuza-series-play-this-jrpg-masterpiece/"><u>Top Reviews for 'Like A Dragon' From the Yakuza Series - Play This JRPG Masterpiece</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/video-editing-showdown-bandicams-capabilities-compared-to-camtasia/"><u>Video Editing Showdown Bandicam's Capabilities Compared to Camtasia</u></a></li>
+<li><a href="https://win11.techidaily.com/windows-set-your-own-idle-screen-time/"><u>Windows: Set Your Own Idle Screen Time</u></a></li>
+</ul></div>
 

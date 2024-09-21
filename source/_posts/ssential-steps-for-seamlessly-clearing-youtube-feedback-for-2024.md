@@ -1,7 +1,7 @@
 ---
 title: "[New] Essential Steps for Seamlessly Clearing YouTube Feedback for 2024"
-date: 2024-07-11T18:39:47.315Z
-updated: 2024-07-12T18:39:47.315Z
+date: 2024-09-15T21:00:53.584Z
+updated: 2024-09-20T22:25:57.867Z
 tags:
   - ai video
   - ai youtube
@@ -69,6 +69,13 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -82,6 +89,13 @@ If it is your video where the comment to be removed is, you can go to My Channel
 
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
 
@@ -116,6 +130,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
@@ -134,14 +155,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -150,6 +168,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-find-peace-and-power-the-10-greatest-yoga-channels-online/"><u>[New] In 2024, Find Peace & Power The 10 Greatest Yoga Channels Online</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nnovative-templates-to-amplify-yt-decks-for-2024/"><u>[New] Innovative Templates to Amplify YT Decks for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-thriving-in-the-world-of-youtube-content-creation/"><u>[Updated] Thriving in the World of YouTube Content Creation</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-explore-the-best-free-drawing-software-for-mac-users/"><u>2024 Approved Explore the Best FREE Drawing Software for Mac Users</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-rolling-back-macos-sierra-to-el-capitan-version/"><u>2024 Approved Rolling Back MacOS Sierra to El Capitan Version</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/effortless-conversion-top-free-tools-for-turning-mp4-files-into-iso-format/"><u>Effortless Conversion: Top Free Tools for Turning MP4 Files Into ISO Format</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-a-step-by-step-guide-to-using-youtubes-creative-commons-license/"><u>In 2024, A Step-by-Step Guide to Using YouTube's Creative Commons License</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-unlocking-youtube-top-rated-pc-and-mobile-video-extractors/"><u>In 2024, Unlocking YouTube Top-Rated PC & Mobile Video Extractors</u></a></li>
+<li><a href="https://fox-that.techidaily.com/mastering-the-art-of-full-page-screen-captures-on-safari-tips-and-tricks-uncovered/"><u>Mastering the Art of Full-Page Screen Captures on Safari: Tips and Tricks Uncovered</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/st-sound-transformation-ultimate-10-youtube-tools/"><u>No-Cost Sound Transformation Ultimate 10 YouTube Tools</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ukranian-language-skills-upgrade-in-minutes-a-day-106-chars/"><u>Ukranian Language Skills Upgrade in Minutes a Day (106 Chars)</u></a></li>
+</ul></div>
 

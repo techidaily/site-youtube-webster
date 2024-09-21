@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Thumbnail Tutorial for YouTube Using Mobile Devices\""
-date: 2024-07-11T18:35:29.347Z
-updated: 2024-07-12T18:35:29.347Z
+date: 2024-09-16T23:28:03.673Z
+updated: 2024-09-20T21:06:04.055Z
 tags:
   - ai video
   - ai youtube
@@ -162,6 +162,13 @@ Step1 Launch Filmora, add the picture to the timeline and **select** the AI Port
 
 ![filmora interface](https://images.wondershare.com/filmora/article-images/filmora-interface.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Scale up and reposition the photo.
 
 ![filmora import image](https://images.wondershare.com/filmora/article-images/filmora-import-image.JPG)
@@ -170,9 +177,23 @@ Step3 Add a new background to the track below the picture. **Use** the other edi
 
 ![filmora editing options](https://images.wondershare.com/filmora/article-images/filmora-editing-options.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 When you are done editing the thumbnail, take a **snapshot** by clicking the camera icon.
 
 ![filmora take a snapshot](https://images.wondershare.com/filmora/article-images/filmora-take-screenshot.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step5 Locate the thumbnail in your local drive.
 
@@ -229,6 +250,13 @@ Step1 Open the Play Store and **search** for PixelLab. **Install** the app.
 Step2 Tap the **"+"** icon to **add** an image from your gallery.
 
 ![pixellab add image](https://images.wondershare.com/filmora/article-images/pixellab-add-image.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 Edit the image using the available tools, such as cropping, rotating, and adjusting the color and lighting.
 
@@ -323,6 +351,19 @@ Step5 Locate the thumbnail in your local drive.
 
 ![filmora export thumbnail](https://images.wondershare.com/filmora/article-images/filmora-export-thumbnail.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 For more detailed instructions and a visual guide, you can watch the following video tutorial:
 
 Add a video
@@ -369,8 +410,6 @@ Whether you create your thumbnails on your mobile device or your computer, use a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -378,6 +417,18 @@ Whether you create your thumbnails on your mobile device or your computer, use a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/aximize-impact-strategic-viewing-hours-schedule-for-2024/"><u>[New] Maximize Impact Strategic Viewing Hours Schedule for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-datadeliverers-professional-view-for-2024/"><u>[Updated] DataDeliverers Professional View for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-8-best-video-conferencing-software-for-small-business-safe-and-stable/"><u>[Updated] In 2024, 8 Best Video Conferencing Software for Small Business (Safe and Stable)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-lost-in-the-stream-reclaiming-deleted-youtube-videos/"><u>[Updated] In 2024, Lost in the Stream Reclaiming Deleted YouTube Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-pioneering-video-structuring-methods-on-youtube-for-2024/"><u>[Updated] Pioneering Video Structuring Methods on YouTube for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-essential-xbox-x-screens-find-your-perfect-match-now/"><u>2024 Approved Essential Xbox X Screens Find Your Perfect Match Now</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/2024-approved-how-to-use-3d-camera-tracking-effects-in-after-effects/"><u>2024 Approved How to Use 3D Camera Tracking Effects in After Effects</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-youtube-venture-made-easy-the-most-accessible-biz-channel-ideas-ranked/"><u>2024 Approved YouTube Venture Made Easy The Most Accessible Biz Channel Ideas Ranked</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-pinpointing-youtube-comments/"><u>In 2024, Pinpointing YouTube Comments</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-realm-of-ring-vs-reality-stream/"><u>In 2024, The Realm of Ring vs Reality Stream</u></a></li>
+<li><a href="https://extra-information.techidaily.com/master-the-art-of-changing-windows-11-backgrounds/"><u>Master the Art of Changing Windows 11 Backgrounds</u></a></li>
+</ul></div>
 

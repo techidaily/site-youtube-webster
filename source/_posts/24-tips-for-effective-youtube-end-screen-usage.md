@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Tips for Effective YouTube End Screen Usage"
-date: 2024-09-11T18:03:28.275Z
-updated: 2024-09-15T18:25:56.503Z
+date: 2024-09-19T22:33:24.438Z
+updated: 2024-09-20T17:53:45.935Z
 tags:
   - ai video
   - ai youtube
@@ -70,10 +70,10 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * Click “create” button. Select the timeline. In the end, apply.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### The types of YouTube cards
@@ -82,13 +82,6 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * **Channel**: promote another YouTube channel, one of the most common methods to collaborate with other YouTubers
 * **Poll**: Encourage viewers to participate in a poll (vote)
 * **Link**: links to a website which compliments whatever content is in the video.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4 Tips for Using YouTube Cards
 
@@ -99,6 +92,13 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 **3.** Your cards should be related to what you are saying in your vlog. Avoid posting completely random links in the middle of your video because a viewer who clicks on them will get confused. You can post any type of link you want at the very end of your video, though.
 
  **4.** The end of your video is always a great place to link viewers to another of your videos, whether you use a card or an end screen. If somebody liked your video enough to watch until the end they’ll probably welcome a chance to consume similar content.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -127,17 +127,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-unveiling-frames-5-effective-charge-free-youtube-techniques/"><u>[New] 2024 Approved Unveiling Frames 5 Effective, Charge-Free YouTube Techniques</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-schedule-smarter-the-art-of-youtube-content-timing/"><u>[New] In 2024, Schedule Smarter The Art of YouTube Content Timing</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-the-youtube-comeback-kid-jake-pauls-story/"><u>[New] In 2024, The YouTube Comeback Kid Jake Paul’s Story</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-comprehensive-guide-to-capturing-lol-showdowns/"><u>[Updated] 2024 Approved Comprehensive Guide to Capturing LOL Showdowns</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-honor-x7b-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Honor X7b to Roku | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/best-free-sites-for-streaming-bollywood-films-top-12-choices/"><u>Best Free Sites for Streaming Bollywood Films: Top 12 Choices</u></a></li>
-<li><a href="https://win-answers.techidaily.com/experiencing-constant-crashes-with-total-war-warhammer-3-heres-how-to-fix-the-pc-game-stability-issues/"><u>Experiencing Constant Crashes with Total War: Warhammer 3? Here's How to Fix the PC Game Stability Issues</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-achieve-seamless-video-playback-by-removing-bars-in-youtube/"><u>In 2024, Achieve Seamless Video Playback by Removing Bars in YouTube</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-vivo-s17e-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Vivo S17e | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>In 2024, Which is the Best Fake GPS Joystick App On Huawei Nova Y71? | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ize-your-content-youtube-seo-techniques-and-gadgets/"><u>Optimize Your Content YouTube SEO Techniques and Gadgets</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/tackling-common-faults-in-high-definition-video-files/"><u>Tackling Common Faults in High-Definition Video Files</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-essential-techniques-in-creating-youtube-thumbnails-that-stand-out/"><u>[New] Essential Techniques in Creating YouTube Thumbnails That Stand Out</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-outlining-expenses-creating-a-music-video/"><u>[New] Outlining Expenses Creating a Music Video</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-quick-fix-for-disabled-photo-viewer-back-on-win-11/"><u>[New] Quick Fix for Disabled Photo Viewer Back on Win 11</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-free-youtube-subtitled-content-download-without-paying/"><u>[Updated] 2024 Approved Free YouTube Subtitled Content Download Without Paying</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-premier-edit-suites-linux-compatible-tools/"><u>[Updated] 2024 Approved Premier Edit Suites Linux-Compatible Tools</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-for-accuracy-youtube-monetization-compliance-for-2024/"><u>Auditing for Accuracy YouTube Monetization Compliance for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-lensdirects-prescription-blue-light-filtering-eyewear/"><u>Expert Analysis of LensDirect's Prescription Blue Light Filtering Eyewear</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-fcps-premier-selection-the-top-10-editing-plugins/"><u>In 2024, FCP's Premier Selection The Top 10 Editing Plugins</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/seamless-gaming-experience-can-you-enjoy-ps4-games-using-your-ps5-console/"><u>Seamless Gaming Experience: Can You Enjoy PS4 Games Using Your PS5 Console?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/egies-for-adding-value-youtubes-card-system-for-2024/"><u>Strategies for Adding Value YouTube's Card System for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-essential-guide-to-best-10-gratis-srt-transformers/"><u>The Essential Guide to Best 10 Gratis SRT Transformers</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  A Bundle of Nine Premium Holiday Treasures  Watch for Free on YouTube\""
-date: 2024-09-14T16:10:02.655Z
-updated: 2024-09-15T18:34:31.156Z
+date: 2024-09-16T16:51:30.481Z
+updated: 2024-09-20T20:33:56.512Z
 tags:
   - ai video
   - ai youtube
@@ -43,6 +43,13 @@ A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and sta
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
@@ -51,16 +58,16 @@ A Christmas story has long been one of the favorite Christmas movies for many fa
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 7. Santa Who?
 
@@ -70,13 +77,6 @@ Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday 
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 9. Miracle on 34th street
 
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
@@ -84,16 +84,10 @@ In this recreation of the original film from 1947 this shortened full-length ver
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -117,20 +111,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/nalyzing-tseries-income-via-subscriber-engagement-on-youtube-for-2024/"><u>[New] Analyzing TSeries’ Income via Subscriber Engagement on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/arryminati-unmasked-the-monetary-milestones/"><u>[New] CarryMinati Unmasked The Monetary Milestones</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ptimizing-videos-expert-insights-on-effective-tagging/"><u>[New] Optimizing Videos Expert Insights on Effective Tagging</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-innovative-naming-solutions-for-channels/"><u>[Updated] Innovative Naming Solutions for Channels</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-iphone-time-travel-mastering-prolonged-photo-captures/"><u>[Updated] IPhone Time Travel Mastering Prolonged Photo Captures</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-maximizing-mobile-profits-enabling-youtubers-revenue/"><u>[Updated] Maximizing Mobile Profits Enabling YouTubers' Revenue</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-getting-the-most-out-of-your-youtube-videos-thumbnails-extraction/"><u>2024 Approved Getting the Most Out of Your Youtube Videos Thumbnails Extraction</u></a></li>
-<li><a href="https://fox-that.techidaily.com/expert-tips-for-repairing-your-iphones-biggest-issues-discover-how-dfu-mode-can-help/"><u>Expert Tips for Repairing Your iPhone's Biggest Issues - Discover How DFU Mode Can Help</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Vivo X Fold 2? | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-bridge-the-gap-transferring-files-from-pc-to-ios/"><u>In 2024, Bridge the Gap Transferring Files From PC to iOS</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-cutting-edge-strategies-for-flawless-custom-shorts-coverage/"><u>In 2024, Cutting-Edge Strategies for Flawless Custom Shorts Coverage</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-tecno-spark-10-pro-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Tecno Spark 10 Pro to Outlook | Dr.fone</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-quick-tutorial-get-snapchat-running-on-macos/"><u>In 2024, Quick Tutorial Get Snapchat Running on macOS</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-10-motorola-moto-g73-5g-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Motorola Moto G73 5G Android SIM Unlock APK</u></a></li>
-<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-oneplus-12r-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from OnePlus 12R? Here is How | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-cross-border-tech-assessment-by-experts/"><u>[New] 2024 Approved Cross-Border Tech Assessment by Experts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/omprehensive-instructions-for-disposing-of-video-downloads-for-2024/"><u>[New] Comprehensive Instructions for Disposing of Video Downloads for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-gameplay-recording-must-haves/"><u>[New] In 2024, Gameplay Recording Must-Haves</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/trategies-for-finding-high-impact-keywords-for-youtube-content/"><u>[New] Strategies for Finding High-Impact Keywords for YouTube Content</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-the-finest-9-cross-platform-video-conferencing-apps-for-iphonestablets/"><u>[Updated] 2024 Approved The Finest 9 Cross-Platform Video Conferencing Apps for iPhones/Tablets</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-escalate-your-content-reach-leveraging-synergistic-youtube-outros/"><u>[Updated] Escalate Your Content Reach Leveraging Synergistic YouTube Outros</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-transforming-live-youtube-broadcasts-into-recorded-soundtracks/"><u>[Updated] In 2024, Transforming Live YouTube Broadcasts Into Recorded Soundtracks</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/chatgpt-as-your-toolkit-crafting-efficient-web-apps-from-scratch/"><u>ChatGPT as Your Toolkit: Crafting Efficient Web Apps From Scratch</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/expert-advice-correcting-microphone-failure-during-google-meets-on-windows-1110-computers/"><u>Expert Advice: Correcting Microphone Failure During Google Meets on Windows 11/10 Computers</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-videos-from-motorola-edge-40-neo-by-fonelab-android-recover-video/"><u>How to Rescue Lost Videos from Motorola Edge 40 Neo</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-xiaomi-redmi-k70-pro-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Xiaomi Redmi K70 Pro FRP Bypass Instantly</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-bypass-iphone-8-passcode-easily-video-inside-drfone-by-drfone-ios/"><u>In 2024, How to Bypass iPhone 8 Passcode Easily Video Inside | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-prodigious-earnings-with-youtube-studio-for-every-gadget/"><u>In 2024, Prodigious Earnings with YouTube Studio for Every Gadget</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-studyhistory-10-essential-youtube-historical-channels/"><u>In 2024, StudyHistory 10 Essential YouTube Historical Channels</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/is-your-data-safe-when-communicating-through-chatgpt/"><u>Is Your Data Safe When Communicating Through ChatGPT?</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshoot-and-eliminate-persistent-crashes-in-your-steam-applications/"><u>Troubleshoot and Eliminate Persistent Crashes in Your Steam Applications</u></a></li>
 </ul></div>
 

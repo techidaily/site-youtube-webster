@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Streamline Your Shoots  Top Lenses Recommended by Professionals\""
-date: 2024-09-08T18:23:58.686Z
-updated: 2024-09-15T19:29:39.632Z
+date: 2024-09-18T23:06:32.798Z
+updated: 2024-09-20T19:42:23.819Z
 tags:
   - ai video
   - ai youtube
@@ -106,6 +106,13 @@ Canon released this lens in 2014 and shortly after it has gained the reputation 
 
 ![camera lens](https://images.wondershare.com/filmora/article-images/camera-lens-rec01.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The EF 50mm is a fixed lens with an f-stop of 1.8, which means it is great for blurring your background and performs well even in poorer lighting conditions. This is a really great lens for an opinion or beauty vlog, where you do not need to move around. You can stay put right where the focus is sharpest and stand out by blurring everything behind you. If you tend to reuse the same sets then you do not really need a zoom feature. If your shooting conditions rarely change then it is just as easy to use a reliable fixed lens like the EF 50mm since you will not need to be rethinking your set up and adjusting.
 
 If you are looking for an inexpensive prime lens that lets you create sharp videos with shallow depth of field, you should look no further. This model is one of three Canon's 50mm prime lenses, although the [50mm f/1.4 USM](https://www.amazon.com/Canon-Standard-Medium-Telephoto-Cameras/dp/B00009XVCZ/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-3&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=11bff1019e73f0462c30a04e98d4874f&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTe) and [50mm f/1.2 'L' USM](https://www.amazon.com/Canon-50mm-Lens-Digital-Cameras/dp/B000I1YIDQ/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-4&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=d77bb813550f12e8aa72c8738dfaad81&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTeAiw&slot) models are much more expensive. You can use it to record a lot of different types of YouTube videos, like product reviews or makeup tutorials. The 50 mm f/1.8 STM lens doesn't have image stabilization technology so you should try to be as still as you can possibly be when shooting handheld videos in order to avoid recording footage that has a lot of camera shakes.
@@ -117,13 +124,6 @@ Recording **moving objects** from a distance requires you to have a lens that al
 #### 5.[Tamron SP AF 17-50mm f/2.8 XR Di II LD Aspherical (IF) Lens](https://www.amazon.com/Tamron-17-50mm-Aspherical-Canon-Cameras/dp/B000FZ3FY8)
 
 ![camera lens rec02](https://images.wondershare.com/filmora/article-images/camera-lens-rec02.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The Tamron's standard zoom lens offers good value at a very reasonable price. The maximum aperture is f/2.8, while the minimum aperture value this lens supports is f/32, which means that its users can easily experiment with different **depths of field.** The lens is **compatible with most Canon cameras** so if you have a camera from another manufacturer you may have to use the lens adapter in order to mount it onto your camera. Like most standard zoom lenses, Tamron SP AF model is **highly versatile** and you can use it to record **a wide range of different scenes**.
 
@@ -138,10 +138,10 @@ If you are using a 4k camera to shoot your YouTube video, check out [best camera
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -165,13 +165,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-mastering-youtubes-seo-landscape-a-keyword-expedition/"><u>[New] In 2024, Mastering YouTube's SEO Landscape A Keyword Expedition</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-for-social-media-savants-distinguishing-between-igtv-and-youtube-for-2024/"><u>[Updated] For Social Media Savants Distinguishing Between IGTV & YouTube for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-navigating-youtubes-featured-slot-a-detailed-explanimation/"><u>[Updated] Navigating YouTube's Featured Slot A Detailed Explanimation</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-motorola-moto-g24-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Motorola Moto G24 without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-realme-11x-5g-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Realme 11X 5G by Name | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-forgotten-the-voicemail-password-of-nubia-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Nubia? Try These Fixes</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/professional-mac-strategies-for-classroom-audio-recording/"><u>Professional Mac Strategies for Classroom Audio Recording</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-easily-trim-avi-files-top-16-video-cutter-tools-for-all-platforms/"><u>Updated 2024 Approved Easily Trim AVI Files Top 16 Video Cutter Tools for All Platforms</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/oosting-youtube-productions-best-mac-mp4-editors-guide-for-2024/"><u>[New] Boosting YouTube Productions Best Mac MP4 Editors Guide for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-screen-capture-expertise-3-cost-free-methods/"><u>[New] Screen Capture Expertise 3 Cost-Free Methods</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-static-to-sprightly-bouncing-text-animations/"><u>[Updated] 2024 Approved From Static to Sprightly Bouncing Text Animations</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-top-microphones-for-idevices-and-their-benefits-explained/"><u>[Updated] 2024 Approved Top Microphones for iDevices & Their Benefits Explained</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-unlimited-christmas-classics-9-films-available-for-no-charge/"><u>[Updated] 2024 Approved Unlimited Christmas Classics 9 Films Available for No Charge!</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-channel-up-the-essential-guide-to-computer-and-mobile-video-upload-for-2024/"><u>[Updated] Channel Up The Essential Guide to Computer & Mobile Video Upload for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-impressive-initiations-podcasting-prose-poems/"><u>2024 Approved Impressive Initiations Podcasting Prose Poems</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-play-avchd-mts-files-on-motorola-g54-5g-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to play AVCHD MTS files on Motorola G54 5G?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-how-to-select-a-youtube-gaming-introduction-maker-free-or-paid-edition/"><u>In 2024, How to Select a YouTube Gaming Introduction Maker Free or Paid Edition</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/iphone-is-disabled-here-is-the-way-to-unlock-disabled-iphone-15-plus-drfone-by-drfone-ios/"><u>iPhone Is Disabled? Here Is The Way To Unlock Disabled iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/mp4gifwindows/"><u>MP4ファイルをGIF画像にうまく変換するための、Windowsユーザー向け最適方法</u></a></li>
+<li><a href="https://techidaily.com/undeleted-lost-videos-from-realme-gt-neo-5-se-by-fonelab-android-recover-video/"><u>Undeleted lost videos from Realme GT Neo 5 SE</u></a></li>
 </ul></div>
 

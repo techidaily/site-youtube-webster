@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate DIY Guide for Building Powerful YouTube Ad Videos"
-date: 2024-09-11T16:42:40.491Z
-updated: 2024-09-15T16:52:56.215Z
+date: 2024-09-17T18:12:26.956Z
+updated: 2024-09-20T16:36:18.710Z
 tags:
   - ai video
   - ai youtube
@@ -110,10 +110,10 @@ Now, scroll down to the **Text** section, and add the relevant content in the av
 ![Create video with YouTube Video Builder with CTA ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-call-to-action-texts.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Step 3: Make Cosmetic Manipulations
@@ -122,22 +122,16 @@ From the **Pick a Font** section of the navigation bar, click the **Google Fonts
 
 ![Create video with YouTube Video Builder - change font ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-pickup-video-text-fonts.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Alternatively, you can leave the default one selected. When on the **Select Music** section, choose your preferred background music from the drop-down list that is present under the section.
 
 ![Create video with YouTube Video Builder with music ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-music-for-video.jpg)
-
-<!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Finally, click **Create video**, and wait while **YouTube Video Builder** takes you to the **Preview, Save, Share** section, and generates your video.
 
@@ -150,26 +144,32 @@ After the video is generated, play to preview the film. If everything looks good
 ![ YouTube Video Builder Video Preview and Save  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-save-preview-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 On the next page, click **Copy** to copy the video link, and share it with your friends, colleagues, and family members for their feedback.
 
 ![ YouTube Video Builder Video Copy Link  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-copy-link.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Next, scroll down to get to the **Create Campaign** section of the navigation bar, and from the left screen, click **Create campaign** to begin a campaign to promote your brand and/or product(s).
 
 ![ YouTube Video Builder Video Create Campaign ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-create-campaign.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Part 5: Tips for Making Good Video Ads with YouTube Video Builder
 
@@ -190,10 +190,10 @@ The bitter truth is, producing videos, especially for brand promotions requires 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -217,18 +217,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-advanced-approach-harnessing-watch-for-mac-unlock/"><u>[New] Advanced Approach Harnessing Watch for Mac Unlock</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/nhancing-video-content-iphoneipad-screen-capture-basics-for-2024/"><u>[New] Enhancing Video Content IPhone/iPad Screen Capture Basics for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-key-strategies-for-high-definition-iptv-logging/"><u>[New] In 2024, Key Strategies for High-Definition IPTV Logging</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-mmo-galaxy-the-finest-10-free-online-roleplayers/"><u>[New] MMO Galaxy The Finest 10 Free Online Roleplayers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/he-formula-to-fame-elevating-subscriber-numbers-on-youtube/"><u>[New] The Formula to Fame Elevating Subscriber Numbers on Youtube</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/he-ultimate-playbook-for-cutting-edge-youtube-studio-video-editing-for-2024/"><u>[New] The Ultimate Playbook for Cutting-Edge YouTube Studio Video Editing for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-top-tips-for-zooming-in-on-superior-skype-meetings-for-2024/"><u>[Updated] Top Tips for Zooming in on Superior Skype Meetings for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-explore-10-premier-historical-youtube-networks/"><u>2024 Approved Explore 10 Premier Historical Youtube Networks</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-why-are-my-videos-rotated-in-instagram-answers-needed/"><u>2024 Approved Why Are My Videos Rotated in Instagram? Answers Needed</u></a></li>
-<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Vivo Y27 5G | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Samsung Galaxy XCover 7 | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/interplay-hub-for-2024/"><u>ImageInterplay Hub for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solving-the-audio-malfunction-for-it-takes-two-a-guide-to-restoring-sound-on-pc/"><u>Solving the Audio Malfunction for 'It Takes Two': A Guide to Restoring Sound on PC</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/iscovering-the-best-music-playback-on-youtube-2023/"><u>[New] Discovering the Best Music Playback on YouTube, 2023</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-safe-no-cost-methods-for-youtube-tracks-extraction/"><u>[New] In 2024, Safe, No-Cost Methods for YouTube Tracks Extraction</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-affordable-hardware-achieve-peak-via-obs-tuning/"><u>[Updated] 2024 Approved Affordable Hardware - Achieve Peak via OBS Tuning</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-culinary-callings-30-unique-show-title-suggestions/"><u>[Updated] In 2024, Culinary Callings 30 Unique Show Title Suggestions</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-mastering-zoom-on-windows-10-a-step-by-step-guide/"><u>[Updated] In 2024, Mastering Zoom on Windows 10 A Step-by-Step Guide</u></a></li>
+<li><a href="https://win-blog.techidaily.com/beat-discord-connectivity-woes-with-our-expert-fix-it-manual/"><u>Beat Discord Connectivity Woes with Our Expert Fix-It Manual</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/te-your-vlogging-game-with-tripod-mastery/"><u>Elevate Your Vlogging Game with Tripod Mastery</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-set-up-and-play-games-on-your-tv-using-the-nintendo-switch-system/"><u>How to Set Up and Play Games on Your TV Using the Nintendo Switch System</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-beat-explorers-guide-online-pulse-sensors/"><u>In 2024, Beat Explorers’ Guide Online Pulse Sensors</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/upgrade-to-unparalleled-gaming-with-nvidias-new-app/"><u>Upgrade to Unparalleled Gaming with Nvidia’s New App</u></a></li>
 </ul></div>
 

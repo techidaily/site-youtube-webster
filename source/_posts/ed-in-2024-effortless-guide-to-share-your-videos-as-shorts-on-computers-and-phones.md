@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Effortless Guide to Share Your Videos as Shorts on Computers & Phones"
-date: 2024-09-14T19:21:06.208Z
-updated: 2024-09-15T16:05:48.521Z
+date: 2024-09-14T23:52:53.628Z
+updated: 2024-09-20T17:50:06.452Z
 tags:
   - ai video
   - ai youtube
@@ -107,13 +107,6 @@ On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the b
 
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Method 2: Record a Short Video and Upload
 
 **Step 1:** Record Shorts Video
@@ -123,13 +116,6 @@ Previously, I have introduced [how to record and upload YouTube Shorts videos](h
 Please note you will not see the **Create a Short** option if you are outsides of India.
 
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
@@ -147,11 +133,25 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -176,17 +176,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/mmutable-disabling-routine-for-youtubes-quick-content-for-2024/"><u>[New] Immutable Disabling Routine for YouTube’s Quick Content for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-rhythmic-revelations-top-15-vlogs-celebrating-music-creators-stories/"><u>[New] In 2024, Rhythmic Revelations Top 15 Vlogs Celebrating Music Creators' Stories</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-unveiling-hottest-fifa-football-content-on-youtube/"><u>[Updated] 2024 Approved Unveiling Hottest FIFA Football Content on YouTube</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-ideal-7-cameras-to-improve-your-youtube-vlogging-experience/"><u>[Updated] Ideal 7 Cameras To Improve Your YouTube Vlogging Experience</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-2023-techniques-sending-tweets-as-videos-to-whatsapp/"><u>[Updated] In 2024, 2023 Techniques Sending Tweets as Videos to WhatsApp</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-monetize-more-strategies-for-youtubes-updated-partner-plan-for-2024/"><u>[Updated] Monetize More Strategies for YouTube's Updated Partner Plan for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/find-and-install-hp-officejet-4650-printer-drivers-on-your-windows-computer/"><u>Find and Install HP Officejet 4650 Printer Drivers on Your Windows Computer</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-oppo-a2-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Oppo A2 to PC? | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-narrowing-down-the-video-platform-wars-youtube-shorts-against-tiktok/"><u>In 2024, Narrowing Down the Video Platform Wars YouTube Shorts Against TikTok</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/simplifying-life-comparing-claude-and-chatgpt-skills/"><u>Simplifying Life: Comparing Claude & ChatGPT Skills</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-get-back-lost-data-from-f5-pro-5g-by-fonelab-android-recover-data/"><u>The way to get back lost data from F5 Pro 5G</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/thriving-on-both-sides-work-and-youtubing-tips/"><u>Thriving on Both Sides Work and YouTubing Tips</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/icrotones-and-monikers-shorts-sound-roles-for-2024/"><u>[New] Microtones and Monikers Shorts' Sound Roles for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-blending-pictures-into-a-single-storyboard-image/"><u>[Updated] Blending Pictures Into a Single Storyboard Image</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-low-cost-subscriber-strategy-on-youtube-platform/"><u>[Updated] Low-Cost Subscriber Strategy on YouTube Platform</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-mind-puzzling-stats-a-graphed-journey-through-yt-17/"><u>[Updated] Mind-Puzzling Stats A Graphed Journey Through YT '17</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-unfolding-the-future-drones-in-modern-and-next-era/"><u>[Updated] Unfolding the Future Drones in Modern and Next Era</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/an-in-depth-guide-to-the-compression-technologies-behind-4k-video-quality/"><u>An In-Depth Guide to the Compression Technologies Behind 4K Video Quality</u></a></li>
+<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-infinix-note-30-vip-racing-edition-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Infinix Note 30 VIP Racing Edition ? Fix It Easily | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-audio-interfaces-unveiled-the-podcasters-must-have-list/"><u>Top Audio Interfaces Unveiled The Podcaster's Must-Have List</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/62987220-transform-videos-affordable-high-quality-effs/"><u>Transform Videos - Affordable, High-Quality Effs!</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-your-infinix-smart-8-hd-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Infinix Smart 8 HD Auto Does Not Work | Dr.fone</u></a></li>
 </ul></div>
 
