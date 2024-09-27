@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Eliminate Camera Sway  No Tripods, Allowed\""
-date: 2024-09-17T23:10:25.347Z
-updated: 2024-09-20T20:08:57.440Z
+date: 2024-09-22T19:33:16.938Z
+updated: 2024-09-26T17:59:35.324Z
 tags:
   - ai video
   - ai youtube
@@ -41,6 +41,13 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 Here are 3 of our favorite DIY tripods.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -55,6 +62,13 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
@@ -62,6 +76,19 @@ And here it is with hair clips:
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -81,10 +108,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
@@ -117,19 +144,6 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -149,5 +163,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/ow-to-embed-a-youtube-video-in-powerpoint-4-methods-for-2024/"><u>[New] How to Embed a YouTube Video in PowerPoint [4 Methods] for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-quick-fix-guide-repair-and-enhance-your-iphoneipadmacs-airdrop/"><u>[New] Quick-Fix Guide Repair and Enhance Your iPhone/iPad/Mac's AirDrop</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-cutting-edge-free-and-easy-top-11-youtube-title-inventors/"><u>[Updated] 2024 Approved Cutting-Edge, Free, and Easy Top 11 YouTube Title Inventors</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-creating-cash-flow-on-youtube-an-ad-free-blueprint-for-income-for-2024/"><u>[Updated] Creating Cash Flow on YouTube An Ad-Free Blueprint for Income for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-tap-into-endless-creativity-our-compilation-of-over-50-free-advertising-masterpieces/"><u>[Updated] In 2024, Tap Into Endless Creativity – Our Compilation of over 50 FREE Advertising Masterpieces</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-explore-creativity-best-drawing-software-for-ipados/"><u>2024 Approved Explore Creativity Best Drawing Software for iPadOS</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-the-playlist-pivot-new-order-strategies-for-youtube/"><u>2024 Approved The Playlist Pivot New Order Strategies for YouTube</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-infinix-hot-30i-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Infinix Hot 30i | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-practices-for-using-manycam-as-your-live-streaming-solution-and-virtual-camera/"><u>Best Practices for Using ManyCam as Your Live Streaming Solution and Virtual Camera</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-spice-up-viewers-innovative-cooking-channel-naming-tips/"><u>In 2024, Spice Up Viewers Innovative Cooking Channel Naming Tips</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/streaming-showdown-gopro-hero5-black-vs-virb-ultra-30/"><u>Streaming Showdown GoPro Hero5 Black Vs. VIRB Ultra 30</u></a></li>
+<li><a href="https://games-able.techidaily.com/uninterrupted-gaming-stop-pc-disconnections-of-ps4-remote/"><u>Uninterrupted Gaming: Stop PC Disconnections of PS4 Remote</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unlocking-the-secrets-a-comprehensive-guide-on-securing-your-microsoft-education-offer/"><u>Unlocking the Secrets: A Comprehensive Guide on Securing Your Microsoft Education Offer</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/bers-advanced-toolkit-studio-selection-over-beta-for-2024/"><u>YouTuber's Advanced Toolkit Studio Selection Over Beta for 2024</u></a></li>
+</ul></div>
 

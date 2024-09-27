@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Counteract Vibration for Clear Captures"
-date: 2024-09-14T20:41:10.130Z
-updated: 2024-09-20T23:23:23.436Z
+date: 2024-09-23T17:34:06.573Z
+updated: 2024-09-26T21:14:55.833Z
 tags:
   - ai video
   - ai youtube
@@ -55,13 +55,34 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -81,10 +102,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
@@ -94,13 +115,6 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -143,5 +157,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-channel-branding-hacks-10-must-use-online-tools/"><u>[New] 2024 Approved Channel Branding Hacks 10 Must-Use Online Tools</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-beat-buffers-archive-and-dissect-tunes/"><u>[New] In 2024, Beat Buffers Archive & Dissect Tunes</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-the-in-depth-technique-for-formulating-youtube-playlists/"><u>[New] In 2024, The In-Depth Technique for Formulating YouTube Playlists</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/pgrade-your-online-presence-with-premium-webcam-tech-for-2024/"><u>[New] Upgrade Your Online Presence with Premium Webcam Tech for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/a-guide-to-creative-use-of-supplementary-footage-b-roll/"><u>A Guide to Creative Use of Supplementary Footage (B-Roll)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ate-chart-watcher-master-your-video-rankings/"><u>Accurate Chart Watcher Master Your Video Rankings</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/hering-the-divergent-aspects-of-youtubes-and-dailymentions-for-2024/"><u>Deciphering the Divergent Aspects of YouTubes & DailyMentions for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-the-latest-canon-mp280-drivers-compatible-with-windows-operating-systems-win-10-8-and-7/"><u>Download the Latest Canon MP280 Drivers: Compatible with Windows Operating Systems (Win 10, 8 & 7)</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/expert-insights-choosing-the-best-tools-for-flawless-historical-image-restoration/"><u>Expert Insights: Choosing the Best Tools for Flawless Historical Image Restoration</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-tecno-pova-6-pro-5g-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Tecno Pova 6 Pro 5G Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-unlocking-potential-snapchat-insights-for-companies/"><u>In 2024, Unlocking Potential Snapchat Insights for Companies</u></a></li>
+<li><a href="https://apple-account.techidaily.com/overcoming-the-hurdles-restart-your-adventure-in-maplestory-with-these-fixes/"><u>Overcoming the Hurdles: Restart Your Adventure in Maplestory with These Fixes!</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Oppo K11x | Dr.fone</u></a></li>
+</ul></div>
 

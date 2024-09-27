@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Shine On  Mastering the Art of Illumination for YouTube Videos\""
-date: 2024-09-17T17:46:11.376Z
-updated: 2024-09-20T21:52:06.687Z
+date: 2024-09-19T20:29:29.606Z
+updated: 2024-09-26T22:36:35.547Z
 tags:
   - ai video
   - ai youtube
@@ -66,15 +66,22 @@ Most home lighting is warmer in its color temperature. If you want to use your h
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1. Light Control
@@ -87,18 +94,18 @@ The most common setup for studio lighting is 3-point lighting. For this kind of 
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
 To minimize the shadows on your right side, use a weaker light as a fill light. You don’t want your fill light to completely eliminate all your shadows or else your shot will look flat.
 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3. 4-Point Lighting
 
@@ -109,10 +116,10 @@ What you’ll need to ensure that your background is sufficiently lit is 4-point
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Touch Up YouTube Videos with Filmora
@@ -142,5 +149,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-fixed-youtube-shorts-just-watch-and-enjoy/"><u>[New] 2024 Approved Fixed YouTube Shorts - Just Watch and Enjoy</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-mastering-youtube-earnings-a-monetization-checklist/"><u>[Updated] 2024 Approved Mastering YouTube Earnings A Monetization Checklist</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-tunefabs-top-screen-recorder-picks-for-2024/"><u>[Updated] Tunefab's Top Screen Recorder Picks for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-itel-a05s-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Itel A05s Without Power Button | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/capture-everything-with-ease-the-sx70-reviewed/"><u>Capture Everything with Ease - The SX70 Reviewed!</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/enjoying-your-favorite-steam-titles-off-the-grid/"><u>Enjoying Your Favorite Steam Titles Off the Grid</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-channel-identity-made-simple-with-these-top-11-zero-cost-tools/"><u>In 2024, Channel Identity Made Simple with These Top 11 Zero-Cost Tools</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-empowering-audiences-the-playlist-sharing-approach/"><u>In 2024, Empowering Audiences The Playlist Sharing Approach</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-how-to-take-advantage-of-itunes-for-video-capture/"><u>In 2024, How to Take Advantage of iTunes for Video Capture</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ring-video-profits-dailymotion-vs-youtube-insights-for-2024/"><u>Mastering Video Profits Dailymotion Vs. YouTube Insights for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-2024-approved-pawprint-echoes-a-collection-of-dognoise-tracks/"><u>New 2024 Approved Pawprint Echoes A Collection of Dognoise Tracks</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Pro Shortcuts Every YouTuber Needs - The Top 20 List\""
-date: 2024-09-18T18:56:29.862Z
-updated: 2024-09-20T19:10:33.737Z
+date: 2024-09-21T19:07:27.047Z
+updated: 2024-09-26T23:51:04.140Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,13 @@ With that said, the following two-columned tables give you detailed information 
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 1: YouTube Playback Hotkeys
 
 While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
@@ -65,13 +72,6 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 3: Manage Playback Speed
 
 This category contains information on increasing or decreasing the playback speed of a YouTube video:
@@ -80,6 +80,13 @@ This category contains information on increasing or decreasing the playback spee
 | ---------------------- | ----------------------- |
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 4: Managing the Captions
 
@@ -103,13 +110,6 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 6: Switching Between Screen Modes
 
 The shortcut keys given in this table enable you to switch between different screen modes:
@@ -124,6 +124,13 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -137,10 +144,10 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
@@ -184,5 +191,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-addressing-mute-problems-in-obs-live-recording-for-2024/"><u>[New] Addressing Mute Problems in OBS Live Recording for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-advanced-strategies-for-removing-background-in-figma-for-2024/"><u>[New] Advanced Strategies for Removing Background in Figma for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-talking-head-tricks-simple-steps-for-stunning-online-presence/"><u>[Updated] 2024 Approved Talking-Head Tricks Simple Steps for Stunning Online Presence</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-professionals-guide-adding-youtube-to-google-slides/"><u>[Updated] 2024 Approved The Professional's Guide Adding YouTube to Google Slides</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-8-key-money-making-moves-for-youtube-rookies-for-2024/"><u>[Updated] 8 Key Money-Making Moves for YouTube Rookies for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-strategies-for-editing-and-elevating-youtube-profiles/"><u>[Updated] In 2024, Strategies for Editing and Elevating YouTube Profiles</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-perfect-video-gear-starting-with-beginner-cameras/"><u>2024 Approved Perfect Video Gear Starting with Beginner Cameras</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/e-captivating-yt-thumbnails-fast/"><u>Create Captivating YT Thumbnails Fast!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-apps-from-itel-p40plus-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Apps from Itel P40+ to Another | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-oppo-a2-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Oppo A2 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-nubia-red-magic-8s-pro-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Nubia Red Magic 8S Pro to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/pioneering-editing-snapseed-for-the-newcomer/"><u>Pioneering Editing Snapseed for the Newcomer</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/1721380493945-scam-alert-fake-gpt-programs-may-lead-to-privacy-breaches/"><u>Scam Alert: Fake GPT Programs May Lead to Privacy Breaches</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/uncovering-the-lenovo-ideapad-experience-where-simplicity-meets-sleek-construction/"><u>Uncovering the Lenovo IdeaPad Experience - Where Simplicity Meets Sleek Construction</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-power-of-outdoor-wi-fi-with-netgears-orbi-rbs50y-a-detailed-analysis/"><u>Unveiling the Power of Outdoor Wi-Fi with Netgear's Orbi RBS50Y: A Detailed Analysis</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Ultimate Guide to Easy YouTube Subtitle and Closed Caption Addition for 2024"
-date: 2024-09-17T20:44:31.976Z
-updated: 2024-09-20T18:01:45.625Z
+date: 2024-09-20T17:55:20.242Z
+updated: 2024-09-27T00:52:54.886Z
 tags:
   - ai video
   - ai youtube
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/fa134e33a19af2a6d89131747e3b5172ee7c32958
 
  So, here we are going to show you two ways to add subtittles to video: directly or uploading caption or transcript files
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Adding subtitles and closed captions manually
 
  To add subtitles and closed captions to your YouTube video, fisrt, you should sign in to your YouTube account. On left right below 'Home' you will find 'My Channel'. It will direct you to your personal YouTube page. On the top, right next to your subscribers lays the 'Video manager', giving you the list of your uploaded videos.
@@ -57,6 +64,13 @@ thumbnail: https://thmb.techidaily.com/fa134e33a19af2a6d89131747e3b5172ee7c32958
  This will create a subtitle timeline right beneath the video. You can manage by dragging and expanding the subtitle duration according to the audio of the video. The subtitle will appear at the bottom of the video screen. Click 'publish' once done.
 
  An interruption might occur with appearing of subtitles in accordance with video. Hence a lot precision is required while doing so.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Uploading Caption or Transcript Files automatically
 
@@ -77,10 +91,10 @@ thumbnail: https://thmb.techidaily.com/fa134e33a19af2a6d89131747e3b5172ee7c32958
  This will create a subtitle timeline right beneath the video. You can manage by dragging and expanding the subtitle duration according to the audio of the video. The subtitle will appear at the bottom of the video screen. Click 'publish' once done.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3 Best Tools for add/managing video Subtitles/CC
@@ -100,10 +114,10 @@ thumbnail: https://thmb.techidaily.com/fa134e33a19af2a6d89131747e3b5172ee7c32958
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -125,5 +139,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-embedding-youtube-videos-tips-for-a-smooth-ppt-transition/"><u>[New] In 2024, Embedding YouTube Videos Tips for a Smooth PPT Transition</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-mememirth-your-joy-jolt-app/"><u>[New] MemeMirth Your Joy Jolt App</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-ultimate-guide-to-creating-catchy-youtube-channel-titles-for-blogging-and-filming-no-more-than-156-characters/"><u>[New] The Ultimate Guide to Creating Catchy Youtube Channel Titles For Blogging & Filming (No More than 156 Characters)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-niche-networking-smaller-bizs-video-strategies/"><u>[Updated] 2024 Approved Niche Networking Smaller Biz's Video Strategies</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-revolutionize-your-audience-youtube-marketing-101/"><u>[Updated] 2024 Approved Revolutionize Your Audience YouTube Marketing 101</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-bidding-on-shadows-the-2023-virtual-vault-showdown/"><u>[Updated] In 2024, Bidding on Shadows The 2023 Virtual Vault Showdown</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-youtube-caption-implementation-essentials/"><u>[Updated] In 2024, YouTube Caption Implementation Essentials</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-quick-tips-simplified-techniques-for-capturing-google-meets-for-2024/"><u>[Updated] Quick Tips Simplified Techniques for Capturing Google Meets for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-the-10-most-admirable-photo-frame-apps/"><u>[Updated] The 10 Most Admirable Photo Frame Apps</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-pro-iphone-tips-for-capturing-the-perfect-landscape-moments/"><u>2024 Approved Pro iPhone Tips for Capturing the Perfect Landscape Moments</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-prolonging-gopro-battery-usage-efficiency/"><u>2024 Approved Prolonging GoPro Battery Usage Efficiency</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-xiaomi-redmi-note-12-4g-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Xiaomi Redmi Note 12 4G Phones with/without a PC</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-solved-muted-youtube-shorts-appearance/"><u>In 2024, Solved Muted YouTube Shorts Appearance</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/real-time-streaming-solutions-with-manycam-premium-video-software-and-online-camera-alternatives/"><u>Real-Time Streaming Solutions with ManyCam: Premium Video Software & Online Camera Alternatives</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ronized-screenscapes-youtube-clips-in-tv-loops/"><u>Synchronized Screenscapes YouTube Clips in TV Loops</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unlock Your YouTube Potential  Expert Tips on Writing Video Outlines for 2024\""
-date: 2024-09-14T21:18:49.949Z
-updated: 2024-09-20T19:20:29.522Z
+date: 2024-09-25T21:14:20.489Z
+updated: 2024-09-27T01:56:18.962Z
 tags:
   - ai video
   - ai youtube
@@ -44,6 +44,13 @@ You have a great idea for a video, but you’re just not sure how to express it 
 
 Here are some things to do before you start writing your script for YouTube:
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
@@ -57,10 +64,10 @@ Once you have gathered enough ideas for the YouTube video, the next step is to f
 Now that you're ready to sit down and write, here's what you do:
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Create an outline for your story
@@ -68,10 +75,10 @@ Now that you're ready to sit down and write, here's what you do:
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Set the tone
@@ -110,18 +117,18 @@ After writing the script, the next step is to invite a trusted friend or family 
 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
 
 Creating subtitles with Wondershare Filmora is very easy and a newbie can easily add relevant texts to the video they are trying to edit with Filmora. You just simply need to launch Wondershare Filmora and import the video that you want to edit. Now, go to the Titles tab and select the template that you want to pick and drag it on the timeline and click Apply. This way you can easily start adding texts and titles to your videos and let the alphabets narrate your story.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -144,5 +151,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-12-best-sites-for-downloading-yt-template-videos-for-2024/"><u>[New] 12 Best Sites for Downloading YT Template Videos for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-innovate-and-captivate-top-10-video-response-examples/"><u>[New] In 2024, Innovate and Captivate Top 10 Video Response Examples</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-understanding-tseries-financial-gain-in-youtube-space/"><u>[New] In 2024, Understanding TSeries' Financial Gain in YouTube Space</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ew-youtube-earning-rules-unveiled/"><u>[New] New YouTube Earning Rules Unveiled</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-revive-lost-media-icons-on-facebook-users-for-2024/"><u>[New] Revive Lost Media Icons on Facebook Users for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unlocking-language-top-8-free-and-accurate-srt-translators/"><u>[New] Unlocking Language Top 8 Free & Accurate SRT Translators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unveiling-20-must-try-youtube-tricks-to-boost-views/"><u>[New] Unveiling 20 Must-Try YouTube Tricks to Boost Views</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-insiders-look-at-top-9-free-platforms-for-designing-youtube-logos/"><u>[Updated] 2024 Approved Insider's Look at Top 9 FREE Platforms for Designing YouTube Logos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-finding-free-music-a-producers-handbook-for-2024/"><u>[Updated] Finding Free Music A Producer's Handbook for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-from-phone-ideas-to-online-presence-simple-youtube-channel-creation-tips/"><u>[Updated] From Phone Ideas to Online Presence Simple YouTube Channel Creation Tips</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-paws-and-play-androids-animal-simulator-choices/"><u>2024 Approved Paws and Play Android’s Animal Simulator Choices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-securely-downloading-youtube-audios-3-easy-and-reliable-methods/"><u>2024 Approved Securely Downloading YouTube Audios 3 Easy & Reliable Methods</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1723007238226-cant-reach-oculus-runtime-service-how-to-fix-your-oculus-rift/"><u>Can’t Reach Oculus Runtime Service? How to Fix Your Oculus Rift</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/al-domain-decisions-short-form-content-for-2024/"><u>Digital Domain Decisions Short-Form Content for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-recurrent-app-crashes-in-gmail-troubleshooting-steps/"><u>How to Fix Recurrent App Crashes in Gmail: Troubleshooting Steps</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/step-by-step-guide-executing-the-admin-version-of-command-prompt-on-a-windows-pc/"><u>Step-by-Step Guide: Executing the Admin Version of Command Prompt on a Windows PC</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/sh-creativity-with-top-10-youtube-short-video-editors/"><u>Unleash Creativity with Top 10 YouTube Short Video Editors</u></a></li>
+</ul></div>
 

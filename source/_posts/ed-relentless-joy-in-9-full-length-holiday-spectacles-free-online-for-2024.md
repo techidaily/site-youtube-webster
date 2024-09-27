@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Relentless Joy in 9 Full-Length Holiday Spectacles, Free Online for 2024\""
-date: 2024-09-19T18:31:07.389Z
-updated: 2024-09-20T18:06:54.562Z
+date: 2024-09-23T20:07:31.360Z
+updated: 2024-09-26T21:19:45.542Z
 tags:
   - ai video
   - ai youtube
@@ -43,15 +43,22 @@ A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and sta
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5. Richie Rich's Christmas wish
@@ -59,10 +66,10 @@ A Christmas story has long been one of the favorite Christmas movies for many fa
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6. On the second day of Christmas
@@ -74,10 +81,10 @@ This film stars the hulk Mark Ruffalo in one of his earlier roles as a store emp
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 8. A Christmas Carol
@@ -109,5 +116,21 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-mastering-instagram-boosting-post-engagement-strategies/"><u>[New] In 2024, Mastering Instagram Boosting Post Engagement Strategies</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/aximize-your-media-a-review-of-top-youtube-downloader-software-for-2024/"><u>[New] Maximize Your Media A Review of Top YouTube Downloader Software for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-how-to-live-without-youtube-shorts-for-2024/"><u>[Updated] How to Live Without YouTube Shorts for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/dive-into-windows-11-top-apps-and-games-list/"><u>Dive Into Windows 11 Top Apps and Games List</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/easy-routines-for-capturing-youtube-streams/"><u>Easy Routines for Capturing YouTube Streams</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/te-your-video-guide-with-annotations-on-youtube/"><u>Elevate Your Video Guide with Annotations on YouTube</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/how-to-screen-cast-or-record-your-imacs-display-quickly/"><u>How to Screen Cast or Record Your iMac's Display Quickly</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-navigating-the-world-of-hashtags-to-boost-your-gaming-video-yields/"><u>In 2024, Navigating the World of Hashtags to Boost Your Gaming Video Yields</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-soundtrack-synergy-inshot-edition/"><u>In 2024, Soundtrack Synergy InShot Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalized-virtual-self-portraits-unveiled-by-oculus/"><u>Personalized Virtual Self-Portraits Unveiled by Oculus</u></a></li>
+<li><a href="https://driver-install.techidaily.com/quickly-boost-mouse-performance-with-driver-updates/"><u>Quickly Boost Mouse Performance with Driver Updates</u></a></li>
+<li><a href="https://common-error.techidaily.com/reduce-excessive-wmi-cpu-activity/"><u>Reduce Excessive WMI CPU Activity</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ess-songstreaming-the-best-free-apps-for-youtube-music-on-android/"><u>Seamless Songstreaming The Best Free Apps for YouTube Music on Android</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-6-advanced-ai-linguistic-systems-unveiled/"><u>Top 6 Advanced AI Linguistic Systems Unveiled</u></a></li>
+</ul></div>
 

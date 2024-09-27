@@ -1,7 +1,7 @@
 ---
 title: "[New] How Big Should a Good Thumbnail Be? YouTube's Ultimate Guide for 2024"
-date: 2024-09-14T19:52:46.777Z
-updated: 2024-09-20T16:59:54.810Z
+date: 2024-09-20T01:20:45.224Z
+updated: 2024-09-26T16:10:19.719Z
 tags:
   - ai video
   - ai youtube
@@ -73,6 +73,13 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 ![set video thumbnail](https://images.wondershare.com/filmora/article-images/video-thumbnail2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * You will be able to see a button right next to the image – **Custom thumbnail**. Click on the button and you can upload a set of images of your choice as the thumbnail of your video.
 * Once done you can see the custom image just uploaded as the thumbnail of your video.
 
@@ -96,12 +103,26 @@ To change the thumbnail on an already uploaded video you need to follow these st
 
 ![best thumbnail size](https://images.wondershare.com/filmora/article-images/change-thumbnail6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: Q&A-- About YouTube Thumbnail Images
 
 You may want to know:
 
 * [**Question 1:** **How do I make my youtube thumbnail less than 2mb?**](#question1)
 * [**Question 2:** **How can I create an attractive youtube thumbnail?**](#question2)
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. How do I make my youtube thumbnail less than 2mb?
 
@@ -111,6 +132,13 @@ YouTube will not allow you to upload a custom thumbnail image if it is bigger th
 * 2\. Now go to the File menu and click **Save as** then select JPEG picture
 * 3\. Select the location you want the file to be saved to
 * 4\. The thumbnail picture will be reduced to Kilobytes only while maintaining the image quality
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. How can I create an attractive youtube thumbnail?
 
@@ -124,13 +152,6 @@ Let's see how you can create your thumbnail using Wondershare Filmora:
 
 **[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 2\. [Try Wondershare PixStudio>>](https://tools.techidaily.com/wondershare/fotophire/download/)
 
 Wondershare PixStudio provides you massive pre-designed templates which help you to create attractive YouTube Thumbnail. Let’s see the video below and see how you can design your YouTube Thumbnail easily.
@@ -143,18 +164,18 @@ With Canva you can make a distinct and stand-out YouTube thumbnail image. Canva 
 
 To download the image without the watermark you’ll need to sign-up for a premium account on the Canva.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **To sum up**
 
 YouTube thumbnail plays an important part for the audience's first impression on your video. And it is of essential essence as it can attract more viewers to your content. So you should get the right **youtube thumbnail size** before you start customing your thumbnail. We’ve gone through all the detailed requirements of **youtube thumbnail size** and how to make the best thumbnail by using the best software solutions. Please leave your comments below if any suggestions. We'd love to hear them!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -175,5 +196,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-find-your-perfect-match-top-8-mirrorless-cameras-for-live-streams/"><u>[New] 2024 Approved Find Your Perfect Match Top 8 Mirrorless Cameras For Live Streams</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-rethink-your-classic-movies-best-swaps-7/"><u>[New] 2024 Approved Rethink Your Classic Movies - Best Swaps #7</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rom-camera-clicks-to-youtube-views-mobiles-in-cinematic-success-for-2024/"><u>[New] From Camera Clicks to YouTube Views Mobiles in Cinematic Success for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-top-10plus-best-free-online-screen-recorders/"><u>[New] Top 10+ Best Free Online Screen Recorders</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-becoming-an-economic-force-a-guide-to-earning-on-youtube/"><u>[Updated] Becoming an Economic Force A Guide to Earning on YouTube</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-from-pitch-to-peak-steps-for-effective-adobe-audition-fades/"><u>[Updated] From Pitch to Peak Steps for Effective Adobe Audition Fades</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-instantly-access-all-episodes-premium-downloader-tools-reviewed/"><u>[Updated] Instantly Access All Episodes Premium Downloader Tools Reviewed</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unleash-creativity-with-top-10-phone-apps-adding-stickers-to-images/"><u>[Updated] Unleash Creativity with Top 10 Phone Apps Adding Stickers to Images</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-trending-upward-amplifying-your-youtube-audience/"><u>2024 Approved Trending Upward Amplifying Your YouTube Audience</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/expert-advice-from-tomhardwareexperts-mastering-tech-and-gadget-performance/"><u>Expert Advice From TomHardwareExperts: Mastering Tech and Gadget Performance</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ring-mobile-youtube-usage-on-different-oses/"><u>Exploring Mobile YouTube Usage on Different OSes</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/lines-to-frame-your-youtube-creation-flow-for-2024/"><u>Guidelines to Frame Your YouTube Creation Flow for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-xiaomi-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Xiaomi</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-holistic-health-approaches-with-tech/"><u>In 2024, Holistic Health Approaches with Tech</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-making-funny-photos-no-fees-involved/"><u>In 2024, Making Funny Photos No Fees Involved</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-steps-to-restore-visual-clarity-to-youtube-videos/"><u>In 2024, Steps to Restore Visual Clarity to YouTube Videos</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reliable-user-guide-to-fix-zte-blade-a73-5g-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix ZTE Blade A73 5G Running Slow and Freezing | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-oppo-find-x7-ultra-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Oppo Find X7 Ultra Location | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-creators-converge-and-craft-visual-stories-in-youtube-studio-for-2024/"><u>Where Creators Converge and Craft Visual Stories in Youtube Studio for 2024</u></a></li>
+</ul></div>
 
