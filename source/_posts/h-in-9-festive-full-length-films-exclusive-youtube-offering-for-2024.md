@@ -1,7 +1,7 @@
 ---
 title: "\"Relish in 9 Festive, Full-Length Films  Exclusive YouTube Offering for 2024\""
-date: 2024-09-26T01:46:11.305Z
-updated: 2024-09-27T00:17:09.264Z
+date: 2024-09-25T03:39:31.233Z
+updated: 2024-10-02T04:56:25.079Z
 tags:
   - ai video
   - ai youtube
@@ -35,35 +35,61 @@ If you are looking for Christmas entertainment this season you may be quick to l
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
 
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2. A smoky mountain Christmas
 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
+
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3. Ernest saves Christmas
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5. Richie Rich's Christmas wish
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6. On the second day of Christmas
 
@@ -72,13 +98,6 @@ This film stars the hulk Mark Ruffalo in one of his earlier roles as a store emp
 ### 7. Santa Who?
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 8. A Christmas Carol
 
@@ -89,13 +108,6 @@ In this film from 1984 George C Scott brings to life the role of Ebenezer Scroog
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -118,22 +130,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-ensuring-smooth-transition-livestreaming-old-videos-on-fb/"><u>[New] Ensuring Smooth Transition Livestreaming Old Videos on FB</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ow-to-get-more-subscribers-on-youtube-for-2024/"><u>[New] How to Get More Subscribers on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/nnovative-chroma-techniques-for-stunning-visual-storytelling-for-2024/"><u>[New] Innovative Chroma Techniques for Stunning Visual Storytelling for 2024</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/new-make-your-mark-with-the-hottest-tiktok-tags-and-trends-now/"><u>[New] Make Your Mark with the Hottest TikTok Tags & Trends Now</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/nique-stories-crafting-powerful-yt-narratives-for-2024/"><u>[New] Unique Stories Crafting Powerful YT Narratives for 2024</u></a></li>
-<li><a href="https://driver-error.techidaily.com/solved-adb-device-not-found-error-on-windows/"><u>[Solved] ADB Device Not Found Error on Windows</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-how-to-deal-with-youtube-trolls-and-negative-comments-for-2024/"><u>[Updated] How To Deal with YouTube Trolls and Negative Comments for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-smirk-sculptor-image-maker/"><u>[Updated] Smirk Sculptor Image Maker</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-exclusive-free-mcb-banner-designs/"><u>2024 Approved Exclusive Free MCB Banner Designs</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-the-economics-of-youtube-ad-revenues-per-1000-views/"><u>2024 Approved The Economics of YouTube Ad Revenues per 1000 Views</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-top-10-strategies-for-youtube-musicians-make-the-perfect-reaction-video/"><u>2024 Approved Top 10 Strategies for YouTube Musicians Make the Perfect Reaction Video</u></a></li>
-<li><a href="https://media-tips.techidaily.com/comprehensive-analysis-and-latest-insights-on-dfx-audio-enhancer-full-review-unveiled/"><u>Comprehensive Analysis and Latest Insights on DFX Audio Enhancer - Full Review Unveiled</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/connecting-with-clarity-4-ways-to-share-stories/"><u>Connecting with Clarity 4 Ways to Share Stories</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ng-excellence-a-guide-to-maximize-money-from-mobile-youtube-viewers/"><u>Earning Excellence A Guide to Maximize Money From Mobile YouTube Viewers</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-poco-x5-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Poco X5 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/leading-places-to-embark-on-a-freelancing-quest/"><u>Leading Places to Embark on a Freelancing Quest</u></a></li>
-<li><a href="https://win11.techidaily.com/m4a202c/"><u>M4Aファイル編集プログラム202C最新リリースをお勧めします!音質無傷の維持が可能</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nhancing-user-interaction-with-well-sized-thumbnails/"><u>[New] Enhancing User Interaction with Well-Sized Thumbnails</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-achieve-seamless-video-playback-by-removing-bars-in-youtube/"><u>[New] In 2024, Achieve Seamless Video Playback by Removing Bars in YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-flip-the-script-unique-approaches-to-retracing-yt-content/"><u>[Updated] 2024 Approved Flip the Script Unique Approaches to Retracing YT Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-mastering-the-basics-of-asmr-video-content/"><u>[Updated] 2024 Approved Mastering the Basics of ASMR Video Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-youtube-introduction-guide-2-approaches-explored/"><u>[Updated] 2024 Approved YouTube Introduction Guide - 2 Approaches Explored</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-dangerous-depths-top-10-roguelite-showdowns/"><u>[Updated] Dangerous Depths Top 10 Roguelite Showdowns</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-heart-of-storytelling-engaging-dialogue-in-scripts/"><u>[Updated] The Heart of Storytelling Engaging Dialogue in Scripts</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-grow-picture-dimensions-maintain-fidelity/"><u>2024 Approved Grow Picture Dimensions, Maintain Fidelity</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-leading-websites-guide-to-extracting-youtube-template-videos/"><u>2024 Approved Leading Websites' Guide to Extracting Youtube Template Videos</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-mirthful-methodology-making-memes-for-free/"><u>2024 Approved Mirthful Methodology Making Memes for Free</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/beginners-handbook-connect-with-servers-using-windows-telnet-protocol/"><u>Beginner's Handbook: Connect with Servers Using Windows Telnet Protocol</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/petcube-cam-review/"><u>Petcube Cam Review</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/read-reviews-from-trusted-tech-websites-and-communities-for-real-world-insights-on-build-stability-customer-support-warranty-offerings-and-upgrade-paths/"><u>Read Reviews From Trusted Tech Websites and Communities for Real-World Insights on Build Stability, Customer Support, Warranty Offerings, and Upgrade Paths.</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ify-your-content-creation-mobile-friendly-youtube-channel-setup-guide-for-2024/"><u>Simplify Your Content Creation Mobile-Friendly YouTube Channel Setup Guide for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-and-repair-steps-to-resolve-user3-2-dll-errors/"><u>Troubleshooting and Repair Steps to Resolve User3 2 DLL Errors</u></a></li>
 </ul></div>
 

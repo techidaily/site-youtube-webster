@@ -1,7 +1,7 @@
 ---
 title: "Creating Compelling Solo Videos on a Budget"
-date: 2024-09-16T22:36:59.683Z
-updated: 2024-09-20T16:47:55.453Z
+date: 2024-09-25T23:07:09.783Z
+updated: 2024-10-02T05:50:14.514Z
 tags:
   - ai video
   - ai youtube
@@ -42,7 +42,21 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -58,13 +72,6 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -79,6 +86,13 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -86,6 +100,13 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -102,13 +123,6 @@ In the video, he says there’s about 8 feet (2.4 meters) between himself and hi
 It is difficult to know whether the movement in his eyes is caused by not being far enough from the lens or from his horizontal nystagmus condition in his eyes.
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Tips for Making a Talking Head Video Better
 
@@ -137,5 +151,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-how-to-leverage-igs-busiest-hours-for-your-content/"><u>[New] 2024 Approved How to Leverage IG's Busiest Hours for Your Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/op-11-cost-free-video-title-creator-tools-online-for-2024/"><u>[New] Top 11 Cost-Free Video Title Creator Tools Online for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-creating-hilarious-reactions-mastering-youtube-tricks-3-methods/"><u>[Updated] Creating Hilarious Reactions Mastering YouTube Tricks (3 Methods)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-filmmakers-choice-selecting-perfect-lenses-for-youtube-creation-for-2024/"><u>[Updated] Filmmaker's Choice Selecting Perfect Lenses for YouTube Creation for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-how-to-create-a-playlist-on-youtube-a-complete-guide/"><u>[Updated] How to Create a Playlist on Youtube - a Complete Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-direct-syncing-tweeting-videos-onto-snapchat-channels/"><u>[Updated] In 2024, Direct Syncing Tweeting Videos Onto Snapchat Channels</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-guide-to-creating-content-top-10-inclusive-video-ideas-for-anyone/"><u>[Updated] In 2024, Guide to Creating Content Top 10 Inclusive Video Ideas for Anyone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-the-mp3-essentials-guide-10-online-converters-reviewed/"><u>[Updated] In 2024, The MP3 Essentials Guide #10 Online Converters Reviewed</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-videopilot-hd-snapshot-guide-for-2024/"><u>[Updated] VideoPilot HD Snapshot Guide for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-formulating-final-fact-finding-flourishes/"><u>2024 Approved Formulating Final Fact-Finding Flourishes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/global-english-learning-via-pearson-services/"><u>Global English Learning via Pearson Services</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-samsung-galaxy-f15-5g-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Samsung Galaxy F15 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-effortlessly-embedding-visual-media-in-free-content-creation/"><u>In 2024, Effortlessly Embedding Visual Media in Free Content Creation</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-data-from-asus-rog-phone-7-ultimate-by-fonelab-android-recover-data/"><u>Undelete lost data from Asus ROG Phone 7 Ultimate</u></a></li>
+</ul></div>
 

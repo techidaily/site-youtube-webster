@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Dive Into Filmmaking  The Role of Lenses in Videos\""
-date: 2024-09-20T23:34:02.269Z
-updated: 2024-09-26T22:06:59.197Z
+date: 2024-10-01T04:17:35.108Z
+updated: 2024-10-01T23:58:12.036Z
 tags:
   - ai video
   - ai youtube
@@ -62,10 +62,10 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Vlogging With Each Focal Length Group
@@ -97,20 +97,13 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
 
@@ -127,16 +120,16 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
@@ -161,6 +154,13 @@ But do you even need a fast lens?
 * More expensive
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Optical Image Stabilization
 
@@ -197,14 +197,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-avatar-makeover-building-your-cartoon-personality/"><u>[New] 2024 Approved Avatar Makeover Building Your Cartoon Personality</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-planning-a-dynamic-tiktok-outro-experience/"><u>[New] 2024 Approved Planning a Dynamic TikTok Outro Experience</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/iscover-the-best-3-platforms-for-video-consumption-post-youtube/"><u>[New] Discover the Best 3 Platforms for Video Consumption (Post-YouTube)</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-1-key-youtube-tactics-for-effective-brand-promotion/"><u>[Updated] In 2024, 1 Key YouTube Tactics for Effective Brand Promotion</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-slow-your-roll-thriving-in-the-world-of-sluggish-youtube-content-52-chars/"><u>[Updated] In 2024, Slow Your Roll Thriving in the World of Sluggish YouTube Content (52 Chars)</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-maximize-learning-free-tools-for-online-video-texts-for-2024/"><u>[Updated] Maximize Learning Free Tools for Online Video Texts for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-screensnapper-how-to-record-your-movies-on-tech-gear/"><u>[Updated] ScreenSnapper How to Record Your Movies on Tech Gear</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/secure-and-speed-up-your-connection-acers-bluetooth-driver-download-for-immediate-use/"><u>Secure & Speed Up Your Connection: Acer's Bluetooth Driver Download for Immediate Use</u></a></li>
-<li><a href="https://windows11.techidaily.com/steps-to-rectify-roblox-crashes-on-windows/"><u>Steps to Rectify Roblox Crashes on Windows</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/mass-1000-visionary-supporters-fast-track-style-for-2024/"><u>[New] Amass 1,000 Visionary Supporters Fast-Track Style for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rom-smartphone-stories-to-youtube-success-a-step-by-step-mobile-guide/"><u>[New] From Smartphone Stories to YouTube Success A Step-by-Step Mobile Guide</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-improve-conference-efficiency-webcam-assisted-powerpoint-for-2024/"><u>[New] Improve Conference Efficiency Webcam-Assisted PowerPoint for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/astering-revenue-on-youtube-shorts-for-2024/"><u>[New] Mastering Revenue on YouTube Shorts for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-high-resolution-drone-flights-a-mi-examination/"><u>[Updated] High-Resolution Drone Flights A MI Examination</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-simplify-curating-create-a-flawless-youtube-playlist-today/"><u>2024 Approved Simplify Curating Create a Flawless YouTube Playlist Today</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/adding-linguistic-accessibility-to-your-igtv-videos/"><u>Adding Linguistic Accessibility to Your IGTV Videos</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/compreenasian-guide-to-beautiful-collage-making-for-2024/"><u>Compreenasian Guide to Beautiful Collage Making for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-from-your-apple-iphone-15-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code From your Apple iPhone 15</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-influencing-instagram-step-by-step-tutorial/"><u>In 2024, Influencing Instagram Step-by-Step Tutorial</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-on-apple-iphone-15-pro-max-by-drfone-ios/"><u>In 2024, Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives On Apple iPhone 15 Pro Max</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-viral-vibes-top-10-playlists-for-up-and-coming-video-shorts/"><u>In 2024, Viral Vibes Top 10 Playlists for Up-and-Coming Video Shorts</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/resolving-secure-socket-layer-discrepancies-in-microsoft-windows/"><u>Resolving Secure Socket Layer Discrepancies in Microsoft Windows</u></a></li>
 </ul></div>
 

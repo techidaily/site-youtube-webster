@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Channel Up  The Essential Guide to Computer & Mobile Video Upload for 2024\""
-date: 2024-09-19T20:56:37.633Z
-updated: 2024-09-20T18:02:36.217Z
+date: 2024-09-27T04:57:11.395Z
+updated: 2024-10-01T23:18:02.227Z
 tags:
   - ai video
   - ai youtube
@@ -81,6 +81,13 @@ For macOS 10.12 or later
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
 
 The process of **uploading YouTube Shorts** from the mobile app is fairly simple compared to the method used on a computer. While using the app, you can either upload an existing video or shoot a new one from within the program itself then and there, add music and text, and upload it right away. Both these methods are explained below in detail:
@@ -94,6 +101,19 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 #### Step 1: Select a Video to Upload
 
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
@@ -118,10 +138,10 @@ Please note you will not see the **Create a Short** option if you are outsides o
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
@@ -141,10 +161,10 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Conclusion**
@@ -174,5 +194,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-deciphering-youtube-popularity-factors-for-higher-placement/"><u>[New] 2024 Approved Deciphering YouTube Popularity Factors for Higher Placement</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-unleashing-creativity-mastering-the-art-of-360-degree-videography-for-youtube/"><u>[New] 2024 Approved Unleashing Creativity Mastering the Art of 360-Degree Videography for YouTube</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-visualizing-the-spectrum-of-curves-in-photoshop/"><u>[New] 2024 Approved Visualizing the Spectrum of Curves in Photoshop</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ssential-guide-top-10-steps-for-instructors-on-youtube-channels/"><u>[New] Essential Guide Top 10 Steps for Instructors on YouTube Channels</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-guide-to-adding-audio-files-to-inshots-library/"><u>[New] Guide to Adding Audio Files to InShot's Library</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/atch-your-mentality-unveil-your-youtuber-type-through-6-quizzes-for-2024/"><u>[New] Match Your Mentality Unveil Your YouTuber Type Through 6 Quizzes for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ltimate-screen-companionship-the-right-cms-guidebook/"><u>[New] Ultimate Screen Companionship The Right CMS Guidebook</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-detailed-guide-crafting-powerful-video-thumbnails-for-content-marketing-for-2024/"><u>[Updated] Detailed Guide Crafting Powerful Video Thumbnails for Content Marketing for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-identifying-and-tapping-into-youtubes-hidden-niches/"><u>[Updated] Identifying and Tapping Into Youtube's Hidden Niches</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-mirth-in-monotony-the-top-20-fb-detention-reprieve-humor/"><u>[Updated] Mirth in Monotony The Top 20 Fb Detention Reprieve Humor</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-digital-divas-top-ten-gamers-on-youtube/"><u>2024 Approved Digital Divas Top Ten Gamers on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-evolution-of-engagement-key-post-vidcon-events/"><u>2024 Approved Evolution of Engagement Key Post-VidCon Events</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-stop-frames-dropping-obs-troubleshooting-guide/"><u>2024 Approved Stop Frames Dropping OBS Troubleshooting Guide</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/chuckle-chipmunks-robotic-jokesters/"><u>Chuckle Chipmunks Robotic Jokesters</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/complete-evaluation-the-dji-inspire-1-unveiled-for-2024/"><u>Complete Evaluation The DJI Inspire 1 Unveiled for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/discover-the-ultimate-list-of-15-no-cost-subtitle-software-options/"><u>Discover the Ultimate List of 15 No-Cost Subtitle Software Options</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-xiaomi-redmi-12-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Xiaomi Redmi 12 to New Phone | Dr.fone</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/mastering-dpi-settings-with-latest-windows-11-release/"><u>Mastering DPI Settings with Latest Windows 11 Release</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ers-guide-to-top-5-game-microphones/"><u>Vloggers’ Guide to Top 5 Game Microphones</u></a></li>
+</ul></div>
 

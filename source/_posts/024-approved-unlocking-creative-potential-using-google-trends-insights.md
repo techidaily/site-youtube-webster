@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Unlocking Creative Potential Using Google Trends Insights\""
-date: 2024-09-20T01:49:46.764Z
-updated: 2024-09-27T02:50:22.638Z
+date: 2024-09-25T16:33:47.944Z
+updated: 2024-10-02T04:02:53.577Z
 tags:
   - ai video
   - ai youtube
@@ -52,10 +52,10 @@ Unless you do news or political commentary on your channel these probably aren�
 To get information more relevant to your channel you’re going to have to do some filtering.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Getting Results That Matter to You
@@ -67,13 +67,6 @@ Then click from 'Daily Search Trends' to 'Realtime Search Trends'.
 On top you will see two drop-down menus, one is for the category and one is for location.
 
 ![Google Trends Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-video-ideas.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Under **All categories** select the general theme your channel falls under.
 
@@ -95,6 +88,13 @@ Having something to say doesn’t have to mean having a strong opinion. If you j
 
 Clicking on these results will give you more specific data including how often the topic has been searched recently and links to recent news articles. These can give you a better idea of why it is trending and help you come up with what you want to say.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: Battle of the Keywords
 
 Once you have a topic in mind for your next video – whether it came from Google Trends or your own noggin – think about what the most important keyword for that topic might be.
@@ -105,16 +105,16 @@ Once you have a keyword in mind, type it into the Explore bar at the top of your
 
 ![Google Trends Keywords YouTube Video](https://images.wondershare.com/filmora/article-images/explore-topic-in-google-trends.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 What happens after you click **enter** is pretty much magic. Say I want to make a video on how to use Filmora. The first thing I’ll type into that Explore bar is ‘Filmora’.
 
 ![Google Trends YouTube Video Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You can see near the top that this chart represents searches for the topic over the last 5 years, which isn’t necessarily useful (although it is sort of cool that you can see when Filmora was ‘born’). I’m going to narrow that down to results from the U.S in the last week.
 
@@ -135,10 +135,16 @@ Although, when you do a comparison like this you should also go to YouTube and s
 ![YouTube search Filmora Keyword](https://images.wondershare.com/filmora/article-images/google-trends-youtube-keyword-search.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _If my view of YouTube looks different from yours it’s because I’m using the [VidIQ plugin for Chrome](https://chrome.google.com/webstore/detail/vidiq-vision-for-youtube/pachckjkecffpdphbpmfolblodfkgbhl?hl=en). It’s free and it gives you all kinds of extra info about videos and channels._
@@ -180,18 +186,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/new-amplify-your-profile-pull-clever-hacks-that-work-on-tinder/"><u>[New] Amplify Your Profile Pull Clever Hacks That Work on Tinder</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/new-correcting-iphone-camera-focusing-errors-effectively/"><u>[New] Correcting iPhone Camera Focusing Errors Effectively</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-easy-setup-making-a-direct-path-for-youtube-subscribers/"><u>[New] In 2024, Easy Setup Making a Direct Path for YouTube Subscribers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-navigating-the-roadmap-to-financial-growth-through-video-ads-on-youtube/"><u>[New] In 2024, Navigating the Roadmap to Financial Growth Through Video Ads on YouTube</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-top-7-dslr-cameras-enhancing-real-time-online-interactions/"><u>[New] In 2024, Top 7 DSLR Cameras Enhancing Real-Time Online Interactions</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/1716069662633-new-integrated-recorder-functions-mate-10-20-and-p-series-p20-p10-phones-for-2024/"><u>[New] Integrated Recorder Functions Mate 10, 20 & P-Series (P20, P10) Phones. For 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-boost-your-mobile-film-game-best-9-camera-add-ons-for-vloggers/"><u>[Updated] Boost Your Mobile Film Game Best 9 Camera Add-Ons For Vloggers</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-expert-tips-for-efficiently-logging-google-online-gatherings/"><u>[Updated] In 2024, Expert Tips for Efficiently Logging GooGle Online Gatherings</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-unveiling-the-essence-of-top-tier-screen-recorders-with-obs-for-2024/"><u>[Updated] Unveiling the Essence of Top-Tier Screen Recorders with OBS for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-premium-automotive-traffic-cam-exploration/"><u>In 2024, Premium Automotive Traffic Cam Exploration</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-slapstick-suggestions-a-guide-to-hilarious-short-form-videography/"><u>In 2024, Slapstick Suggestions A Guide to Hilarious Short-Form Videography</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-cost-effective-camera-guidebook-for-2024/"><u>The Cost-Effective Camera Guidebook for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unraveling-windows-error-0xc00d36b4-sound-fixes/"><u>Unraveling Windows Error 0XC00D36B4: Sound Fixes</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/reative-freedom-the-best-9-online-editors-for-beginners-for-2024/"><u>[New] Creative Freedom The Best 9 Online Editors for Beginners for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-erase-unwanted-boards-from-old-youtube-videos-for-clearer-viewing/"><u>[New] In 2024, Erase Unwanted Boards From Old YouTube Videos for Clearer Viewing</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-expressiveness-in-yt-adopting-emojis/"><u>[New] In 2024, Expressiveness in YT Adopting Emojis</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-frame-by-frame-mastery-in-youtube-no-cost-required/"><u>[New] In 2024, Frame by Frame Mastery in YouTube - No Cost Required</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/treamline-content-discovery-leveraging-youtubes-featured-channel-guide-for-2024/"><u>[New] Streamline Content Discovery Leveraging Youtube's Featured Channel Guide for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-slice-and-capture-best-cam-reevaluation/"><u>[Updated] In 2024, Slice and Capture Best Cam Reevaluation</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-the-insiders-look-at-optimizing-youtube-video-audio/"><u>2024 Approved The Insider’s Look at Optimizing YouTube Video Audio</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/discover-the-process-of-disabling-and-deleting-your-account-with-chatgpt/"><u>Discover the Process of Disabling and Deleting Your Account with ChatGPT</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-7-ways-to-lock-apps-on-apple-iphone-se-2020-and-ipad-securely-drfone-by-drfone-ios/"><u>In 2024, 7 Ways to Lock Apps on Apple iPhone SE (2020) and iPad Securely | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-a-step-by-step-guide-to-finding-your-apple-id-from-your-iphone-15-plus-by-drfone-ios/"><u>In 2024, A Step-by-Step Guide to Finding Your Apple ID From Your iPhone 15 Plus</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-enhance-video-storytelling-with-smart-chapter-insertion-techniques-on-youtube/"><u>In 2024, Enhance Video Storytelling with Smart Chapter Insertion Techniques on YouTube</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-synergizing-visual-cues-with-the-right-musical-choices/"><u>In 2024, Synergizing Visual Cues with the Right Musical Choices</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/1723862706379-save-big-this-memorial-day-with-the-2024-asus-tuf-gaming-a15-laptop-now-for-a-steal-at-658/"><u>Save Big This Memorial Day with the 2024 Asus TUF Gaming A15 Laptop Now for a Steal at $658!</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/smart-shopping-top-7-mirrorless-cameras-under-1000/"><u>Smart Shopping Top 7 Mirrorless Cameras Under $1,000</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-samsungs-galaxy-a51-5g-an-ultimate-deal-on-cutting-edge-connectivity/"><u>Unveiling the Power of Samsung's Galaxy A51 5G: An Ultimate Deal on Cutting-Edge Connectivity</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/bes-revenue-per-million-views-an-insight-for-2024/"><u>YouTube's Revenue Per Million Views An Insight for 2024</u></a></li>
 </ul></div>
 

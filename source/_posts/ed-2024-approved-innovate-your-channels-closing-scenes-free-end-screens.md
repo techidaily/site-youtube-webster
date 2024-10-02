@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Innovate Your Channels' Closing Scenes  Free End Screens\""
-date: 2024-09-22T21:39:49.235Z
-updated: 2024-09-26T23:15:10.449Z
+date: 2024-09-28T00:18:54.021Z
+updated: 2024-10-01T20:43:57.960Z
 tags:
   - ai video
   - ai youtube
@@ -91,10 +91,10 @@ Here’s one for the Minecraft fans:
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
@@ -117,44 +117,56 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -177,22 +189,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-unveil-your-narrative-transforming-photos-to-videos-using-your-phone/"><u>[New] 2024 Approved Unveil Your Narrative Transforming Photos to Videos Using Your Phone</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-flourishing-in-virtual-dialogue-top-strategies-to-master-zoom-chats/"><u>[New] In 2024, Flourishing in Virtual Dialogue Top Strategies to Master ZOOM Chats</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ncover-the-hidden-gems-of-the-youtube-tv-experience-for-2024/"><u>[New] Uncover the Hidden Gems of the YouTube TV Experience for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-navigating-insta-fan-hollows-a-quick-guide/"><u>[Updated] 2024 Approved Navigating Insta Fan Hollows A Quick Guide</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-gastronomes-guidebook-culinary-videos/"><u>[Updated] 2024 Approved The Gastronome's Guidebook Culinary Videos</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-how-to-trim-youtube-videos-like-a-pro-for-2024/"><u>[Updated] How to Trim YouTube Videos Like a Pro for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-brief-basslines-and-rhythms-video-soundscapes/"><u>[Updated] In 2024, Brief Basslines & Rhythms Video Soundscapes</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-complete-insight-into-sierras-icloud-file-management/"><u>[Updated] In 2024, Complete Insight Into Sierra’s iCloud File Management</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-which-video-sharing-platform-prevails-analyzing-igtv-vs-youtube/"><u>2024 Approved Which Video Sharing Platform Prevails? Analyzing IGTV Vs. YouTube</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ing-viral-videos-on-youtube-a-strategic-plan-for-2024/"><u>Crafting Viral Videos on YouTube A Strategic Plan for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/effective-strategies-to-resolve-lost-arks-cannot-connect-error-and-reconnect-successfully/"><u>Effective Strategies to Resolve Lost Ark’s Cannot Connect Error and Reconnect Successfully</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-fix-oem-unlock-missing-on-xiaomi-redmi-12-5g-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Xiaomi Redmi 12 5G?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-xiaomi-redmi-note-12-pro-4g-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Xiaomi Redmi Note 12 Pro 4G Data? | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-macs-new-edge-converting-youtube-tracks-to-mp3/"><u>In 2024, Mac's New Edge Converting YouTube Tracks to MP3</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your Motorola Moto G04 | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/perfecting-your-punchline-kinemasters-way/"><u>Perfecting Your Punchline KineMaster's Way</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/unveiling-the-latest-in-electronics-a-tour-of-toms-hardware-domain/"><u>Unveiling the Latest in Electronics - A Tour of Tom's Hardware Domain</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-artists-toolbox-essential-video-tips-for-musicians-on-youtube/"><u>[New] 2024 Approved The Artist's Toolbox Essential Video Tips for Musicians on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-tips-and-tricks-for-professional-gamers-on-youtube/"><u>[New] 2024 Approved Tips & Tricks for Professional Gamers on Youtube</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-essential-watchers-the-1-10-fb-apps/"><u>[New] In 2024, Essential Watchers The #1-#10 FB Apps</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-no-cash-needed-try-these-free-youtube-subtitle-tools/"><u>[New] In 2024, No Cash Needed? Try These Free YouTube Subtitle Tools</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-stepwise-guide-to-optimizing-youtube-tagging-techniques/"><u>[Updated] 2024 Approved Stepwise Guide to Optimizing YouTube Tagging Techniques</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-hasty-thumbnail-crafting-for-fortnite-gameplay/"><u>[Updated] In 2024, Hasty Thumbnail Crafting for Fortnite Gameplay</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-get-the-latest-nvidia-geforce-rtx-2070-supers-drivers-on-your-windows-pc-update-guide/"><u>How to Get the Latest Nvidia GeForce RTX 2070 Supers Drivers on Your Windows PC (Update Guide)</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-comprehensive-guide-to-crafting-effective-reddit-posts/"><u>In 2024, The Comprehensive Guide to Crafting Effective Reddit Posts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-unlock-your-marketing-potential-with-our-50plus-free-youtube-banners/"><u>In 2024, Unlock Your Marketing Potential with Our 50+ Free YouTube Banners</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/push-past-limitations-showcase-videos-in-social-media-for-2024/"><u>Push Past Limitations Showcase Videos in Social Media for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/thinkpad-t420s-drivers-download-and-update-for-windows-11/"><u>ThinkPad T420s Drivers Download & Update For Windows 11</u></a></li>
+<li><a href="https://techtrends.techidaily.com/transcribe-your-musical-journey-step-by-step-on-moving-spotify-lists-to-plain-text/"><u>Transcribe Your Musical Journey: Step-by-Step on Moving Spotify Lists to Plain Text</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/ultimate-guide-sony-ps4-pro-4k-graphics-performance-analysis/"><u>Ultimate Guide: Sony PS4 Pro 4K Graphics Performance Analysis</u></a></li>
 </ul></div>
 

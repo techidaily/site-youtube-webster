@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Quick Guide to Softening YouTube Videos' Surroundings"
-date: 2024-09-14T22:59:42.869Z
-updated: 2024-09-20T18:40:46.684Z
+date: 2024-09-29T16:16:18.141Z
+updated: 2024-10-02T01:50:31.779Z
 tags:
   - ai video
   - ai youtube
@@ -71,6 +71,13 @@ If you need to blur the video background after shooting, you can use some video 
 
 Filmora is one of the most widely used video editing software among YouTubers. Its user-friendly interface and tutorial guide enables green-hands to start video editing quickly. Besides, you can find many free filters, effects, and elements pre-programmed, so you can use them directly without looking for presets and templates somewhere else.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Add Bokeh Filter to Video in Filmora
 
 There are about 20 bokeh effects available in filters and overlays. You can find them easily by typing bokeh in the search bar in Effects.
@@ -79,13 +86,26 @@ Note: you should select **Included** to see all bokeh effects pre-programmed in 
 
 ![ Filmora Bokeh effect ](https://images.wondershare.com/filmora/article-images/filmora9-bokeh-effect.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Double click the bokeh effect to preview the result, and if you find the bokeh effect fits the video, just drop it to the track above the video. And the bokeh filter or overlay will be applied to the video automatically.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Use Tilt-Shift Circle/Linear Effect to Blur Video Background
@@ -100,18 +120,24 @@ Here, I will select the **Tilt-Shift Circle** effect and drop it to the track ab
 
 ![ Filmora Tilt-Shift Circle effect](https://images.wondershare.com/filmora/article-images/apply-tilt-shift-circle-effect.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You see, the video background is blurred, and the people are highlighted. Now it's your turn to download the Filmora video editor and try it yourself.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -132,5 +158,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-stream.techidaily.com/new-10-best-travel-youtube-channels-you-may-want-to-follow/"><u>[New] 10 Best Travel Youtube Channels You May Want to Follow</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-end-scenes-unlocked-tutorials-to-enhance-viewing-experience/"><u>[New] 2024 Approved End Scenes Unlocked Tutorials to Enhance Viewing Experience</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-masterclass-in-picture-text-edits-and-overlays/"><u>[New] Masterclass in Picture Text Edits and Overlays</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-cultivating-your-persona-in-the-world-of-gamers/"><u>[Updated] 2024 Approved Cultivating Your Persona in the World of Gamers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-lead-the-pack-with-these-top-7-android-tools-against-ads/"><u>[Updated] 2024 Approved Lead the Pack with These Top 7 Android Tools Against Ads</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-thriving-on-screen-time-maximize-your-youtube-impact/"><u>[Updated] 2024 Approved Thriving on Screen Time Maximize Your YouTube Impact</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-capturing-the-horizon-expert-techniques-in-drone-filmmaking-for-2024/"><u>[Updated] Capturing the Horizon Expert Techniques in Drone Filmmaking for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-hour-high-viewers-the-best-of-youtube-now-for-2024/"><u>[Updated] Hour-High Viewers The Best of YouTube Now for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-device-friendly-tutorial-inserting-your-shorts-into-youtube/"><u>[Updated] In 2024, Device-Friendly Tutorial Inserting Your Shorts Into YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-mastering-the-art-of-customizing-your-youtube-channel-url/"><u>[Updated] In 2024, Mastering the Art of Customizing Your YouTube Channel URL</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-unlocking-youtube-tracks-three-free-safe-techniques-explored/"><u>[Updated] Unlocking YouTube Tracks Three Free, Safe Techniques Explored</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/acquiring-free-music-youtube-video-edition-for-2024/"><u>Acquiring Free Music YouTube Video Edition for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-down-tseries-income-strategy-on-youtube-platform-for-2024/"><u>Breaking Down TSeries' Income Strategy on YouTube Platform for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/chatgpt-limitations-the-7-puzzling-questions-it-struggles-with/"><u>ChatGPT Limitations: The 7 Puzzling Questions It Struggles With</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ng-edge-editors-scouting-the-ultimate-tools-for-youtube-shorts-for-2024/"><u>Cutting Edge Editors Scouting the Ultimate Tools for YouTube Shorts for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-nubia-red-magic-9-pro-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of Nubia Red Magic 9 Pro?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-upgrade-iphone-11-pro-max-without-losing-any-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade iPhone 11 Pro Max without Losing Any Data? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-renewal-of-photo-viewing-capabilities-in-windows-10-guide/"><u>In 2024, Renewal of Photo Viewing Capabilities in Windows 10 - Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/form-your-content-3-effective-techniques-for-youtube-reaction-magic-for-2024/"><u>Transform Your Content 3 Effective Techniques for YouTube Reaction Magic for 2024</u></a></li>
+</ul></div>
 

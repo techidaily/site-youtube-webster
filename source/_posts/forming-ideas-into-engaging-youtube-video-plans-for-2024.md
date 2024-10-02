@@ -1,7 +1,7 @@
 ---
 title: "Transforming Ideas Into Engaging YouTube Video Plans for 2024"
-date: 2024-09-16T22:17:28.708Z
-updated: 2024-09-20T20:31:44.212Z
+date: 2024-09-29T17:42:05.873Z
+updated: 2024-10-02T05:19:20.792Z
 tags:
   - ai video
   - ai youtube
@@ -44,24 +44,38 @@ You have a great idea for a video, but you’re just not sure how to express it 
 
 Here are some things to do before you start writing your script for YouTube:
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Find an area that is not distracting
 
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Writing a Script for a YouTube Video
 
 Now that you're ready to sit down and write, here's what you do:
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Create an outline for your story
 
@@ -70,13 +84,6 @@ The first step in writing a script is to develop an outline for the story. You m
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Just keep writing
 
@@ -105,10 +112,10 @@ While you are scripting and focusing on the information you want to deliver, it�
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## After Writing your YouTube Video Script
@@ -144,5 +151,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/mmutable-disabling-routine-for-youtubes-quick-content-for-2024/"><u>[New] Immutable Disabling Routine for YouTube’s Quick Content for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-rhythmic-revelations-top-15-vlogs-celebrating-music-creators-stories/"><u>[New] In 2024, Rhythmic Revelations Top 15 Vlogs Celebrating Music Creators' Stories</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-ideal-7-cameras-to-improve-your-youtube-vlogging-experience/"><u>[Updated] Ideal 7 Cameras To Improve Your YouTube Vlogging Experience</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-effortless-selfie-sending-learn-the-technique-now/"><u>[Updated] In 2024, Effortless Selfie Sending - Learn the Technique Now</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-tips-and-tricks-for-designing-memorable-discord-pfps/"><u>[Updated] In 2024, Tips and Tricks for Designing Memorable Discord PFPs</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-transform-your-video-appeal-incorporating-own-thumbnails/"><u>[Updated] In 2024, Transform Your Video Appeal Incorporating Own Thumbnails</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-legally-nurtured-viewership-growth-tips-for-youtubers-for-2024/"><u>[Updated] Legally Nurtured Viewership Growth Tips for YouTubers for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-monetize-more-strategies-for-youtubes-updated-partner-plan-for-2024/"><u>[Updated] Monetize More Strategies for YouTube's Updated Partner Plan for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-vivo-s17-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Vivo S17 Fingerprint Lock</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-honor-magic-6-lite-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Honor Magic 6 Lite?</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-flawless-screen-recorders/"><u>In 2024, Flawless Screen Recorders</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-narrowing-down-the-video-platform-wars-youtube-shorts-against-tiktok/"><u>In 2024, Narrowing Down the Video Platform Wars YouTube Shorts Against TikTok</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/masterclass-in-capturing-video-frames-for-2024/"><u>Masterclass in Capturing Video Frames for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/pixelpilot-photovideo-slide-show-for-macos/"><u>PixelPilot Photovideo Slide Show for macOS</u></a></li>
+<li><a href="https://win-able.techidaily.com/say-goodbye-to-game-crashing-problems-with-this-fixed-version-of-insurgency-sandstorm/"><u>Say Goodbye to Game-Crashing Problems with This Fixed Version of Insurgency: Sandstorm</u></a></li>
+</ul></div>
 

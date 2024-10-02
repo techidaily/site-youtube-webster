@@ -1,7 +1,7 @@
 ---
 title: "[New] Building a Strong Online Presence with Attractive Video Thumbnails"
-date: 2024-09-24T01:20:25.789Z
-updated: 2024-09-26T16:19:53.603Z
+date: 2024-09-25T00:59:59.387Z
+updated: 2024-10-01T20:25:58.414Z
 tags:
   - ai video
   - ai youtube
@@ -48,10 +48,10 @@ Here are 5 easy tips for creating thumbnails that get views.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
@@ -69,10 +69,10 @@ People feel automatically connected and drawn into images that make eye contact.
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Use Graphics/Emojis that are On Topic
@@ -82,10 +82,10 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 Make sure the images you choose are relevant to the topic of your video.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Make Your Text Huge
@@ -93,6 +93,13 @@ Make sure the images you choose are relevant to the topic of your video.
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
 
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
 
@@ -105,13 +112,6 @@ A good rule for text is to use only 1-3 words. That way they won’t clutter you
 Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -134,22 +134,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-the-most-engaging-history-youtube-creators-for-students/"><u>[New] 2024 Approved The Most Engaging History YouTube Creators for Students</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-fast-revenues-forecasting-toolkit-for-vids/"><u>[New] In 2024, Fast Revenues Forecasting Toolkit for Vids</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-intelligent-viewing-syncing-youtube-with-televisions/"><u>[New] In 2024, Intelligent Viewing Syncing YouTube with Televisions</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/referred-choices-affordable-channels-for-newbie-monetizers/"><u>[New] Preferred Choices Affordable Channels for Newbie Monetizers</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-the-definitive-iphone-hdr-technique/"><u>[Updated] 2024 Approved The Definitive iPhone HDR Technique</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-crafting-closure-secrets-of-spectacative-video-sign-offs/"><u>[Updated] Crafting Closure Secrets of Spectacative Video Sign-Offs</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-innovators-crafting-marvels-digital-realm-for-2024/"><u>[Updated] Innovators Crafting Marvel's Digital Realm for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-optimal-flv-to-youtube-transformers-in-a-ranking-list/"><u>[Updated] Optimal FLV to YouTube Transformers in a Ranking List</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-understanding-instagrams-video-limit-policy/"><u>2024 Approved Understanding Instagram's Video Limit Policy</u></a></li>
-<li><a href="https://extra-information.techidaily.com/50plus-best-practices-in-video-text-design/"><u>50+ Best Practices in Video Text Design</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/enablingdisabling-network-discovery-on-windows-10-a-step-by-step-guide/"><u>Enabling/Disabling Network Discovery on Windows 10: A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/how-to-install-more-storage-inside-my-notebook-computer/"><u>How to Install More Storage Inside My Notebook Computer</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-sifting-commentary-on-youtube/"><u>In 2024, Sifting Commentary on YouTube</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/inside-ais-evolution-identifying-5-fundamental-variances-of-gpt-4-over-gpt-35/"><u>Inside AI's Evolution: Identifying 5 Fundamental Variances of GPT-4 over GPT-3.5</u></a></li>
-<li><a href="https://win-dash.techidaily.com/latest-intel-iris-plus-655-graphics-card-drivers-windows-10-and-11-supported/"><u>Latest Intel Iris Plus 655 Graphics Card Drivers: Windows 10 and 11 Supported</u></a></li>
-<li><a href="https://change-location.techidaily.com/pokemon-go-cooldown-chart-on-vivo-y200-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Vivo Y200 | Dr.fone</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/simple-troubleshooting-tactics-rectify-windows-10-sound-issues-in-five-steps/"><u>Simple Troubleshooting Tactics: Rectify Windows 10 Sound Issues in Five Steps</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-seamless-online-video-capture-hub/"><u>[New] 2024 Approved Seamless Online Video Capture Hub</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ootball-video-analysis-top-youtube-infographics/"><u>[New] Football Video Analysis Top YouTube Infographics</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-comprehending-the-language-of-youtube-seo/"><u>[New] In 2024, Comprehending the Language of YouTube SEO</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-top-6-efficient-urban-minecraft-residences-for-2024/"><u>[New] Top 6 Efficient Urban Minecraft Residences for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-beat-the-curve-top-facebook-ad-strategies/"><u>[Updated] 2024 Approved Beat the Curve Top Facebook Ad Strategies</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-how-to-deal-with-youtube-trolls-and-negative-comments/"><u>[Updated] 2024 Approved How To Deal with YouTube Trolls and Negative Comments</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-expedite-content-indexing-with-these-7-free-youtube-tag-extractors/"><u>[Updated] Expedite Content Indexing with These 7 FREE YouTube Tag Extractors</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-captivate-crowds-mastering-hashtag-use-in-high-traffic-short-videos/"><u>[Updated] In 2024, Captivate Crowds Mastering Hashtag Use in High-Traffic Short Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-discover-ultimate-asmr-microphones-for-clear-sounds/"><u>[Updated] In 2024, Discover Ultimate ASMR Microphones for Clear Sounds</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-optimized-video-scale-to-mac-aspect-proportion/"><u>[Updated] In 2024, Optimized Video Scale to Mac Aspect Proportion</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-instantly-professional-rapidly-crafting-valorant-game-imagery-for-2024/"><u>[Updated] Instantly Professional Rapidly Crafting Valorant Game Imagery for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-pillow-talk-with-prodigies-asmr-voices-for-slumber/"><u>[Updated] Pillow Talk with Prodigies ASMR Voices for Slumber</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-turning-tides-creative-methods-to-flip-your-youtube-video-for-2024/"><u>[Updated] Turning Tides Creative Methods to Flip Your YouTube Video for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-premium-editing-enhance-iphone-hdr-with-these-four-master-techniques-in-adobe/"><u>2024 Approved [Premium Editing] Enhance iPhone HDR with These Four Master Techniques in Adobe</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-thumbnail-design-101-for-video-promotion-on-youtube/"><u>2024 Approved Thumbnail Design 101 for Video Promotion on YouTube</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Tecno Spark 20 | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/how-to-nail-your-tweets-with-correct-videos-for-2024/"><u>How to Nail Your Tweets with Correct Videos for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-motion-clearer-captures-for-2024/"><u>Mastering Motion Clearer Captures for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/1726225598802-wmvwma-movavi/"><u>오피스 공간에서 제대로 WMV/WMA 비디오를 쉽게 바꾸기 - Movavi</u></a></li>
 </ul></div>
 

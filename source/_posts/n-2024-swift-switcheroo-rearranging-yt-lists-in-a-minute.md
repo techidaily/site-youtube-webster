@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Swift Switcheroo  Rearranging YT Lists in a Minute\""
-date: 2024-09-23T23:35:18.720Z
-updated: 2024-09-26T16:06:34.505Z
+date: 2024-09-26T06:11:26.343Z
+updated: 2024-10-01T18:48:28.231Z
 tags:
   - ai video
   - ai youtube
@@ -31,13 +31,6 @@ So, keep reading to learn how to reverse a YouTube playlist so you can watch the
 
 Below we've provided four different solutions to help you reverse your YouTube playlist on your computer:
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Using Chrome Web Extension
 
 One of the most straightforward and convenient methods of reversing the YouTube playlist is to install a Chrome browser extension that will let you play any playlist in the opposite order.
@@ -65,6 +58,13 @@ Step 3:
 
 ![add extension on youtube](https://images.wondershare.com/filmora/article-images/adding-iridium-for-youtube-to-chrome.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 4:Open a new page, visit [YouTube](https://www.youtube.com/), and a pop-up window will appear. Select"Close"to terminate it, and clickthe"Menu"(hamburger) icon in the top left corner of the screen. Next, scroll down and open your savedPlaylistthat you want to reverse.
 
 ![iridium for youtube](https://images.wondershare.com/filmora/article-images/iridium-for-youtube.png)
@@ -73,14 +73,14 @@ Step 5: Click the "Play All" option in the details section of the playlist and c
 
 ![set iridim for youtube](https://images.wondershare.com/filmora/article-images/setting-iridium-for-youtube-to-reverse-playlist.png)
 
-That's about it. You will now be able to watch a YouTube playlist in reverse order.
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+That's about it. You will now be able to watch a YouTube playlist in reverse order.
 
 ### Using The Third Website
 
@@ -97,16 +97,10 @@ Step 2: In the next step, open a new tab and visit the ["Playlist.Tools"](https:
 Step 3: Finally, click the "Sort" icon and select descending order to reverse your playlist. You can always return to the original sequence by clicking the "Original Sequence" option in the top right corner of the screen.
 
 <!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Changing the Ordering in Settings
@@ -120,6 +114,13 @@ Step 2: Hover over the video, and you will see two horizontal lines next to it. 
 You can also utilize the "Sort" option to reverse the playlist. To do so, click "Sort" at the top of the playlist above the videos and select "Date Published (Oldest)" to change the order.
 
 ![reverse youtube playlist order](https://images.wondershare.com/filmora/article-images/sorting-the-playlist-order-to-reverse-it.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## A Bonus Tip for YouTube Creator: Make Your Own YouTube Channel Trailer
 
@@ -140,10 +141,10 @@ Step 3: Scroll down on your channel's dashboard, select a video, and click the t
 ![youtube playlist reverse order](https://images.wondershare.com/filmora/article-images/adding-playlist-to-private-playlist-to-reverse-order.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Next, provide a name, set the privacy settings to "Private," and click "Create."
@@ -151,13 +152,6 @@ Next, provide a name, set the privacy settings to "Private," and click "Create."
 Step 4: In the final step, head to the Playlist tab, click "View Full Playlist" to open the new playlist, and click the "three dots" in the details area on the left. Next, select "Playlist Settings" and toggle the button next to "Add new videos to top of playlist" to enable it.
 
 You can now add more videos to your playlist, and each one will be added to the top. This method helps you arrange the YouTube playlist as you desire.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -186,15 +180,20 @@ So, keep reading to learn how to reverse a YouTube playlist so you can watch the
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ed-essential-guidelines-for-creating-compelling-youtube-shorts-templates-for-2024/"><u>[Updated] Essential Guidelines for Creating Compelling YouTube Shorts Templates for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-expert-techniques-for-professionalizing-mobile-based-youtube-thumbnails/"><u>[Updated] In 2024, Expert Techniques for Professionalizing Mobile-Based YouTube Thumbnails</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-top-10-tips-for-youtube-stars-perfecting-your-music-reaction-skills/"><u>[Updated] In 2024, Top 10 Tips for YouTube Stars Perfecting Your Music Reaction Skills</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-the-ultimate-guide-to-adjusting-to-new-facebook-ranking-criteria/"><u>[Updated] The Ultimate Guide to Adjusting to New Facebook Ranking Criteria</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-exploringexcellentcameraspost-mycam/"><u>2024 Approved ExploringExcellentCamerasPost-MyCam</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-excellence-in-augmented-reality-gaming-the-arcshell-ar-5-evaluation/"><u>Affordable Excellence in Augmented Reality Gaming: The Arcshell AR-5 Evaluation</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/first-row-fun-beyond-the-game-top-alternatives-for-2024/"><u>First Row Fun Beyond the Game Top Alternatives for 2024</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/output-maximization/"><u>Output Maximization</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/quick-start-video-chatting-technique-for-snapchat-pros/"><u>Quick-Start Video Chatting Technique for Snapchat Pros</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/rship-volume-the-financial-impact-of-one-million-views/"><u>Viewership Volume The Financial Impact of One Million Views</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-savor-the-spectacle-best-practices-for-cooking-channel-titling/"><u>[New] 2024 Approved Savor the Spectacle Best Practices for Cooking Channel Titling</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ormulating-engaging-content-excerpts-for-streaming/"><u>[New] Formulating Engaging Content Excerpts for Streaming</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-master-the-art-of-screenshot-and-video-edits-top-8-mobile-choices/"><u>[New] Master the Art of Screenshot and Video Edits – Top 8 Mobile Choices</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-10-best-inspirational-movies-that-will-bring-you-hope-and-power/"><u>[Updated] 10 Best Inspirational Movies That Will Bring You Hope and Power</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-instatrends-update-staying-ahead-with-fresh-reel-ideas/"><u>[Updated] 2024 Approved InstaTrends Update Staying Ahead with Fresh Reel Ideas</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-brightening-up-your-online-videos/"><u>[Updated] Brightening Up Your Online Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-expert-guide-to-instantaneous-deletion-of-youtube-posts-for-2024/"><u>[Updated] Expert Guide to Instantaneous Deletion of Youtube Posts for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-climate-change-mitigation-through-urban-design-innovations/"><u>[Updated] In 2024, Climate Change Mitigation Through Urban Design Innovations</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-quora-experts-live-snapchat-session/"><u>[Updated] In 2024, Quora Experts Live Snapchat Session</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-simplify-your-life-a-guide-on-quick-removal-of-youtube-feedback-for-2024/"><u>[Updated] Simplify Your Life A Guide on Quick Removal of YouTube Feedback for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-fierce-femininity-top-10-ladies-whove-captured-youtube-audiences/"><u>2024 Approved Fierce Femininity Top 10 Ladies Who've Captured YouTube Audiences</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ai-assistant-for-adventurers-6-techniques-with-chatgpt-at-the-ready/"><u>AI Assistant for Adventurers: 6 Techniques with ChatGPT at the Ready</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ais-influence-on-language-shaping-and-long-term-employment-potential/"><u>AI's Influence on Language Shaping & Long-Term Employment Potential</u></a></li>
+<li><a href="https://win-blog.techidaily.com/dragons-dogma-2-pc-crashes-easy-fixes-to-enjoy-uninterrupted-gaming/"><u>Dragon's Dogma 2 PC Crashes - Easy Fixes to Enjoy Uninterrupted Gaming</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/izing-engagement-10-tips-for-stellar-yt-shorts-content/"><u>Maximizing Engagement 10 Tips for Stellar YT Shorts Content</u></a></li>
 </ul></div>
 

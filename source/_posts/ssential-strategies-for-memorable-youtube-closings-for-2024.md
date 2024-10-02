@@ -1,7 +1,7 @@
 ---
 title: "[New] Essential Strategies for Memorable YouTube Closings for 2024"
-date: 2024-09-18T19:37:46.373Z
-updated: 2024-09-20T20:04:37.827Z
+date: 2024-09-29T22:21:14.429Z
+updated: 2024-10-02T05:49:01.792Z
 tags:
   - ai video
   - ai youtube
@@ -96,6 +96,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
@@ -106,6 +113,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
@@ -114,9 +128,23 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
@@ -147,12 +175,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-achieve-youtube-profitability-the-milestone-of-500plus-subscribers-unlocked/"><u>[New] In 2024, Achieve Youtube Profitability The Milestone of 500+ Subscribers Unlocked</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-youtube-shorts-mastery-tackling-common-issues/"><u>[New] In 2024, YouTube Shorts Mastery Tackling Common Issues</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-youcamsimplified-quickguidetorecordings-for-2024/"><u>[New] YouCamSimplified QuickGuideToRecordings for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-navigating-youtube-shorts-how-to-for-content-makers-for-2024/"><u>[Updated] Navigating YouTube Shorts How-To for Content Makers for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-reinvent-your-youtube-presence-a-guide-to-elevated-subscription-rates/"><u>[Updated] Reinvent Your YouTube Presence A Guide to Elevated Subscription Rates</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-seamlessly-connect-your-youtube-and-tiktok-accounts/"><u>[Updated] Seamlessly Connect Your YouTube and TikTok Accounts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-stellar-storytelling-elevating-posts-with-3-insta-highlight-ways-for-2024/"><u>[Updated] Stellar Storytelling Elevating Posts with 3 Insta Highlight Ways for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-unveiling-the-process-of-identifying-youtube-audience/"><u>[Updated] Unveiling the Process of Identifying YouTube Audience</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-power-players-in-flight-the-drone-heavylifting-leaders/"><u>2024 Approved Power Players in Flight The Drone Heavylifting Leaders</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/t-your-video-feedback-control-in-youtube-for-2024/"><u>Adjust Your Video Feedback Control in YouTube for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/enhance-your-video-meetings-with-snap-shots-on-zoom/"><u>Enhance Your Video Meetings with Snap Shots on Zoom</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-samsung-galaxy-s24-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Samsung Galaxy S24 with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/user-experience-insights-for-snappy-driver-installer-v113/"><u>User Experience Insights for Snappy Driver Installer V1.13</u></a></li>
+</ul></div>
 

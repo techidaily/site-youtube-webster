@@ -1,7 +1,7 @@
 ---
 title: "[New] Personal Vlogs That Resonate Deeply With Viewers"
-date: 2024-09-23T20:01:15.661Z
-updated: 2024-09-26T16:30:34.590Z
+date: 2024-10-01T00:27:05.333Z
+updated: 2024-10-02T01:25:15.957Z
 tags:
   - ai video
   - ai youtube
@@ -50,13 +50,34 @@ Before posting any videos on your channel, it can be a great idea to [create a �
 
 YouTuber Shameless Maya does an excellent job of this. She created a visually appealing and engaging 1-2 minute channel trailer that explains exactly what her channel is all about. Feel free to be as creative as you want to be.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ###  2\.  My YouTube Story
 
 On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebration of hitting their five-year mark, YouTube launched a “My YouTube Story” campaign, which featured fifteen YouTubers sharing how YouTube has changed their lives. Each of these videos would end with “What’s your YouTube story? Tell us by uploading a video.” Ever since that campaign, many YouTubers have shared their YouTube story, including me! After I had been on YouTube for two years, I felt it was time for me to share my own YouTube story with the world. Sharing your story is not only an opportunity for your viewers to get to know you but a way to inspire other creators to start their channels as well. We all have our reasons for why we started, so why not share them?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\.  Draw My Life
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\.  Snapchat/Instagram Stories Q&A
 
@@ -66,34 +87,13 @@ Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’
 
 Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q & A is a great way for viewers to get to know you better with some juicy and shocking details about yourself they otherwise wouldn’t know. It’s also a great way to play and collaborate with another YouTuber. Often, the questions will be split and you have to watch both YouTubers’ videos to find out all the details. Highly popular beauty YouTuber Desi Perkins does a great example of this while playing the game with her sister in law.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 6\.  Get Ready With Me Q & A
 
 Get ready with me Q & As are some of my favorite videos to watch because it’s nice to see YouTubers strip-down bare-faced to do their makeup and answer popular questions. It often feels like two old friends sitting down to chat. Jenn, I'm doing a great example of this when she took to twitter asking viewers to ask her questions she would answer on her channel. Not only did she answer the questions but she gave a detailed makeup tutorial and explanation of the products she used as a 2 for 1\. Even if your channel has nothing to do with makeup or fashion, some viewers can still be intrigued to learn more about your fashion and makeup style.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 7\.  My Depression/Anxiety or Mental Health Story
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 8\.  Narrated Autobiopic
 
@@ -111,20 +111,14 @@ YouTube live videos are probably the best ways to interact and share your story 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -147,22 +141,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-nightscape-notables-tips-for-capturing-starlit-portraits/"><u>[New] 2024 Approved Nightscape Notables Tips for Capturing Starlit Portraits</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/hanneling-wealth-through-beauty-online-platforms-for-2024/"><u>[New] Channeling Wealth Through Beauty Online Platforms for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-screenshot-synopsis-study-for-2024/"><u>[New] ScreenShot Synopsis Study for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ap-into-endless-creativity-our-compilation-of-over-50-free-advertising-masterpieces/"><u>[New] Tap Into Endless Creativity – Our Compilation of over 50 FREE Advertising Masterpieces!</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/op-15-channels-for-aspiring-stock-professionals-for-2024/"><u>[New] Top 15 Channels for Aspiring Stock Professionals for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-unlocking-audacitys-full-potential-for-professional-audio/"><u>[New] Unlocking Audacity's Full Potential for Professional Audio</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-navigating-creative-commons-rights-step-by-step-tutorial/"><u>[Updated] 2024 Approved Navigating Creative Commons Rights Step-by-Step Tutorial</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-downloading-standardized-youtube-images-with-ease-and-precision/"><u>[Updated] In 2024, Downloading Standardized Youtube Images with Ease & Precision</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-unveiling-15-advanced-techniques-in-sports-broadcasting/"><u>[Updated] Unveiling 15 Advanced Techniques in Sports Broadcasting</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-boosting-your-content-a-guide-to-instagram-video-fame/"><u>2024 Approved Boosting Your Content A Guide to Instagram Video Fame</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/sized-beginnings-easy-steps-to-launch-personalbusiness-channels-from-phones/"><u>Bite-Sized Beginnings Easy Steps to Launch Personal/Business Channels From Phones</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/curating-capsules-of-gratitude-paidfree-options/"><u>Curating Capsules of Gratitude Paid/Free Options</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/watch-list-to-download-youtube-playlist-in-minutes/"><u>From Watch List to Download YouTube Playlist in Minutes</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1723808016083-guide-to-boot-windows-10-into-safe-mode-effortlessly-see-it-happen/"><u>Guide to Boot Windows 10 Into Safe Mode Effortlessly – See It Happen!</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-assessing-the-best-platform-for-individual-use-tiktok-vs-shorts/"><u>In 2024, Assessing the Best Platform for Individual Use TikTok vs Shorts</u></a></li>
-<li><a href="https://games-able.techidaily.com/quality-consistency-in-gaming-keys-review-of-keychron-and-lemokey-l3/"><u>Quality Consistency in Gaming Keys: Review of Keychron and Lemokey L3</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/simplify-life-the-best-5-chrome-tools-for-scrapping-fb-videos/"><u>Simplify Life The Best 5 Chrome Tools for Scrapping FB Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-a-step-by-step-approach-to-ad-revenue-in-youtube-videos/"><u>[New] 2024 Approved A Step-by-Step Approach to Ad Revenue in YouTube Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-elite-edits-the-best-video-editors-ranked/"><u>[New] 2024 Approved Elite Edits The Best Video Editors Ranked</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-the-ultimate-manual-for-earning-facebooks-coveted-verification/"><u>[New] In 2024, The Ultimate Manual for Earning Facebook's Coveted Verification</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/op-10-mobile-apps-for-enhancing-youtube-shorts-videos-for-2024/"><u>[New] Top 10 Mobile Apps for Enhancing YouTube Shorts Videos for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-cracking-the-code-of-photoshop-for-beginners/"><u>[Updated] In 2024, Cracking the Code of Photoshop for Beginners</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-harnessing-the-power-of-software-for-seamless-vimeo-video-downloads/"><u>[Updated] In 2024, Harnessing the Power of Software for Seamless Vimeo Video Downloads</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-youtube-descriptions-revamped-by-template-professionals/"><u>2024 Approved YouTube Descriptions Revamped by Template Professionals</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Nokia C12 Plus | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/master-fast-photoshop-edits-on-windows-11/"><u>Master Fast Photoshop Edits on Windows 11</u></a></li>
 </ul></div>
 

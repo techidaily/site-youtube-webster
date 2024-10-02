@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Optimized Approach to Delete Unwanted YouTube Posts"
-date: 2024-09-15T16:30:18.985Z
-updated: 2024-09-20T16:18:33.439Z
+date: 2024-09-29T23:45:01.843Z
+updated: 2024-10-01T17:16:46.491Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,13 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -74,13 +81,6 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -94,13 +94,6 @@ If it is your video where the comment to be removed is, you can go to My Channel
 
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
 
@@ -122,6 +115,20 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -131,6 +138,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
@@ -138,13 +152,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
@@ -173,5 +180,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-distinguished-counsel-expert-iphone-tone-artisans-for-2024/"><u>[New] Distinguished Counsel Expert iPhone Tone Artisans for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-in-2024-prime-online-communities-eclipsing-twitterenasity/"><u>[New] In 2024, Prime Online Communities Eclipsing Twitter'enasity</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/astering-the-craft-of-youtubers-music-reaction-videos-essentials/"><u>[New] Mastering the Craft of Youtubers Music Reaction Videos Essentials</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-tips-for-dynamic-and-engaging-video-covers-on-the-worlds-largest-social-media-network/"><u>[New] Tips for Dynamic & Engaging Video Covers on the World's Largest Social Media Network</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-boost-video-performance-with-key-seo-tools/"><u>[Updated] 2024 Approved Boost Video Performance with Key SEO Tools</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-acquire-no-cost-sounds-for-videos-and-podcasts/"><u>[Updated] Acquire No-Cost Sounds for Videos & Podcasts!</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-crafting-perfect-youtube-music-sets/"><u>[Updated] Crafting Perfect YouTube Music Sets</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-how-to-create-a-channel-that-dominates-the-business-world/"><u>[Updated] How to Create a Channel that Dominates the Business World</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-elevate-your-content-visibility-discover-6-thumbnail-designers-best-tools/"><u>2024 Approved Elevate Your Content Visibility - Discover 6 Thumbnail Designers' Best Tools</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-your-course-in-the-world-of-youtube-tracking-success-and-monetary-value/"><u>Charting Your Course in the World of YouTube Tracking Success & Monetary Value</u></a></li>
+<li><a href="https://win-top.techidaily.com/convertissez-gratuitement-un-fichier-mka-en-format-wav-en-ligne-avec-movavi/"><u>Convertissez Gratuitement Un Fichier MKA en Format WAV en Ligne Avec Movavi</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-behind-the-scenes-creating-successful-youtube-shorts-videos/"><u>In 2024, Behind the Scenes Creating Successful YouTube Shorts Videos</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/navigating-brazilian-and-european-pt-buttons-effectively/"><u>Navigating Brazilian & European PT Buttons Effectively</u></a></li>
+<li><a href="https://win-forum.techidaily.com/navigating-the-world-of-online-interaction-with-top-platforms-fb-twtr-ig-and-yt/"><u>Navigating the World of Online Interaction with Top Platforms: FB, TWTR, IG & YT</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolving-opengl-issues-in-minecraft-a-comprehensive-guide/"><u>Resolving OpenGL Issues in Minecraft: A Comprehensive Guide</u></a></li>
+<li><a href="https://win11.techidaily.com/unveiling-9-critical-differences-that-favor-pcs-to-macs/"><u>Unveiling 9 Critical Differences That Favor PCs to Macs</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/l-snips-tool-for-2024/"><u>Visual Snips Tool for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/windows-10-improvement-upgrade-realtek-drivers/"><u>Windows 10 Improvement: Upgrade Realtek Drivers</u></a></li>
+</ul></div>
 
