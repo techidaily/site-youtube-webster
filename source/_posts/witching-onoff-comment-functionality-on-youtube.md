@@ -1,7 +1,7 @@
 ---
 title: "[New] Switching On/Off Comment Functionality on YouTube"
-date: 2024-09-26T02:31:01.432Z
-updated: 2024-10-01T18:20:01.690Z
+date: 2024-10-05T17:44:21.156Z
+updated: 2024-10-06T23:02:26.386Z
 tags:
   - ai video
   - ai youtube
@@ -96,16 +96,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -128,13 +122,20 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -154,10 +155,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -173,13 +174,6 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -202,20 +196,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-optimize-youtube-for-superior-image-quality-using-av1/"><u>[New] 2024 Approved Optimize YouTube for Superior Image Quality Using AV1</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-secrets-to-successful-backlink-generation-in-youtube-channels/"><u>[New] 2024 Approved Secrets to Successful Backlink Generation in YouTube Channels</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-skyrocketing-traffic-with-these-top-12-youtube-optimization-techniques/"><u>[New] 2024 Approved Skyrocketing Traffic with These Top 12 YouTube Optimization Techniques</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-the-battle-between-youtubes-copyright-clause-and-cc-license/"><u>[New] 2024 Approved The Battle Between YouTube’s Copyright Clause & CC License</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-the-essence-of-youtubes-new-shorts-investment-scheme/"><u>[New] 2024 Approved The Essence of YouTube's New Shorts Investment Scheme</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-the-role-of-tags-in-boosting-video-popularity/"><u>[New] 2024 Approved The Role of Tags in Boosting Video Popularity</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-decoding-the-maximum-number-of-videos-for-64128gb-drives-for-2024/"><u>[New] Decoding the Maximum Number of Videos for 64/128GB Drives for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-enlightened-techniques-to-preserve-your-iptv-streams/"><u>[Updated] Enlightened Techniques to Preserve Your IPTV Streams</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/augment-creativity-a-compreenas-of-best-android-drawing-tools-for-2024/"><u>Augment Creativity A Compreenas of Best Android Drawing Tools for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/enhance-documentation-with-auto-transcribe-in-microsoft-word/"><u>Enhance Documentation with Auto-Transcribe in Microsoft Word</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/expert-fb-video-sharing-tactics-for-desktop-and-handheld-devices-for-2024/"><u>Expert FB Video Sharing Tactics for Desktop and Handheld Devices for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-nubia-red-magic-9-pro-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Nubia Red Magic 9 Pro Phone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-bypassing-icloud-activation-lock-from-iphone-13-pro-max-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Bypassing iCloud Activation Lock from iPhone 13 Pro Max</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/online-overtures-10-influential-youtube-stars/"><u>Online Overtures 10 Influential YouTube Stars</u></a></li>
-<li><a href="https://article-tips.techidaily.com/television-or-projector-for-peak-4k-performance-in-2024/"><u>Television or Projector for Peak 4K Performance, In 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-constructing-youtube-video-content-that-resonates-with-viewers/"><u>[New] In 2024, Constructing YouTube Video Content That Resonates with Viewers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-rapid-video-grabber-your-gateway-to-all-online-videos/"><u>[New] In 2024, Rapid Video Grabber - Your Gateway to All Online Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/witching-spotify-playlists-transferring-to-youtube-music-format-for-2024/"><u>[New] Switching Spotify Playlists Transferring to YouTube Music Format for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-secrets-of-the-pros-youtube-live-mastery-techniques/"><u>[Updated] 2024 Approved Secrets of the Pros YouTube Live Mastery Techniques</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-an-in-depth-look-at-copyright-and-sharing-tunes-on-instagram/"><u>[Updated] An In-Depth Look at Copyright and Sharing Tunes on Instagram</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-hashing-it-out-best-tags-to-transform-views-and-profit/"><u>[Updated] Hashing It Out Best Tags to Transform Views & Profit</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-easy-to-use-free-youtube-downloader-with-mp3-support/"><u>[Updated] In 2024, Easy-to-Use Free YouTube Downloader with MP3 Support</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-premium-talker-alteration-tech-for-bloggers-and-streamers/"><u>[Updated] Premium Talker Alteration Tech for Bloggers and Streamers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ps-for-shooting-profesional-youtube-videos-for-2024/"><u>10 Tips For Shooting Profesional YouTube Videos for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/adeptness-at-mobile-app-development-for-luts-for-2024/"><u>Adeptness at Mobile App Development for LUTs for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/t-common-youtube-short-obstacles-for-2024/"><u>Combat Common YouTube Short Obstacles for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-can-we-unlock-our-xiaomi-13t-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Xiaomi 13T Phone Screen?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-beyond-tubes-the-ultimate-video-share-sites/"><u>In 2024, Beyond Tubes The Ultimate Video Share Sites</u></a></li>
+<li><a href="https://win11.techidaily.com/optimizing-visual-quality-through-driver-restart-on-win1011/"><u>Optimizing Visual Quality Through Driver Restart on Win10/11</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/preeminence-in-premiere-pro-mastering-fullscreen-vistas/"><u>Preeminence in Premiere Pro Mastering Fullscreen Vistas</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-silent-road-trip-uncovering-reasons-for-non-functional-car-speakers/"><u>The Silent Road Trip: Uncovering Reasons for Non-Functional Car Speakers</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshoot-and-fix-your-mpow-microphone-on-a-windows-pc-a-guide/"><u>Troubleshoot and Fix Your MPOW Microphone on a Windows PC - A Guide</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-chromebook-linux-installation-a-beginners-tutorial-for-2024/"><u>Updated Chromebook Linux Installation A Beginners Tutorial for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "A Compreenas Guide to Choosing Ideal Lenses for Filmmaking"
-date: 2024-09-29T21:36:03.692Z
-updated: 2024-10-02T02:26:14.671Z
+date: 2024-10-04T05:53:39.357Z
+updated: 2024-10-07T02:52:54.191Z
 tags:
   - ai video
   - ai youtube
@@ -61,13 +61,6 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -97,26 +90,13 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
 
@@ -133,15 +113,22 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
@@ -167,6 +154,13 @@ But do you even need a fast lens?
 * More expensive
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Optical Image Stabilization
 
@@ -203,24 +197,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-brand-your-content-download-complimentary-templates-for-youtube-makers/"><u>[New] 2024 Approved Brand Your Content Download Complimentary Templates for YouTube Makers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-chart-your-course-to-youtube-riches-the-essential-500-threshold/"><u>[New] 2024 Approved Chart Your Course to Youtube Riches The Essential 500 Threshold</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-create-impactful-youtube-videos-top-20-font-picks/"><u>[New] 2024 Approved Create Impactful YouTube Videos Top 20 Font Picks</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-dive-into-youtubes-best-practices-for-playlist-design/"><u>[New] 2024 Approved Dive Into Youtube's Best Practices for Playlist Design</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-high-level-behavior-tips-for-youtube-users/"><u>[New] 2024 Approved High-Level Behavior Tips for YouTube Users</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-hot-tunes-essential-background-scores-for-viral-yt-shorts/"><u>[New] 2024 Approved Hot Tunes Essential Background Scores For Viral YT Shorts</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-leading-5-audio-caps-for-streaming-enthusiasts/"><u>[New] 2024 Approved Leading 5 Audio Caps for Streaming Enthusiasts</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-mastering-youtube-screens-final-touches/"><u>[New] 2024 Approved Mastering YouTube Screens' Final Touches</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-beginning-the-live-journey-on-instagram/"><u>[New] In 2024, Beginning the Live Journey on Instagram</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-best-practices-zooming-into-fb-live-excellence/"><u>[Updated] Best Practices Zooming Into FB Live Excellence</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-how-to-reclaim-full-volume-from-partially-muted-fb-tracks/"><u>[Updated] In 2024, How to Reclaim Full Volume From Partially Muted FB Tracks</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-your-yearly-list-prime-free-video-editing-software/"><u>[Updated] Your Yearly List Prime Free Video Editing Software</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-views-strategic-partnerships-on-youtube-for-rapid-growth-for-2024/"><u>Boost Views Strategic Partnerships on YouTube for Rapid Growth for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-crafting-a-combined-video-narrative-on-iphone/"><u>In 2024, Crafting a Combined Video Narrative on iPhone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-forgotten-the-voicemail-password-of-lava-yuva-2-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Lava Yuva 2? Try These Fixes</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-itel-a05s-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Itel A05s to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/join-the-global-playground-setting-up-a-personalized-nintendo-network-id-on-your-nintendo-3ds/"><u>Join the Global Playground - Setting Up a Personalized Nintendo Network ID on Your Nintendo 3DS</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-how-to-create-compelling-youtube-closures-economically/"><u>Learn How To Create Compelling YouTube Closures Economically</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/merge-easy-to-use-skype-with-advanced-zoom-features/"><u>Merge Easy-to-Use Skype with Advanced Zoom Features</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-elevating-profits-via-celebrity-skincare-channels/"><u>[New] In 2024, Elevating Profits via Celebrity Skincare Channels</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-your-ultimate-youtube-video-gear-top-rated-cameras-and-lenses/"><u>[New] In 2024, Your Ultimate YouTube Video Gear Top-Rated Cameras and Lenses</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-cultivating-connection-not-compulsion-in-subscriptions-for-2024/"><u>[Updated] Cultivating Connection, Not Compulsion in Subscriptions for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-download-and-translate-youtube-videos-for-free-for-2024/"><u>[Updated] Download and Translate YouTube Videos for Free for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-quadcopter-showdown-dji-pro-and-hero-4-black/"><u>2024 Approved Quadcopter Showdown DJI Pro and Hero 4 Black</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-sweet-scene-capture-masterclass-in-freeze-dried-filmmaking/"><u>2024 Approved Sweet Scene Capture Masterclass in Freeze-Dried Filmmaking</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-top-picks-8-mirrorless-cameras-that-shine-in-vlogs/"><u>2024 Approved Top Picks 8 Mirrorless Cameras That Shine in Vlogs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/all-inclusive-review-of-dji-phantom-4-technology/"><u>All-Inclusive Review of DJI Phantom 4 Technology</u></a></li>
+<li><a href="https://program-issues.techidaily.com/beat-performance-lags-in-sifu-for-pc-strategies-to-fix-unresponsive-gameplay-and-frame-rate-hiccups/"><u>Beat Performance Lags in Sifu for PC: Strategies to Fix Unresponsive Gameplay and Frame Rate Hiccups</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-master-the-art-of-virtual-reality-from-videography-to-youtube-upload/"><u>In 2024, Master the Art of Virtual Reality From Videography to YouTube Upload</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1722846627202-master-your-reading-experience-with-a-customized-kindle-paperwhite-display-time/"><u>Master Your Reading Experience with a Customized Kindle Paperwhite Display Time</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/wii-u-compatibility-with-dvds-can-you-watch-movies/"><u>Wii U Compatibility with DVDs - Can You Watch Movies?</u></a></li>
 </ul></div>
 

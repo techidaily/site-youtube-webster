@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, YouTube Masterclass  Advanced Techniques for Video Commentary Embedding\""
-date: 2024-09-09T17:47:37.967Z
-updated: 2024-09-15T16:55:46.766Z
+date: 2024-10-02T12:28:46.215Z
+updated: 2024-10-07T10:34:25.041Z
 tags:
   - ai video
   - ai youtube
@@ -72,6 +72,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -82,10 +89,30 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -125,6 +152,13 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -144,18 +178,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-unleash-clarity-efficient-background-erasure-in-affinity-photo/"><u>[New] In 2024, Unleash Clarity Efficient Background Erasure in Affinity Photo</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/tep-by-step-for-quick-chromakey-application-for-2024/"><u>[New] Step-by-Step for Quick Chromakey Application for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-celebrating-families-this-years-top-10-movie-gems-for-2024/"><u>[Updated] Celebrating Families This Year’s Top 10 Movie Gems for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-digital-dominance-youtubes-best-female-gamers/"><u>[Updated] Digital Dominance YouTube's Best Female Gamers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-love-in-motion-discovering-youtube-and-vimeos-top-7-wedding-films-for-2024/"><u>[Updated] Love in Motion Discovering YouTube & Vimeo's Top 7 Wedding Films for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-mirthful-montage-mastering-7-comical-video-vignettes/"><u>[Updated] Mirthful Montage Mastering 7 Comical Video Vignettes</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-youtubes-monetization-metrics-for-a-million-viewers/"><u>2024 Approved Youtube's Monetization Metrics for A Million Viewers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/te-your-stream-a-comprehensive-ad-revenue-guide-on-youtube-for-2024/"><u>Elevate Your Stream A Comprehensive Ad Revenue Guide on YouTube for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-vivo-v27e-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Vivo V27e | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-proven-strategies-maximizing-efficiency-in-your-mobizen-screencast-processes/"><u>In 2024, Proven Strategies Maximizing Efficiency in Your Mobizen Screencast Processes</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unveiling-best-android-photos-tactics/"><u>In 2024, Unveiling Best Android Photos Tactics</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/recipe-rulers-youtubes-finest-food-talks-for-2024/"><u>Recipe Rulers YouTube's Finest Food Talks for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-honor-x50iplus-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Honor X50i+ Android SIM Unlock APK</u></a></li>
+</ul></div>
 

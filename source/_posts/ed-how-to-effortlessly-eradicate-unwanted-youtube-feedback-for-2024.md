@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Effortlessly Eradicate Unwanted YouTube Feedback for 2024"
-date: 2024-09-14T18:15:23.139Z
-updated: 2024-09-15T16:01:14.691Z
+date: 2024-10-04T06:08:24.476Z
+updated: 2024-10-06T19:02:25.919Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,13 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -88,13 +95,6 @@ If it is your video where the comment to be removed is, you can go to My Channel
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -115,6 +115,13 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -125,15 +132,22 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
@@ -146,13 +160,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -173,5 +180,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-dynamic-volume-control-tips-for-producers/"><u>[New] 2024 Approved Dynamic Volume Control Tips for Producers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-unlocking-youtubes-potential-for-visual-storytelling/"><u>[New] 2024 Approved Unlocking YouTube's Potential for Visual Storytelling</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-agriculture-adventures-the-ultimate-farmers-game-guide/"><u>[New] Agriculture Adventures The Ultimate Farmer's Game Guide</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-farm-fanatics-forecast-future-of-virtual-harvesting/"><u>[New] In 2024, Farm Fanatics’ Forecast Future of Virtual Harvesting</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/eading-online-convertor-audio-to-written-text-for-2024/"><u>[New] Leading Online Convertor Audio to Written Text for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-pioneering-the-way-with-innovative-approaches-to-youtube-banners/"><u>[Updated] 2024 Approved Pioneering the Way with Innovative Approaches to YouTube Banners</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-fast-revenues-forecasting-toolkit-for-vids/"><u>[Updated] Fast Revenues Forecasting Toolkit for Vids</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-confrontation-of-dusk-defender-and-dawn-protector/"><u>2024 Approved Confrontation of Dusk Defender and Dawn Protector</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-dissecting-the-financial-lifeblood-of-tseries-via-youtube-engagement/"><u>2024 Approved Dissecting the Financial Lifeblood of TSeries via YouTube Engagement</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/conquering-the-dilemma-how-to-send-videos-on-facebook-message-for-2024/"><u>Conquering the Dilemma How to Send Videos on Facebook Message for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ngs-expertise-on-streaming-services-the-ultimate-guide/"><u>Earnings Expertise on Streaming Services The Ultimate Guide</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/explore-the-best-black-friday-discounts-at-microsoft-secure-a-400-price-cut-for-surface-pro-cuisine-and-shave-200-off-surface-laptop-go-insider-tips-by-zdne127/"><u>Explore the Best Black Friday Discounts at Microsoft: Secure a $400 Price Cut for Surface Pro Cuisine and Shave $200 Off Surface Laptop Go | Insider Tips by ZDNET</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-samsung-galaxy-s24-ultra-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Samsung Galaxy S24 Ultra Location by Number | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ast-lane-to-sharing-playlists-online-for-2024/"><u>The Fast Lane to Sharing Playlists Online for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/verbessern-sie-operative-leistungsfahigkeit-und-gewinnmargen-mithilfe-der-neueste-version-von-abbyy-timeline/"><u>Verbessern Sie Operative Leistungsfähigkeit Und Gewinnmargen Mithilfe Der Neueste Version Von ABBYY Timeline</u></a></li>
+</ul></div>
 

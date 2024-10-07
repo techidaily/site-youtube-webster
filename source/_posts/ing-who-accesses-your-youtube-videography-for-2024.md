@@ -1,7 +1,7 @@
 ---
 title: "Managing Who Accesses Your YouTube Videography for 2024"
-date: 2024-09-27T01:38:11.467Z
-updated: 2024-10-01T17:15:50.898Z
+date: 2024-10-04T08:27:51.507Z
+updated: 2024-10-07T07:48:30.049Z
 tags:
   - ai video
   - ai youtube
@@ -65,13 +65,6 @@ thumbnail: https://thmb.techidaily.com/4cec3aa1742a3433211bae608e6076ab0be167115
 
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -82,19 +75,6 @@ thumbnail: https://thmb.techidaily.com/4cec3aa1742a3433211bae608e6076ab0be167115
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
@@ -102,16 +82,10 @@ thumbnail: https://thmb.techidaily.com/4cec3aa1742a3433211bae608e6076ab0be167115
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
 <!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
@@ -123,10 +97,10 @@ thumbnail: https://thmb.techidaily.com/4cec3aa1742a3433211bae608e6076ab0be167115
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -135,7 +109,21 @@ thumbnail: https://thmb.techidaily.com/4cec3aa1742a3433211bae608e6076ab0be167115
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -158,20 +146,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-android-audio-alchemy-selecting-the-top-free-downloader-apps-from-youtube/"><u>[New] 2024 Approved Android Audio Alchemy Selecting the Top Free Downloader Apps From YouTube</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-backtrack-with-flair-ingenious-ways-to-watch-youtube-reverse/"><u>[New] 2024 Approved Backtrack with Flair Ingenious Ways to Watch Youtube Reverse</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-beautifying-videos-for-youtube-viewers/"><u>[New] 2024 Approved Beautifying Videos for YouTube Viewers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-best-hashtags-for-youtube-to-get-your-views-to-6-figures/"><u>[New] 2024 Approved Best Hashtags for YouTube to Get Your Views to 6 Figures</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-channel-flair-free-download-templates/"><u>[New] 2024 Approved Channel Flair Free Download Templates</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-silent-blades-and-righteous-honor-your-next-game-adventure-awaits/"><u>[New] Silent Blades & Righteous Honor Your Next Game Adventure Awaits</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-instagram-highlights-download-methods-and-creating-tips/"><u>[Updated] 2024 Approved Instagram Highlights Download Methods and Creating Tips</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-record-and-relish-the-art-of-live-discord-streams/"><u>[Updated] 2024 Approved Record and Relish The Art of Live Discord Streams</u></a></li>
-<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Samsung Galaxy F34 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/te-audience-reach-through-collaborative-youtube-videos/"><u>Elevate Audience Reach Through Collaborative YouTube Videos</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-8-key-metaverse-ventures-unveiling-core-concepts/"><u>In 2024, 8 Key Metaverse Ventures Unveiling Core Concepts</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-vivo-v27-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Vivo V27 | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-out-creating-unique-thumbnails-for-your-youtube-videos-for-2024/"><u>Stand Out Creating Unique Thumbnails for Your YouTube Videos for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/top-free-photo-editing-apps-for-macos-your-complete-guide/"><u>Top Free Photo Editing Apps for macOS : Your Complete Guide</u></a></li>
-<li><a href="https://network-issues.techidaily.com/win11-hybrid-graphics-bug-now-solved/"><u>Win11 Hybrid Graphics Bug: Now Solved!</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-exploring-the-edge-of-screen-innovation-with-benq-sw320/"><u>[New] Exploring the Edge of Screen Innovation with BenQ SW320</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-igtv-broadcasts-to-facebook-explained/"><u>[New] IGTV Broadcasts to Facebook Explained</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/elf-portraits-for-social-media-success-for-2024/"><u>[New] Self-Portraits for Social Media Success for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-spy-on-fb-chronicles-unseen-for-2024/"><u>[New] Spy on FB Chronicles, Unseen for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-enjoy-your-content-youtube-shorts-are-shown-again/"><u>[Updated] In 2024, Enjoy Your Content – YouTube Shorts Are Shown Again</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-learn-to-record-save-and-share-youtube-content-a-cost-free-approach/"><u>[Updated] In 2024, Learn to Record, Save, & Share YouTube Content A Cost-Free Approach</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-recording-your-mac-experience-for-free/"><u>[Updated] Recording Your Mac Experience for FREE</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-spin-tiktok-magic-into-viral-instagram-reel-success/"><u>[Updated] Spin TikTok Magic Into Viral Instagram Reel Success</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-9-top-tier-youtube-fitness-tips-to-captivate-audiences-movement/"><u>2024 Approved 9 Top-Tier YouTube Fitness Tips to Captivate Audience's Movement</u></a></li>
+<li><a href="https://article-helps.techidaily.com/adobes-guide-to-memetic-artistry-for-2024/"><u>Adobe's Guide to Memetic Artistry for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-the-perfect-mix-a-youtube-playlist-manual/"><u>Curating the Perfect Mix A Youtube Playlist Manual</u></a></li>
+<li><a href="https://article-helps.techidaily.com/digital-sound-shift-a-comprehensive-tutorial-on-srt-conversion/"><u>Digital Sound Shift A Comprehensive Tutorial on SRT Conversion</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-realme-11-5g-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Does Life360 Notify When You Log Out On Apple iPhone 11 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-immutable-disabling-routine-for-youtubes-quick-content/"><u>In 2024, Immutable Disabling Routine for YouTube’s Quick Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-mastering-youtube-audio-recordings/"><u>In 2024, Mastering YouTube Audio Recordings</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-pacing-your-content-the-importance-of-regularity-in-a-successful-youtube-channel/"><u>In 2024, Pacing Your Content The Importance of Regularity in a Successful YouTube Channel</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/results-with-ethical-audience-engagement-on-youtube/"><u>Real Results with Ethical Audience Engagement on Youtube</u></a></li>
+<li><a href="https://windows11.techidaily.com/windows-11-decorations-monitors-wallpaper-differentiation-guide/"><u>Windows 11 Decorations: Monitors Wallpaper Differentiation Guide</u></a></li>
 </ul></div>
 

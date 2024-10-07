@@ -1,7 +1,7 @@
 ---
 title: "[New] Elevate Your Content with Professional End Screen Templates for 2024"
-date: 2024-09-30T04:54:28.615Z
-updated: 2024-10-02T06:04:50.584Z
+date: 2024-09-30T16:14:24.389Z
+updated: 2024-10-07T08:40:17.506Z
 tags:
   - ai video
   - ai youtube
@@ -96,16 +96,16 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -118,10 +118,10 @@ Another way to get your YouTube end screens for free, of course, is to make them
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 6\. Stretch your image to the ends of your canvas.
@@ -132,26 +132,26 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -177,18 +177,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-fifas-favorite-footage-charted-on-youtube/"><u>[New] 2024 Approved FIFA's Favorite Footage Charted on YouTube</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-integrating-cognitive-science-into-organizational-leadership-practices/"><u>[New] 2024 Approved Integrating Cognitive Science Into Organizational Leadership Practices</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-key-facts-on-youtube-lives-visual-identity/"><u>[New] 2024 Approved Key Facts on YouTube Live's Visual Identity</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-top-5-accessories-for-beneath-water-shooting/"><u>[New] Top 5 Accessories for Beneath Water Shooting</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-exclusive-list-top-sandbox-experiences/"><u>[Updated] 2024 Approved Exclusive List Top Sandbox Experiences</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-capture-clarity-enjoy-convenience-with-our-top-5-recorder-recommendations-for-2024/"><u>[Updated] Capture Clarity, Enjoy Convenience with Our Top 5 Recorder Recommendations for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-kinemaster-android-an-in-depth-gaming-guide-review/"><u>[Updated] KineMaster Android An In-Depth Gaming Guide Review</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-seamless-transition-of-video-files-to-facebook-for-pcandroid/"><u>2024 Approved Seamless Transition of Video Files to Facebook for PC/Android</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-oppo-reno-11-5g-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Oppo Reno 11 5G to Roku | Dr.fone</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/efficiently-enhance-your-tiktok-videos-speed-for-2024/"><u>Efficiently Enhance Your TikTok Videos' Speed for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/facebooks-quintessential-changes-for-enthusiasts/"><u>Facebook's Quintessential Changes for Enthusiasts</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Xiaomi Redmi A2? | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/0-audio-amplifiers-for-home-office-setups-for-2024/"><u>Top 10 Audio Amplifiers for Home-Office Setups for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-immediate-visuals-the-fastest-4-ways-to-snip-on-chrome-os/"><u>[New] 2024 Approved Immediate Visuals The Fastest 4 Ways To Snip on Chrome OS</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-your-first-step-to-successful-streaming/"><u>[New] 2024 Approved Your First Step to Successful Streaming</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-earn-big-stay-safe-top-5-income-boosting-posts/"><u>[New] Earn Big, Stay Safe Top 5 Income Boosting Posts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-unbelievable-charted-truths-youtubes-fact-filled-figures-2017/"><u>[New] In 2024, Unbelievable Charted Truths YouTube's Fact-Filled Figures (2017)</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-practical-routines-for-streamlining-gotomeeting-session-logging/"><u>[New] Practical Routines for Streamlining GoToMeeting Session Logging</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/op-12-tactics-for-amplifying-your-youtube-traffic/"><u>[New] Top 12 Tactics for Amplifying Your YouTube Traffic</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-bridging-social-gaps-sharing-tweets-videos-via-snapchat-for-2024/"><u>[Updated] Bridging Social Gaps Sharing Tweets' Videos via Snapchat for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-sneak-peek-into-facebooks-off-activity-tracking-is-it-safe-for-2024/"><u>[Updated] Sneak Peek Into Facebook's Off-Activity Tracking – Is It Safe for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-micro-vids-unpacked-whats-the-score/"><u>2024 Approved Micro Vids Unpacked What's the Score?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-channel-success-strategies-a-comprehensive-guide-to-spotlighting/"><u>In 2024, Channel Success Strategies A Comprehensive Guide to Spotlighting</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-navigating-through-gopros-burst-recording-options/"><u>In 2024, Navigating Through GoPro's Burst Recording Options</u></a></li>
+<li><a href="https://win-dash.techidaily.com/placental-transfer/"><u>Placental Transfer</u></a></li>
 </ul></div>
 

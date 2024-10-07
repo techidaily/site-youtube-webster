@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Guides on Creating Cost-Free YouTube Beginnings & Conclusions for 2024\""
-date: 2024-09-12T17:46:10.536Z
-updated: 2024-09-15T17:39:37.369Z
+date: 2024-09-30T09:08:27.313Z
+updated: 2024-10-07T04:49:07.431Z
 tags:
   - ai video
   - ai youtube
@@ -82,6 +82,13 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -117,6 +124,13 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -136,12 +150,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-5-simple-tricks-for-aspiring-photoshop-editors-for-2024/"><u>[New] 5 Simple Tricks for Aspiring Photoshop Editors for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-elevate-your-video-game-youtube-production-mastery/"><u>[Updated] Elevate Your Video Game YouTube Production Mastery</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-prime-video-to-text-technology-now/"><u>[Updated] Prime Video-to-Text Technology, Now</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ading-flv-to-youtube-video-converters/"><u>10 Leading FLV to YouTube Video Converters</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-youtube-integration-a-beginners-guide-to-google-meet/"><u>2024 Approved YouTube Integration A Beginner's Guide to Google Meet</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/descargar-convertidor-de-video-libre-online-conversion-mp4-a-mkv-con-movavi/"><u>Descargar Convertidor De Video Libre Online: Conversión MP4 a MKV Con Movavi</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-update-lenovo-thinkpad-x260-drivers-for-windows-10/"><u>Download and Update Lenovo ThinkPad X260 Drivers for Windows 10</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Xiaomi Redmi Note 12 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-lava-pictures-an-easy-method-explained-by-fonelab-android-recover-pictures/"><u>How to Restore Deleted Lava Pictures An Easy Method Explained.</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-itel-p55plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Itel P55+ | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-unleash-your-creativity-top-free-video-makers-users/"><u>New Unleash Your Creativity Top Free Video Makers Users</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Sony Xperia 10 V | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/what-to-do-when-windows-fails-driver-rollout/"><u>What to Do When Windows Fails Driver Rollout</u></a></li>
+</ul></div>
 

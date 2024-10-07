@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Dynamic Lighting  Elevating Video Aesthetics for 2024\""
-date: 2024-09-26T04:30:25.067Z
-updated: 2024-10-01T20:53:55.363Z
+date: 2024-10-06T14:05:26.824Z
+updated: 2024-10-07T10:31:45.747Z
 tags:
   - ai video
   - ai youtube
@@ -50,19 +50,25 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -91,13 +97,6 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
@@ -105,10 +104,16 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -116,6 +121,13 @@ If you are using all of the lighting options available to you and your video sti
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -138,17 +150,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/aptivating-clips-keywords-that-ignite-viral-shorts-on-youtube-for-2024/"><u>[New] Captivating Clips Keywords That Ignite Viral Shorts on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/et-rid-of-youtube-ads-with-ease-on-chrome-firefox-ios-android-for-2024/"><u>[New] Get Rid of YouTube Ads with Ease on Chrome, Firefox, iOS, Android for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-12-premier-video-game-entrances-by-top-youtubers-free-and-paid-analysis/"><u>[New] In 2024, 12 Premier Video Game Entrances by Top Youtubers Free & Paid Analysis</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-navigating-the-nuances-of-streaming-and-saving-on-facebook-for-2024/"><u>[New] Navigating the Nuances of Streaming and Saving on Facebook for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-how-to-use-zoom-video-filters-to-make-a-high-quality-zoom-call/"><u>[Updated] 2024 Approved How to Use Zoom Video Filters to Make a High-Quality Zoom Call</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-collaborative-listening-made-simple-on-youtube-for-2024/"><u>[Updated] Collaborative Listening Made Simple on YouTube for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-download-your-favorite-podcasts-from-apple/"><u>[Updated] Download Your Favorite Podcasts From Apple</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-master-your-message-memes-on-kapwing-pro/"><u>2024 Approved Master Your Message Memes on Kapwing Pro</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/implementing-soft-decline-in-logic-pro-audio-for-2024/"><u>Implementing Soft Decline in Logic Pro Audio for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-seamless-youtube-to-file-conversion-techniques/"><u>In 2024, Seamless YouTube to File Conversion Techniques</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/lenovo-screen-problem-solved-completely/"><u>Lenovo Screen Problem Solved Completely</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/unlock-the-secrets-of-internet-humor-with-a-guide-on-9gag-for-2024/"><u>Unlock the Secrets of Internet Humor with a Guide on 9GAG for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-chronicles-unveiled-the-best-narrative-channels-on-youtube-this-year/"><u>[New] 2024 Approved Chronicles Unveiled The Best Narrative Channels on YouTube This Year</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-premium-biz-cloud-vault-services/"><u>[New] 2024 Approved Premium Biz Cloud Vault Services</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-projecting-yourself-to-the-world-with-insta-captions/"><u>[New] In 2024, Projecting Yourself to the World with Insta Captions</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-voice-over-techniques-video-production-edition-for-2024/"><u>[New] Voice Over Techniques Video Production Edition for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-navigating-partner-selection-for-youtube-joint-ventures/"><u>In 2024, Navigating Partner Selection for YouTube Joint Ventures</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-strategic-steps-for-effective-annotations-and-cards-on-your-youtube-videos/"><u>In 2024, Strategic Steps for Effective Annotations & Cards on Your YouTube Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ct-ending-for-youtubers-best-practices-and-pro-files-for-2024/"><u>Perfect Ending for YouTubers Best Practices and Pro Files for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/solving-the-problem-windows-10-fails-to-recognize-tl-wn722n-wireless-adapter/"><u>Solving the Problem: Windows 10 Fails to Recognize TL-WN722N Wireless Adapter</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/eling-youtubes-ranks-the-deciding-elements/"><u>Unraveling YouTube's Ranks The Deciding Elements</u></a></li>
 </ul></div>
 

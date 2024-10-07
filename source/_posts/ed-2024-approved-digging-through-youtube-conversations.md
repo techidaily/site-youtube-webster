@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Digging Through YouTube Conversations\""
-date: 2024-09-30T06:00:00.856Z
-updated: 2024-10-02T05:01:07.713Z
+date: 2024-10-06T13:08:53.089Z
+updated: 2024-10-06T20:13:06.360Z
 tags:
   - ai video
   - ai youtube
@@ -79,17 +79,16 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
@@ -125,10 +124,10 @@ Did you post a comment on your favorite celebrity’s video? Do you think it may
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Use the Comment History feature to Search Comments?
@@ -142,10 +141,10 @@ You can see all the comments you have posted in the Comment History in a few qui
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
@@ -173,6 +172,13 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -194,20 +200,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-5-effective-tricks-for-youtube-subscriber-surges/"><u>[New] 2024 Approved 5 Effective Tricks for YouTube Subscriber Surges</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-guiding-you-through-youtubes-security-settings/"><u>[New] 2024 Approved Guiding You Through YouTube's Security Settings</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-how-to-edit-youtube-videos-in-windows-movie-maker/"><u>[New] In 2024, How to Edit YouTube Videos in Windows Movie Maker</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-make-an-impression-with-youtube-clips-step-by-step-into-the-world-of-gif-making/"><u>[New] Make an Impression With YouTube Clips Step-by-Step Into the World of Gif Making</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-4-ways-to-record-ps3-gameplay/"><u>[Updated] 4 Ways to Record PS3 Gameplay</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-glimpsing-beyond-virtual-reality-the-pros-and-cons-spectrum/"><u>[Updated] Glimpsing Beyond Virtual Reality The Pros & Cons Spectrum</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-down-long-form-videos-the-insiders-guide-to-youtube-chapter-inclusion-for-2024/"><u>Break Down Long-Form Videos The Insider's Guide to YouTube Chapter Inclusion for 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-can-we-bypass-oppo-reno-8t-frp-by-drfone-android/"><u>How Can We Bypass Oppo Reno 8T FRP?</u></a></li>
-<li><a href="https://facebook.techidaily.com/reviving-your-social-media-account-without-old-credentials/"><u>Reviving Your Social Media Account without Old Credentials</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/the-hidden-dangers-of-overtrusting-artificial-intelligence-learn-why-caution-is-needed/"><u>The Hidden Dangers of Overtrusting Artificial Intelligence – Learn Why Caution Is Needed</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/top-10-cinemagraphic-cameras-a-guide-from-novices-to-experts/"><u>Top 10 Cinemagraphic Cameras A Guide From Novices to Experts</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721459273566-top-10-solutions-for-iphone-app-download-issues-fixed/"><u>Top 10 Solutions For iPhone App Download Issues - Fixed!</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/0-youtube-makeup-gurus-for-stunning-looks-for-2024/"><u>Top 10 YouTube Makeup Gurus for Stunning Looks for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-best-fmovie-alternatieves/"><u>Top 7 Best Fmovie Alternatieves</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-platform-triumphs-in-revenue-generation-dailymotion-vs-youtube-for-2024/"><u>Which Platform Triumphs in Revenue Generation? Dailymotion Vs YouTube for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-comprehensive-guide-to-setting-up-proper-video-aspect-ratios-for-youtube-for-2024/"><u>[New] The Comprehensive Guide to Setting Up Proper Video Aspect Ratios for YouTube for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-mastering-youtube-channel-lockdowns-device-specific-tips/"><u>[Updated] 2024 Approved Mastering YouTube Channel Lockdowns Device-Specific Tips</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-telegrams-launchpad-for-aspiring-advertisers-a-starters-handbook/"><u>[Updated] Telegram's Launchpad for Aspiring Advertisers A Starter's Handbook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-tumblr-image-format-specifications/"><u>[Updated] Tumblr Image Format Specifications</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-prime-cameras-for-extreme-pursuits/"><u>2024 Approved Prime Cameras for Extreme Pursuits</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/oading-youtubes-iconic-icons-via-web-windowsmac-methods/"><u>Downloading YouTube's Iconic Icons via Web, Windows/Mac Methods</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/te-your-content-the-secrets-to-increased-subscribers/"><u>Elevate Your Content The Secrets to Increased Subscribers</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>How PGSharp Save You from Ban While Spoofing Pokemon Go On Honor Play 40C? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-funny-flicks-compilation-of-chuckle-inducing-short-youtube-videos/"><u>In 2024, Funny Flicks Compilation of Chuckle-Inducing Short YouTube Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-taking-screen-grabs-compliance-on-youtube/"><u>In 2024, Taking Screen Grabs Compliance on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ssional-3d-openers-a-comprehensive-guide-for-2024/"><u>Professional 3D Openers A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/1723862802943-score-the-ultimate-bargain-279-32-dell-s322dmg-monitor-perfect-for-gamers-this-memorial-day/"><u>Score the Ultimate Bargain: $279 32” Dell S322DMG Monitor, Perfect for Gamers This Memorial Day</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/spring-to-the-future-innovations-in-screen-capture-tech/"><u>Spring to the Future Innovations in Screen Capture Tech</u></a></li>
+<li><a href="https://driver-install.techidaily.com/streamlining-windows-11-upgraded-hd-audio-driver-setup/"><u>Streamlining Windows 11: Upgraded HD Audio Driver Setup</u></a></li>
+<li><a href="https://win-blog.techidaily.com/top-15-applicazioni-gratuite-piu-efficace-per-creare-animazioni-gif/"><u>Top 15 Applicazioni Gratuite Più Efficace Per Creare Animazioni GIF</u></a></li>
 </ul></div>
 
