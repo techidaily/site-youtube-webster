@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering Quick Subtitle/Closed Caption Integration on YouTube\""
-date: 2024-09-10T17:38:10.042Z
-updated: 2024-09-15T18:20:02.109Z
+date: 2024-10-08T19:43:00.868Z
+updated: 2024-10-12T20:37:41.628Z
 tags:
   - ai video
   - ai youtube
@@ -43,6 +43,13 @@ thumbnail: https://thmb.techidaily.com/f5404a87cd8723307a9d0e6c73b4b785c1ac7bfa8
 
  So, here we are going to show you two ways to add subtittles to video: directly or uploading caption or transcript files
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Adding subtitles and closed captions manually
 
  To add subtitles and closed captions to your YouTube video, fisrt, you should sign in to your YouTube account. On left right below 'Home' you will find 'My Channel'. It will direct you to your personal YouTube page. On the top, right next to your subscribers lays the 'Video manager', giving you the list of your uploaded videos.
@@ -52,6 +59,13 @@ thumbnail: https://thmb.techidaily.com/f5404a87cd8723307a9d0e6c73b4b785c1ac7bfa8
  This will create a subtitle timeline right beneath the video. You can manage by dragging and expanding the subtitle duration according to the audio of the video. The subtitle will appear at the bottom of the video screen. Click 'publish' once done.
 
  An interruption might occur with appearing of subtitles in accordance with video. Hence a lot precision is required while doing so.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Uploading Caption or Transcript Files automatically
 
@@ -72,10 +86,10 @@ thumbnail: https://thmb.techidaily.com/f5404a87cd8723307a9d0e6c73b4b785c1ac7bfa8
  This will create a subtitle timeline right beneath the video. You can manage by dragging and expanding the subtitle duration according to the audio of the video. The subtitle will appear at the bottom of the video screen. Click 'publish' once done.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3 Best Tools for add/managing video Subtitles/CC
@@ -95,10 +109,10 @@ thumbnail: https://thmb.techidaily.com/f5404a87cd8723307a9d0e6c73b4b785c1ac7bfa8
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -120,5 +134,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/ow-to-blur-background-of-your-youtube-video-2-easy-ways-for-2024/"><u>[New] How to Blur Background of Your YouTube Video - 2 Easy Ways for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-techniques-for-extracting-mp3-from-instagram-videos/"><u>[New] Techniques for Extracting MP3 From Instagram Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/our-first-step-designing-attractive-videos-on-a-mac/"><u>[New] Your First Step Designing Attractive Videos on a Mac</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-a-comprehensive-guide-to-turning-vids-into-mp3-on-pinterest-for-2024/"><u>[Updated] A Comprehensive Guide to Turning Vids Into MP3 on Pinterest for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-facebook-fam-bites-in-snapchat-spotlight-for-2024/"><u>[Updated] Facebook Fam Bites in Snapchat Spotlight for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-market-masters-essential-stock-youtube-series-for-2024/"><u>[Updated] Market Masters Essential Stock YouTube Series for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mp43gp-movivid/"><u>線上無限MP4、3GP轉換器 - MoviVid</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-your-way-to-frequent-payments-from-youtube/"><u>Charting Your Way to Frequent Payments From YouTube</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exploring-the-boundaries-why-chatgpt-may-not-be-suitable-for-predicting-crypto-trends/"><u>Exploring the Boundaries: Why ChatGPT May Not Be Suitable for Predicting Crypto Trends</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/o-extract-youtube-media-directly-for-2024/"><u>How to Extract YouTube Media Directly for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ltimate-wirecast-playbook-for-engaging-youtube-streamers/"><u>The Ultimate WireCast Playbook for Engaging YouTube Streamers</u></a></li>
+</ul></div>
 

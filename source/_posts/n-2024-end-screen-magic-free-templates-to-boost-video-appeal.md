@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, End-Screen Magic  Free Templates to Boost Video Appeal\""
-date: 2024-09-14T17:01:10.189Z
-updated: 2024-09-15T18:51:04.056Z
+date: 2024-10-10T19:08:09.369Z
+updated: 2024-10-13T02:29:30.442Z
 tags:
   - ai video
   - ai youtube
@@ -85,6 +85,13 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
@@ -95,11 +102,25 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
 4\. Next, do an image search for “YouTube End Screen,” choose an end screen with a layout that you would like to build off of, and save the image onto your computer.
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 5\. Upload the image onto your Canva project.
 
@@ -123,6 +144,13 @@ If you're looking for other options to design your end screen, make sure to also
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -142,12 +170,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/tudy-with-stars-the-finest-historical-channels-for-students-and-enthusiasts-for-2024/"><u>[New] Study with Stars The Finest Historical Channels for Students & Enthusiasts for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-thumbnail-tutorial-for-youtube-using-mobile-devices/"><u>[Updated] 2024 Approved Thumbnail Tutorial for YouTube Using Mobile Devices</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-simplifying-meeting-execution-combining-slacks-ease-with-filmora-writes-for-2024/"><u>[Updated] Simplifying Meeting Execution Combining Slack's Ease With Filmora' Writes for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-skyrocketing-youtube-popularity-through-seo-know-how/"><u>2024 Approved Skyrocketing YouTube Popularity Through SEO Know-How</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-small-scale-screenplay-idea/"><u>2024 Approved Small-Scale Screenplay Idea</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-top-5-affordable-drones-under-500/"><u>2024 Approved Top 5 Affordable Drones Under $500</u></a></li>
+<li><a href="https://techidaily.com/beginners-tutorial-on-boosting-cpu-performance-with-overclocking/"><u>Beginner's Tutorial on Boosting CPU Performance with Overclocking</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-unleash-your-contents-potential-organic-growth-tactics/"><u>In 2024, Unleash Your Content's Potential Organic Growth Tactics</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/in-depth-look-at-ai-search-techniques-and-business-utilization/"><u>In-Depth Look at AI Search Techniques and Business Utilization</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/itops-expert-selection-best-windows-screencasters-for-2024/"><u>ITop's Expert Selection Best Windows Screencasters for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-choosing-the-ideal-long-range-router-of-2024/"><u>Ultimate Guide: Choosing the Ideal Long Range Router of 2024</u></a></li>
+</ul></div>
 

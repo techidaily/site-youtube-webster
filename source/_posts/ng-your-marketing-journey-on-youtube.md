@@ -1,7 +1,7 @@
 ---
 title: "Mapping Your Marketing Journey on YouTube"
-date: 2024-09-09T19:03:17.420Z
-updated: 2024-09-15T18:00:55.101Z
+date: 2024-10-12T04:09:02.235Z
+updated: 2024-10-12T22:12:35.412Z
 tags:
   - ai video
   - ai youtube
@@ -41,9 +41,23 @@ No Doubt, Filmora is the one of the best tools for newbie editors, vloggers and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Your Brand is Your Unique Message
 
 Competing on YouTube is all about offering value. Viewers should be able to find something on your channel that they can’t find anywhere else. This doesn’t mean you need to bend over backwards trying to[invent brand new video ideas that nobody has ever tried before](https://www.filmora.io/community-blog/how-to-be-original-on-youtube-289.html) – it just means you need to focus on building your unique brand. That is what will make viewers subscribe to you instead of just watching one of your videos and then clicking away.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Elevator Pitch
 
@@ -61,6 +75,13 @@ You need to be able to do that when you talk about your channel.
 
 Work on developing an elevator pitch for your channel. It will help you define your brand for yourself, and it’ll be useful if you make a channel trailer.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Start Building Your Brand
 
 Building a brand should be intentional. You need to be yourself, but it’s not enough to just ‘be’. You need to create yourself.
@@ -72,10 +93,10 @@ You will notice patterns. There will be things you do in your video that people 
 Banners and thumbnails are also a part of your brand. [More on that here](https://www.filmora.io/community-blog/how-to-make-youtube-banners-and-thumbnails-316.html).
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Being Consistent
@@ -98,13 +119,6 @@ When you intentionally create your personal brand on YouTube, you take charge of
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -124,5 +138,18 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-transforming-viewership-engaging-end-screens-tutorials/"><u>[New] 2024 Approved Transforming Viewership Engaging End Screens Tutorials</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-alternative-to-obs-the-next-gen-stream-software-for-2024/"><u>[New] Alternative to OBS The Next-Gen Stream Software for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/asy-steps-to-save-youtube-videos-for-2024/"><u>[New] Easy Steps to Save YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/lite-collective-photo-music-plus-visual-creation-fusion/"><u>[New] Elite Collective Photo, Music + Visual Creation Fusion</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-underdogs-playbook-livestream-youtube-on-smartphones-no-million-followers/"><u>[Updated] The Underdog's Playbook Livestream YouTube on Smartphones, No Million Followers</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/best-of-the-bunch-ps5-games-only-available-here/"><u>Best of the Bunch: PS5 Games Only Available Here</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/d-indexation-understanding-youtubes-unlisted-mechanism/"><u>Beyond Indexation Understanding YouTube's Unlisted Mechanism</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/digital-cosmos-display-top-pick-hdr-sky-sites-list-for-2024/"><u>Digital Cosmos Display Top Pick HDR Sky Sites List for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/get-vega-3-graphics-support-with-latest-2024-driver/"><u>Get Vega 3 Graphics Support with Latest 2024 Driver</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-mastering-gopro-advanced-cinematic-skills/"><u>In 2024, Mastering GoPro Advanced Cinematic Skills</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-worlds-highest-paying-streamer/"><u>In 2024, World's Highest Paying Streamer</u></a></li>
+</ul></div>
 

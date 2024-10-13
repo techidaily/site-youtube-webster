@@ -1,7 +1,7 @@
 ---
 title: "[New] The Essentials of Crafting YouTube Videos From Start to Finish"
-date: 2024-09-12T18:56:23.151Z
-updated: 2024-09-15T17:51:59.560Z
+date: 2024-10-06T19:03:00.885Z
+updated: 2024-10-12T17:55:00.306Z
 tags:
   - ai video
   - ai youtube
@@ -52,16 +52,10 @@ Once you have gathered enough ideas for the YouTube video, the next step is to f
 Now that you're ready to sit down and write, here's what you do:
 
 <!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Create an outline for your story
@@ -72,16 +66,16 @@ The first step in writing a script is to develop an outline for the story. You m
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Make sure that the script is well structured
 
@@ -105,6 +99,13 @@ While you are scripting and focusing on the information you want to deliver, it�
 
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## After Writing your YouTube Video Script
 
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
@@ -117,14 +118,14 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -145,5 +146,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-beyond-capture-understanding-mycams-advanced-features/"><u>[New] Beyond Capture – Understanding MyCam's Advanced Features</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-spoofing-success-the-path-to-parody-proficiency/"><u>[New] In 2024, Spoofing Success The Path to Parody Proficiency</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-valheims-optimal-seed-selection-strategies/"><u>[New] In 2024, Valheim's Optimal Seed Selection Strategies</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-dive-into-old-content-youtube-video-recovery-guide/"><u>[Updated] Dive Into Old Content YouTube Video Recovery Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-elevate-your-video-popularity-essential-seo-techniques-for-success-for-2024/"><u>[Updated] Elevate Your Video Popularity Essential SEO Techniques for Success for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-iphone-tips-achieving-extended-exposure-images-for-2024/"><u>[Updated] IPhone Tips Achieving Extended Exposure Images for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-maximize-your-youtube-reach-key-tips-for-enhancing-video-seo/"><u>[Updated] Maximize Your YouTube Reach Key Tips for Enhancing Video SEO</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-pioneering-panoramic-photography-gear/"><u>[Updated] Pioneering Panoramic Photography Gear</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-youtubes-untapped-markets-niche-strategies-for-2024/"><u>Charting Youtube's Untapped Markets Niche Strategies for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/biting-snippets-to-captivating-narratives-an-experts-guide-to-youtube-edits-for-2024/"><u>From Biting Snippets to Captivating Narratives An Expert's Guide to Youtube Edits for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-messages-on-vivo-y36-by-fonelab-android-recover-messages/"><u>How to restore wiped messages on Vivo Y36</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-compile-of-free-high-quality-sound-clips-for-videos/"><u>In 2024, Compile of Free, High-Quality Sound Clips for Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-vloggers-ultimate-gear-list-17-100/"><u>In 2024, Vloggers' Ultimate Gear List #17-100</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-watchers-unveiling-who-sees-your-content/"><u>Instagram Watchers Unveiling Who Sees Your Content</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-oneplus-nord-ce-3-lite-5g-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from OnePlus Nord CE 3 Lite 5G to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/ultimate-electronics-sale-exclusive-offers-on-beats-solo-headphones-djis-premium-quadcopter-drone-plus-immersive-bose-television-soundbars/"><u>Ultimate Electronics Sale: Exclusive Offers on Beats Solo Headphones, DJI's Premium Quadcopter Drone, Plus Immersive Bose Television Soundbars!</u></a></li>
+</ul></div>
 
