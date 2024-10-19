@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Creating Cost-Effective YouTube Closure Elements for 2024\""
-date: 2024-09-09T13:06:05.594Z
-updated: 2024-09-10T13:06:05.594Z
+date: 2024-10-11T23:07:44.090Z
+updated: 2024-10-18T17:01:28.082Z
 tags:
   - ai video
   - ai youtube
@@ -14,24 +14,12 @@ keywords: "\"Cost-Efficient Video Ends,Budget-Friendly Closures,Savvy Video Endi
 thumbnail: https://thmb.techidaily.com/482035835ea328d1609501451811446cad884a7a61227ca3ca092b735291d94d.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Creating Cost-Effective YouTube Closure Elements
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Oct 26, 2023• Proven solutions
@@ -52,12 +40,6 @@ thumbnail: https://thmb.techidaily.com/482035835ea328d1609501451811446cad884a7a6
 
 [How To Make an End Card](#how-to)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -86,12 +68,6 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -102,11 +78,12 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -143,25 +120,23 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -170,4 +145,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-inside-the-world-of-toolwiz-an-in-depth-software-review/"><u>[New] Inside the World of Toolwiz An In-Depth Software Review</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/haring-stories-that-resonate-with-a-digital-audience-yt/"><u>[New] Sharing Stories that Resonate with a Digital Audience YT.</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-club-chronicles-expertly-picked-dj-videos-for-2024/"><u>[Updated] Club Chronicles Expertly Picked DJ Videos for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-exposing-sham-numbers-the-danger-of-fabricated-youtube-views-for-2024/"><u>[Updated] Exposing Sham Numbers The Danger of Fabricated YouTube Views for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-how-to-perfectly-log-off-video-conferencing-on-devices/"><u>[Updated] In 2024, How to Perfectly Log-Off Video Conferencing on Devices</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-unlocking-your-videos-top-7-rippers-explored/"><u>[Updated] In 2024, Unlocking Your Videos Top 7 Rippers Explored</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-streamline-workflow-with-macoss-screen-capture-feature/"><u>[Updated] Streamline Workflow with macOS's Screen Capture Feature</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-top-8-best-screen-recorders-without-lag-for-2024/"><u>[Updated] Top 8 Best Screen Recorders without Lag for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/capturing-your-workflow-optimal-screenshot-tools-for-2024/"><u>Capturing Your Workflow Optimal Screenshot Tools for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-apple-iphone-12-mini-location-on-twitter-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change your Apple iPhone 12 mini Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-the-definitive-users-manual-for-youtube-tv/"><u>In 2024, The Definitive User's Manual for YouTube TV</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-itel-s23-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Itel S23 | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/inexpensive-cameras-that-deliver/"><u>Inexpensive Cameras That Deliver</u></a></li>
+</ul></div>
 

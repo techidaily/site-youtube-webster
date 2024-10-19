@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Make Your Own YouTube Closures Without Spending for 2024"
-date: 2024-09-09T13:06:05.833Z
-updated: 2024-09-10T13:06:05.833Z
+date: 2024-10-12T19:32:52.694Z
+updated: 2024-10-19T03:28:58.132Z
 tags:
   - ai video
   - ai youtube
@@ -14,30 +14,12 @@ keywords: "\"DIY YouTube Closure Tutorial,Affordable Video Endings Creation,Maki
 thumbnail: https://thmb.techidaily.com/a35eb4ebd2d9591cd220cc5c9d326188c8f27a10a8e1c9286a38dd70c0d6db4f.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Make Your Own YouTube Closures Without Spending
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Oct 26, 2023• Proven solutions
@@ -58,12 +40,6 @@ thumbnail: https://thmb.techidaily.com/a35eb4ebd2d9591cd220cc5c9d326188c8f27a10a
 
 [How To Make an End Card](#how-to)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -92,12 +68,6 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -108,11 +78,18 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -149,25 +126,29 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -176,4 +157,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/hampion-of-chiseled-cheeks-starting-your-youtube-aesthetic-venture-for-2024/"><u>[New] Champion of Chiseled Cheeks Starting Your YouTube Aesthetic Venture for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-discover-popular-tiktok-background-images-for-2024/"><u>[New] Discover Popular TikTok Background Images for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-essential-tips-and-tricks-for-creating-killer-short-videos-on-yt-for-2024/"><u>[New] Essential Tips and Tricks for Creating Killer Short Videos on YT for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ivid-visuals-brush-up-your-youtube-beauty-videos-for-2024/"><u>[New] Vivid Visuals Brush up Your YouTube Beauty Videos for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-go-global-quickly-optimal-tags-to-escalate-your-youtube-snippets/"><u>[Updated] 2024 Approved Go Global Quickly Optimal Tags to Escalate Your YouTube Snippets</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-top-15-camcorders-transforming-vlogger-content-creation-for-2024/"><u>[Updated] Top 15 Camcorders Transforming Vlogger Content Creation for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-cutting-edge-strategies-for-dynamic-igtv-backgrounds/"><u>2024 Approved Cutting-Edge Strategies for Dynamic IGTV Backgrounds</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-shadow-flight-new-camera-frontier/"><u>2024 Approved Shadow Flight New Camera Frontier</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-tailoring-your-youtube-videography-with-powerful-wm-maker-skills/"><u>2024 Approved Tailoring Your YouTube Videography with Powerful WM Maker Skills</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-tasty-talent-a-filmmakers-recipe-for-success/"><u>2024 Approved Tasty Talent A Filmmaker's Recipe for Success</u></a></li>
+<li><a href="https://win-help.techidaily.com/configuring-login-duration-in-vmware-esxi-hosts-essential-steps-for-optimal-performance/"><u>Configuring Login Duration in VMware ESXi Hosts: Essential Steps for Optimal Performance</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-the-steelseries-arctis-5-microphone-issue-a-step-by-step-guide/"><u>Fixing the SteelSeries Arctis 5 Microphone Issue - A Step-by-Step Guide</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-samsung-galaxy-m34-5g-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Samsung Galaxy M34 5G Location on Twitter | Dr.fone</u></a></li>
+</ul></div>
 

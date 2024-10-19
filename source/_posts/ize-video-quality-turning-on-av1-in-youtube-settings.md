@@ -1,7 +1,7 @@
 ---
 title: "\"Optimize Video Quality  Turning ON AV1 in YouTube Settings\""
-date: 2024-10-07T18:57:09.725Z
-updated: 2024-10-12T17:55:11.628Z
+date: 2024-10-17T18:08:14.395Z
+updated: 2024-10-18T19:30:05.610Z
 tags:
   - ai video
   - ai youtube
@@ -44,10 +44,10 @@ Do you wonder how to turn on **AV1 settings on YouTube**? For your information, 
 You may ask how to confirm your YouTube videos are playing with AV1 Codec. Well, you can search playlist on YouTube with the keywords "[4K, 5K, and 8K videos with the new AV1 Codec](https://www.youtube.com/playlist?list=PLRJRxnLlXbB0ETtMprpLypZs68duRS1t1)". You can test it by playing one of the videos. You have to right-click on the media player and then select "Stats for nerd". If it shows the av01 codec there, then the AV1 settings are enabled already.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Why choose AV1 over VP9 and other formats?
@@ -57,6 +57,13 @@ Now, do you need a reason why you should choose AV1 compared to VP9 and the othe
 The main thing is, as mentioned before, AV1 is developed by a consortium of companies founded in 2015\. It is supported by The Alliance for Open Media (AOMedia) such as Amazon, Facebook, Google, Microsoft, and Netflix, and also by web browser developers and semiconductor firms. Aomedia made it clear the algorithm is free-to-use. It means that there are no greedy negotiators that will be dependent on the developers.
 
 ![giant techs behind av1](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Also, these days, with a format that provides a much smaller workload for internet providers. Their today focus is, that AV1 can reach the quality but can get the job done with 20% more efficiency. Then, with AV1 encoding, a "standard" 4K movie will be much more accessible than it is now. These are some more reasons why you should choose AV1.
 
@@ -68,33 +75,26 @@ As mentioned before, AV1 is royalty-free. AV1 is such a next-generation of royal
 
 When it comes to the group that will ask for the royalty, MPEG is not the only one. There are also other patent groups and companies that can ask for it. Aomedia integrated Google, Mozilla, and Cisco, while they were busy creating their new video codec. However, the three companies joined together to create one codec to beat them all.
 
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Better performance
 
 It is said that the AV1 codec is 30% more efficient. According to the tests conducted by Moscow State University, AV1 can outperform AV1 by about 28% in the efficiency of encoding and decoding. As per the performance graph from the Graphics & Media Lab Video Group, MSU below, AV1 can offer the exactly same quality as X264 at 55% of the average bitrate.
 
 ![av1 benefit](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-6.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 AV1 is designed so exclusively to function better than all the other codecs in the market. It is an open-sourced codec with simple patent licensing, and the integration manages to save, as mentioned, up to 30% of the bandwidth for the exactly same image quality. In other words, with AV1, distributors can send streams much faster and cheaper and we can enjoy higher definitions in the same bandwidth.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
-  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. AV2 to come in the future
 
@@ -108,19 +108,6 @@ When we talk about YouTube, it feels incomplete if we don't talk about the video
 
 ![filmora logo](https://images.wondershare.com/filmora/article-images/2022/11/av1-settings-on-youtube-7.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) gives some ways to export your videos. Here are the five ways. You can also customize the export settings then you can save them to reuse the same settings next time. The first is you can export your project file and video to the local computer. It supports export as MP4, AVI, WMV, AV1, MOV, GoPro Cineform, F4V, MKV, TS, and 3GP.
 
 After that, you can export your video to any device you want, such as iPhone, iPad, Apple TV, Apple TV 4K, iPod, Samsung Galaxy, Smart Phone, Android Generic, Google Pixel, Xbox One, PlayStation 4, PSP, and Smart TV. Then you can upload it to YouTube, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides you to export your video to Youtube directly. All you need to do is logging your Youtube account and export.
@@ -128,6 +115,13 @@ After that, you can export your video to any device you want, such as iPhone, iP
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: FAQ: Does YouTube use AV1 or VP9?
 
@@ -160,19 +154,22 @@ For today, YouTube encodes all the videos with the VP9 codec, but for some reaso
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-innovative-methods-for-shuffling-yt-playlists/"><u>[New] In 2024, Innovative Methods for Shuffling YT Playlists</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-quick-steps-to-live-stream-youtube-via-obs-for-novices/"><u>[New] In 2024, Quick Steps to Live Stream Youtube via OBS for Novices</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-top-12-free-youtube-thumbnail-makers-filmora/"><u>[New] In 2024, Top 12 Free YouTube Thumbnail Makers - Filmora</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/utlining-key-elements-in-youtube-trailer-creation-for-2024/"><u>[New] Outlining Key Elements in YouTube Trailer Creation for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-secure-your-remote-sessions-with-these-tools-for-2024/"><u>[New] Secure Your Remote Sessions with These Tools for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-channel-conclusion-mastery-makers-and-templates-for-best-practices/"><u>[Updated] 2024 Approved Channel Conclusion Mastery - Makers & Templates for Best Practices</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-navigating-the-complexities-of-youtubes-subtitles-download-with-3-proven-techniques/"><u>[Updated] Navigating the Complexities of YouTube's Subtitles Download With 3 Proven Techniques</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-sponsoring-made-simple-boosting-your-channel-budget-efficiently/"><u>[Updated] Sponsoring Made Simple Boosting Your Channel Budget Efficiently</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2023s-leading-covert-video-download-apps-1-8-for-2024/"><u>2023'S Leading Covert Video Download Apps #1-8 for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/expert-tips-eliminating-picture-backdrops-using-windows/"><u>Expert Tips: Eliminating Picture Backdrops Using Windows</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/cting-youtube-content-with-ease/"><u>Extracting YouTube Content with Ease</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Motorola G54 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/tips-and-tricks-for-setting-up-your-motorola-edge-40-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Motorola Edge 40 Phone Pattern Lock</u></a></li>
-<li><a href="https://fox-access.techidaily.com/transformative-voice-techniques-enhance-your-oratory-with-these-tools-for-2024/"><u>Transformative Voice Techniques – Enhance Your Oratory with These Tools for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-demystifying-youtube-shorts-for-total-beginners/"><u>[New] In 2024, Demystifying YouTube Shorts for Total Beginners</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-the-ultimate-tripod-techniques-for-video-creators/"><u>[New] In 2024, The Ultimate Tripod Techniques for Video Creators</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-laying-down-an-elegant-tiktok-credits-panel-for-2024/"><u>[New] Laying Down an Elegant TikTok Credits Panel for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-smart-shoppers-what-to-evaluate-for-a-4k-lens/"><u>[New] Smart Shoppers What to Evaluate for a 4K Lens</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-initial-movie-capture-evaluation-with-options/"><u>[Updated] In 2024, Initial Movie Capture Evaluation with Options</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-top-11-economical-cameras-for-professional-vloggers/"><u>[Updated] In 2024, Top 11 Economical Cameras for Professional Vloggers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-sharing-stories-that-resonate-with-a-digital-audience-yt/"><u>[Updated] Sharing Stories that Resonate with a Digital Audience YT</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-elevate-your-video-game-with-these-5-youtube-thumbnail-builders/"><u>2024 Approved Elevate Your Video Game with These 5 YouTube Thumbnail Builders</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-manycam-review-is-there-a-better-alternative/"><u>2024 Approved ManyCam Review Is There A Better Alternative?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-access-your-apple-iphone-6-plus-when-you-forget-the-passcode-by-drfone-ios/"><u>How to Access Your Apple iPhone 6 Plus When You Forget the Passcode?</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-ensure-stable-performance-of-new-world-without-any-more-game-crashes-or-interruptions-on-pc/"><u>How To Ensure Stable Performance of 'New World' Without Any More Game Crashes or Interruptions on PC</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-music-from-your-tecno-phantom-v-flip-by-fonelab-android-recover-music/"><u>How to recover old music from your Tecno Phantom V Flip</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-embarking-on-a-youtube-venture-user-setup-essentials/"><u>In 2024, Embarking on a YouTube Venture User Setup Essentials</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-google-pixel-7a-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Google Pixel 7a Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-youtube-to-avi-mastery-top-8-convertors-reviewed/"><u>In 2024, YouTube to AVI Mastery Top 8 Convertors Reviewed</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/supercharge-image-editing-10-must-know-pixlr-strategies-for-2024/"><u>Supercharge Image Editing 10 Must-Know Pixlr Strategies for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/standing-filmoras-creative-certification-protocol-for-2024/"><u>Understanding Filmora's Creative Certification Protocol for 2024</u></a></li>
 </ul></div>
 

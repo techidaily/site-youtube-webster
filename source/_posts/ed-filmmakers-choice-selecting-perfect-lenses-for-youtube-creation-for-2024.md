@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Filmmaker's Choice  Selecting Perfect Lenses for YouTube Creation for 2024\""
-date: 2024-09-09T13:06:04.531Z
-updated: 2024-09-10T13:06:04.531Z
+date: 2024-10-17T01:02:40.417Z
+updated: 2024-10-19T05:58:31.361Z
 tags:
   - ai video
   - ai youtube
@@ -14,30 +14,12 @@ keywords: "Lens Selection Guide,Ideal Filmmaking Lenses,Premium Video Gear,Optim
 thumbnail: https://thmb.techidaily.com/eba0a5b42c98b9f5083f688e46f3bb9b2578fe7a056aaed74ee36c6a269ef696.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Filmmaker's Choice: Selecting Perfect Lenses for YouTube Creation
 
 # A Vlogger's Guide To Camera Lenses
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115909/19272" target="_top" id="2115909">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115909" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115909/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Nov 01, 2022• Proven solutions
@@ -75,17 +57,18 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
 <!-- affiliate ads begin -->
-<span id="1770526">
+<span id="1770544">
 					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -114,12 +97,6 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115919/19272" target="_top" id="2115919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115919" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
 ### Focal Length Equivalency Table
@@ -137,15 +114,16 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
@@ -171,6 +149,13 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -186,25 +171,23 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -213,4 +196,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-audio-conversion-made-simple-youtube-to-mp3-mac-edition/"><u>[New] 2024 Approved Audio Conversion Made Simple YouTube to MP3, Mac Edition</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/hort-symphony-shots-roles-and-rhythm-showcase/"><u>[New] Short Symphony Shots Roles & Rhythm Showcase</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-soundscout-beyond-dacast-horizons/"><u>[New] SoundScout Beyond DaCast Horizons</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-effective-youtube-card-usage-guide/"><u>[Updated] 2024 Approved Effective YouTube Card Usage Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-rise-above-the-norm-expert-tips-for-broadcasting-spherical-content-on-youtube/"><u>[Updated] 2024 Approved Rise Above the Norm Expert Tips for Broadcasting Spherical Content on Youtube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-epic-creators-colloquium/"><u>[Updated] The Epic Creator's Colloquium</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-your-visual-impact-journey-begins-with-our-50-free-banners-in-2024/"><u>[Updated] Your Visual Impact Journey Begins with Our 50 FREE Banners, In 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-innovative-templates-for-zero-cost-youtube-intros/"><u>2024 Approved Innovative Templates for Zero-Cost YouTube Intros</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-top-40-twitter-visuals-the-essential-gif-hoarders-toolkit/"><u>2024 Approved Top 40 Twitter Visuals The Essential GIF Hoarder's Toolkit</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/1728498463429-windows-11/"><u>別のストレージデバイスにWindows 11をシフトする手順 |ライセンス不要で安心移行方法</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-youtube-shorts-decoding-the-income-distribution-model/"><u>In 2024, YouTube Shorts Decoding the Income Distribution Model</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/instant-access-to-intels-official-usb-30-drivers-for-windows-10-users/"><u>Instant Access to Intel's Official USB 3.0 Drivers for Windows 10 Users</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/integrate-tiktok-videos-in-phone-gallery-step-by-step/"><u>Integrate TikTok Videos in Phone Gallery Step-by-Step</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] The Visionaries of Video Workshop for 2024"
-date: 2024-10-11T01:04:58.235Z
-updated: 2024-10-12T22:02:54.454Z
+date: 2024-10-15T01:23:03.117Z
+updated: 2024-10-19T03:05:19.749Z
 tags:
   - ai video
   - ai youtube
@@ -65,21 +65,22 @@ _Tess takes you to some of her favorite places in Dumbo._
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
 <!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. S’well bottle
 
@@ -91,25 +92,18 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
-_thinknoodles wearing his YouTube slippers._
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+_thinknoodles wearing his YouTube slippers._
 
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Denim jacket
 
@@ -128,16 +122,10 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -161,19 +149,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-no-more-hidden-shorts-just-visible-ones/"><u>[New] 2024 Approved No More Hidden Shorts, Just Visible Ones</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-principles-of-filming-inspirational-daily-living-documentaries/"><u>[New] 2024 Approved Principles of Filming Inspirational Daily Living Documentaries</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-step-by-step-looping-iphones-videos-effortlessly/"><u>[New] 2024 Approved Step-by-Step Looping iPhones Videos Effortlessly</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-the-path-to-vr-storytelling-editing-and-streaming-360-video-on-youtube/"><u>[New] 2024 Approved The Path to VR Storytelling Editing and Streaming 360° Video on YouTube</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-the-ultimate-thumbnails-guide-what-size-yields-success/"><u>[New] 2024 Approved The Ultimate Thumbnails Guide What Size Yields Success?</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-turn-any-youtube-experience-into-a-fun-animated-gif-on-devices/"><u>[New] 2024 Approved Turn Any YouTube Experience Into a Fun, Animated GIF on Devices</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-obs-or-streamlabs-determining-the-superior-livestream-software-for-2024/"><u>[New] OBS or Streamlabs? Determining the Superior Livestream Software for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-turning-snaps-into-cashflow/"><u>[New] Turning Snaps Into Cashflow</u></a></li>
-<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-realme-note-50-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Realme Note 50 | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/guide-rebuild-iphone-network-parameters-for-enhanced-performance-and-bug-fixes/"><u>Guide: Rebuild iPhone Network Parameters for Enhanced Performance and Bug Fixes</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-nokia-c12-plus-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Nokia C12 Plus Is Unlocked</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/navigating-the-9gag-meme-landscape-a-beginners-guide-for-2024/"><u>Navigating the 9GAG Meme Landscape A Beginner's Guide for 2024</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-the-ultimate-list-of-public-domain-video-download-websites/"><u>New In 2024, The Ultimate List of Public Domain Video Download Websites</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/srt-subtitle-extraction-from-a-dvd-on-windowsmac-a-step-by-step-guide/"><u>SRT Subtitle Extraction From a DVD on Windows/Mac - A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/levate-your-content-incorporating-exact-timestamps-in-videos-for-2024/"><u>[New] Elevate Your Content Incorporating Exact Timestamps in Videos for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-digital-makeup-mastering-youtubes-chromatic-alignment/"><u>[Updated] Digital Makeup Mastering Youtube's Chromatic Alignment</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-discussing-the-merits-and-drawbacks-of-aurora-hdr-tech/"><u>[Updated] Discussing the Merits and Drawbacks of Aurora HDR Tech</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-rising-to-the-top-essential-youtube-video-seo-techniques-for-success/"><u>[Updated] In 2024, Rising to the Top Essential YouTube Video SEO Techniques for Success</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-top-11-tools-for-enthusiasts-to-rip-and-save-videos/"><u>[Updated] In 2024, Top 11 Tools for Enthusiasts to Rip and Save Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-step-by-step-crafting-professional-valorant-thumbnails-for-youtube-for-2024/"><u>[Updated] Step-by-Step Crafting Professional Valorant Thumbnails for Youtube for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-a-time-capsule-transformation-step-by-step-guide-to-digitalize-old-printed-photographs/"><u>2024 Approved A Time-Capsule Transformation Step-By-Step Guide to Digitalize Old Printed Photographs</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exploring-the-cutting-edge-of-uhd-with-lgs-27ud68/"><u>2024 Approved Exploring the Cutting-Edge of UHD with LG's 27UD68</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/channel-discoveries-in-asmr-for-2024/"><u>Best Channel Discoveries in ASMR for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/best-live-stream-tools-xsplit-or-obs-in-2024/"><u>Best Live Stream Tools XSplit or OBS, In 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-complete-guide-to-vivo-v29-pro-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Vivo V29 Pro FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/insights-into-whatsapps-voice-chatting-capabilities-for-2024/"><u>Insights Into WhatsApp's Voice Chatting Capabilities for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/navigating-through-time-with-historical-fb-features-device-guide-for-2024/"><u>Navigating Through Time with Historical FB Features Device Guide for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/k-professional-video-quality-with-top-youtube-to-webm-tools/"><u>Unlock Professional Video Quality with Top YouTube-to-WebM Tools</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-create-stunning-3d-videos-top-free-and-paid-makers/"><u>Updated 2024 Approved Create Stunning 3D Videos Top Free and Paid Makers</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/winx-dvd-x/"><u>WinX DVD 리퍼터럭과 비디오 컨버터를 제공하는 온라인 판매 지원 환경: 모핀 X</u></a></li>
 </ul></div>
 

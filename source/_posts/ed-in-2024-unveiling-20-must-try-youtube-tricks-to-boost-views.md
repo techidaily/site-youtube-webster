@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Unveiling 20 Must-Try YouTube Tricks to Boost Views\""
-date: 2024-10-05T21:05:46.843Z
-updated: 2024-10-12T19:09:12.467Z
+date: 2024-10-12T18:04:41.324Z
+updated: 2024-10-18T23:35:05.651Z
 tags:
   - ai video
   - ai youtube
@@ -47,10 +47,10 @@ While watching a YouTube video, there might be instances when you want to pause 
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Category 2: Scrolling YouTube Videos Back and Forth
@@ -72,6 +72,13 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 3: Manage Playback Speed
 
 This category contains information on increasing or decreasing the playback speed of a YouTube video:
@@ -80,13 +87,6 @@ This category contains information on increasing or decreasing the playback spee
 | ---------------------- | ----------------------- |
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Category 4: Managing the Captions
 
@@ -101,10 +101,10 @@ This category talks about managing the video captions using the shortcut keys:
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Category 5: Managing the Audio Video
@@ -130,13 +130,6 @@ The shortcut keys given in this table enable you to switch between different scr
 Double press F/T/I on the keyboard will exit the full-screen/theater model/independent mode accordingly.
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Category 7: Viewing 360o/VR Videos
 
@@ -172,6 +165,13 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -193,22 +193,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-penny-pinching-picks-microphones-under-50/"><u>[New] 2024 Approved Penny-Pinching Picks Microphones Under $50</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-perfect-sound-devices-for-podcasters/"><u>[New] 2024 Approved Perfect Sound Devices for Podcasters</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-pioneering-video-content-creation-via-google-trends-study/"><u>[New] 2024 Approved Pioneering Video Content Creation via Google Trends Study</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-push-youtube-boundaries-with-creative-studio-expertise-and-tactics/"><u>[New] 2024 Approved Push Youtube Boundaries with Creative Studio Expertise and Tactics</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-streamline-your-content-youtube-to-dailymotion-shift/"><u>[New] 2024 Approved Streamline Your Content YouTube to Dailymotion Shift</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-streamlining-multiple-youtube-videos-into-one/"><u>[New] 2024 Approved Streamlining Multiple YouTube Videos Into One</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-streamlit-splendor-hues-and-highlights-technique/"><u>[New] 2024 Approved Streamlit Splendor Hues and Highlights Technique</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-top-10-steps-to-design-free-youtube-video-ads/"><u>[New] 2024 Approved Top 10 Steps to Design Free YouTube Video Ads</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-fix-for-sudden-audio-gaps-in-obs-captures/"><u>[Updated] 2024 Approved Fix for Sudden Audio Gaps in OBS Captures</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-achieve-high-quality-streams-youtube-and-twitch-via-obs-for-2024/"><u>[Updated] Achieve High-Quality Streams YouTube & Twitch via OBS for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-huawei-p60-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Huawei P60 without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-huawei-nova-y91-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Huawei Nova Y91 to iPhone | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-honor-magic-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Honor Magic 5 | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/get-the-latest-nvidia-quadro-graphics-driver-update-for-windows-10-systems/"><u>Get the Latest NVIDIA Quadro Graphics Driver Update for Windows 10 Systems</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-capturing-the-beat-top-cameras-for-future-music-videography-4k/"><u>In 2024, Capturing the Beat Top Cameras for Future Music Videography (4K)</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/navigating-the-sky-with-ease-top-wireless-routers-for-jet-setters/"><u>Navigating the Sky with Ease: Top Wireless Routers for Jet-Setters</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/poweradd-pilot-pro2-reviewed-exceptional-capacity-to-keep-all-your-gadgets-juiced-up/"><u>POWERADD Pilot Pro2 Reviewed - Exceptional Capacity to Keep All Your Gadgets Juiced Up</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/mplify-your-music-experience-with-youtubes-playlist-guide/"><u>[New] Amplify Your Music Experience with YouTube's Playlist Guide</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-the-pros-playbook-elevating-your-facebook-lives-to-new-heights-for-2024/"><u>[New] The Pro's Playbook Elevating Your Facebook Lives to New Heights for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-comprehensive-2024-video-showcase-analysis/"><u>[Updated] Comprehensive 2024 Video Showcase Analysis</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-detailed-guide-crafting-powerful-video-thumbnails-for-content-marketing-for-2024/"><u>[Updated] Detailed Guide Crafting Powerful Video Thumbnails for Content Marketing for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastering-graphics-a-guide-to-a-flourishing-career/"><u>[Updated] Mastering Graphics A Guide to a Flourishing Career</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-digital-divas-top-ten-gamers-on-youtube/"><u>2024 Approved Digital Divas Top Ten Gamers on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-evolution-of-engagement-key-post-vidcon-events/"><u>2024 Approved Evolution of Engagement Key Post-VidCon Events</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-giggles-guidebook-planning-7-funny-video-frameworks/"><u>2024 Approved Giggles Guidebook Planning 7 Funny Video Frameworks</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/enhance-your-broadcasts-with-manycams-advanced-live-streaming-and-digital-webcam-solutions/"><u>Enhance Your Broadcasts with ManyCam's Advanced Live Streaming and Digital Webcam Solutions</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/f-droid-vs-play-store-what-sets-them-apart-and-why-you-should-consider-the-alternative-app-repository/"><u>F-Droid Vs. Play Store: What Sets Them Apart and Why You Should Consider the Alternative App Repository</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-4-ways-to-trace-meizu-21-pro-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 4 Ways to Trace Meizu 21 Pro Location | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Infinix GT 10 Pro | Dr.fone</u></a></li>
 </ul></div>
 

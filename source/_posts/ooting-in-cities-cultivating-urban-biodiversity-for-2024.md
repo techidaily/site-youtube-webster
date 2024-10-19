@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Rooting in Cities  Cultivating Urban Biodiversity for 2024\""
-date: 2024-10-10T19:17:27.126Z
-updated: 2024-10-12T20:19:37.661Z
+date: 2024-10-13T07:04:43.034Z
+updated: 2024-10-18T17:11:22.901Z
 tags:
   - ai video
   - ai youtube
@@ -81,15 +81,22 @@ thumbnail: https://thmb.techidaily.com/d046e3f1a50f3eab0c2328a8c65f9cdfeb961e04c
 
 ![Edit YouTube Channel Description - About ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Then you can edit the channel description here
 
 ![Edit YouTube Channel Description ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** In the newer YouTube version, click the option "CUSTOMIZE CHANNEL" and then you can change your channel description by clicking the About Tab.
@@ -99,25 +106,11 @@ thumbnail: https://thmb.techidaily.com/d046e3f1a50f3eab0c2328a8c65f9cdfeb961e04c
 
 ![Edit YouTube Channel Description - Preview](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  In sum, adding a YouTube channel description does not need to be a complicated process. Just follow the tips mentioned above and make sure to pay attention to crafting the right message. It must be keyword-optimized and must captivate attention of your visitors.
 
  **Check this video to know how to optimize YouTube SEO:**
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Bonus: Tips for YouTube Video Description
 
@@ -126,16 +119,10 @@ thumbnail: https://thmb.techidaily.com/d046e3f1a50f3eab0c2328a8c65f9cdfeb961e04c
 ![YouTube description ](https://images.wondershare.com/filmora/article-images/youtube-description.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 1. Take full advantage of the First Line
@@ -149,6 +136,13 @@ thumbnail: https://thmb.techidaily.com/d046e3f1a50f3eab0c2328a8c65f9cdfeb961e04c
  It is highly recommended to add additional relevant content to the video description to help audience to get to know you better. You can add a brief summary of the video content or the transcript of the video here. Normally, you can add anything that is worth mentioning such as the equipment or software that you are using to make the video.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -171,19 +165,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-maximizing-mobile-profits-enabling-youtubers-revenue/"><u>[New] 2024 Approved Maximizing Mobile Profits Enabling YouTubers' Revenue</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-meme-master-tracking-jake-pauls-youtube-evolution/"><u>[New] 2024 Approved Meme Master Tracking Jake Paul's YouTube Evolution</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-rising-star-how-jake-paul-conquered-youtube/"><u>[New] 2024 Approved Rising Star How Jake Paul Conquered YouTube</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-the-child-prodigy-who-conquered-currency-with-content/"><u>[New] 2024 Approved The Child Prodigy Who Conquered Currency with Content</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-top-10-insights-for-creating-hits-with-music-reaction-videos/"><u>[New] 2024 Approved Top 10 Insights for Creating Hits with Music Reaction Videos</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-top-15-youtube-intro-templates-for-your-youtube-video/"><u>[New] 2024 Approved Top 15 YouTube Intro Templates for Your YouTube Video</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-google-hangout-techniques-4-ways-to-shine-for-2024/"><u>[Updated] Google Hangout Techniques, #4 Ways to Shine for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/capture-heights-with-dji-spark-the-small-drone-selfie-powerhouse/"><u>Capture Heights with DJI Spark The Small Drone Selfie Powerhouse</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/create-gif-images-from-ts-videos-at-no-cost-discover-how-movavis-web-based-service-facilitates-quick-conversions/"><u>Create GIF Images From TS Videos at No Cost - Discover How Movavi's Web-Based Service Facilitates Quick Conversions!</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/enhancing-video-content-iphoneipad-screen-capture-basics-for-2024/"><u>Enhancing Video Content IPhone/iPad Screen Capture Basics for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-any-oneplus-nord-n30-se-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any OnePlus Nord N30 SE Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/scan-for-collective-shared-content-on-messenger/"><u>Scan for Collective Shared Content on Messenger</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/step-by-step-guide-to-seamless-editing-of-full-spherical-video-content/"><u>Step-by-Step Guide to Seamless Editing of Full Spherical Video Content</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Tecno Camon 20 Premier 5G | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-camera-woes-ended-by-fix-obs/"><u>[New] 2024 Approved Camera Woes Ended by Fix - OBS</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ow-big-should-a-good-thumbnail-be-youtubes-ultimate-guide-for-2024/"><u>[New] How Big Should a Good Thumbnail Be? YouTube's Ultimate Guide for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ediameld-editsuite-for-2024/"><u>[New] MediaMeld EditSuite for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-guide-to-professional-photo-coloring/"><u>[New] The Ultimate Guide to Professional Photo Coloring</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ransformative-tactics-youtube-visibility-strategies/"><u>[New] Transformative Tactics YouTube Visibility Strategies</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-creating-profit-on-youtube-the-ultimate-list-of-top-business-channels-for-2024/"><u>[Updated] Creating Profit on YouTube The Ultimate List of Top Business Channels for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-lawful-ways-to-attain-a-million-followers-on-youtube/"><u>[Updated] In 2024, Lawful Ways to Attain a Million Followers on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-eliminate-camera-sway-no-tripods-allowed/"><u>2024 Approved Eliminate Camera Sway No Tripods, Allowed</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-secrets-for-top-audio-quality-no-need-for-a-microphone/"><u>2024 Approved Secrets for Top Audio Quality, No Need for a Microphone</u></a></li>
+<li><a href="https://games-able.techidaily.com/7-strategies-to-maximize-your-fps-in-csgo/"><u>7 Strategies to Maximize Your FPS in CS:GO</u></a></li>
+<li><a href="https://games-able.techidaily.com/connect-your-laptop-stream-games-through-steam-deck/"><u>Connect Your Laptop, Stream Games Through Steam Deck</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/essential-tips-for-protecting-your-device-during-software-installation/"><u>Essential Tips for Protecting Your Device During Software Installation</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-samsung-galaxy-s23-fe-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Samsung Galaxy S23 FE | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Vivo Y200e 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/professionals-guide-to-top-10-fcp-tools-for-2024/"><u>Professional's Guide to Top 10 FCP Tools for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/understanding-microsofts-joint-endeavor-with-blizzard-and-activision/"><u>Understanding Microsoft's Joint Endeavor with Blizzard & Activision</u></a></li>
 </ul></div>
 

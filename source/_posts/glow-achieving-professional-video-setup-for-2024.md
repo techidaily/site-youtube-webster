@@ -1,7 +1,7 @@
 ---
 title: "\"Vlog Glow  Achieving Professional Video Setup for 2024\""
-date: 2024-09-09T13:06:01.691Z
-updated: 2024-09-10T13:06:01.691Z
+date: 2024-10-15T07:02:57.188Z
+updated: 2024-10-19T07:34:04.985Z
 tags:
   - ai video
   - ai youtube
@@ -14,24 +14,12 @@ keywords: "\"ProVideoSetup,VlogGrowthTips,ExpertCamEquip,StudioLightingBasics,Cl
 thumbnail: https://thmb.techidaily.com/454a5d400e77a7a30fc6fb5cf37376c887407a08a4d33d69cb3dc289d466caa6.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Vlog Glow: Achieving Professional Video Setup
 
 # Lighting Tips for Vlogging: How to Light
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114267/17093" target="_top" id="2114267">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114267/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
@@ -44,12 +32,6 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
 The brightest source of light is also known as the **key light** which need to be high quality. A window will work, but if you do not have access to one where you are filming then consider an LED panel light or a softbox light like the ones used in portrait photography.
@@ -62,14 +44,22 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Lightning Tips for Aspiring YouTube Videographers
 
 Becoming the master of light will take some time and practice, so it is crucial to remain curious and anxious to learn new tricks throughout that process if you want to continually become better. These tips will help you make the first steps on that journey.
@@ -103,11 +93,12 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
@@ -115,31 +106,23 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -148,4 +131,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-samsungs-rival-the-leading-cameras-to-match-your-gear-360-needs/"><u>[New] 2024 Approved Samsung’s Rival The Leading Cameras to Match Your Gear 360 Needs</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-does-paying-regularly-for-youtube-premium-give-you-more-than-just-an-ad-free-view/"><u>[New] Does Paying Regularly For YouTube Premium Give You More Than Just An Ad-Free View?</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-leveraging-seo-in-youtube-a-title-and-tags-guidebook/"><u>[New] Leveraging SEO in Youtube A Title & Tags Guidebook</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unveiling-secret-youtube-clips-a-step-by-step-guide/"><u>[New] Unveiling Secret YouTube Clips A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/our-step-by-step-guide-to-building-a-profitable-channel-for-2024/"><u>[New] Your Step-by-Step Guide to Building a Profitable Channel for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-how-to-clear-the-clutter-blurring-backgrounds-for-engaging-yt/"><u>[Updated] How to Clear the Clutter Blurring Backgrounds for Engaging YT</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-no-software-no-problem-youtube-downloads-for-2024/"><u>[Updated] No Software, No Problem YouTube Downloads for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-ultimate-laptops-your-go-to-machine-for-expert-video-editing/"><u>[Updated] Ultimate Laptops Your Go-To Machine for Expert Video Editing</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-boosting-channel-earnings-the-step-by-step-famebit-guide-to-affiliates/"><u>2024 Approved Boosting Channel Earnings The Step-by-Step FameBit Guide to Affiliates</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ce-youtube-views-leveraging-outro-content-partnerships-for-2024/"><u>Enhance YouTube Views Leveraging Outro Content Partnerships for 2024</u></a></li>
+<li><a href="https://os-tips.techidaily.com/expert-tips-on-cleaning-and-sanitizing-your-iphone-before-a-new-owner/"><u>Expert Tips on Cleaning and Sanitizing Your iPhone Before a New Owner</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-erase-iphone-14-pro-data-permanently-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Erase iPhone 14 Pro Data Permanently | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-youtube-creative-commons-key-to-video-content-sharing/"><u>In 2024, YouTube Creative Commons Key to Video Content Sharing</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/innovative-system-bottleneck-explorers/"><u>Innovative System Bottleneck Explorers</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/inspirational-homebuilds-for-snapshot-enthusiasts-for-2024/"><u>Inspirational Homebuilds for Snapshot Enthusiasts for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/realtek-rtl8188cu-wifi-drivers-fresh-updates-for-windows-107-users-start-your-free-download-today/"><u>Realtek RTL8188CU WiFi Drivers: Fresh Updates for Windows 10/7 Users – Start Your Free Download Today</u></a></li>
+</ul></div>
 

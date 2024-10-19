@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  In-Depth Explanation  Implementing CC License Types\""
-date: 2024-09-09T13:06:03.435Z
-updated: 2024-09-10T13:06:03.435Z
+date: 2024-10-16T01:24:58.972Z
+updated: 2024-10-18T17:02:40.927Z
 tags:
   - ai video
   - ai youtube
@@ -14,36 +14,12 @@ keywords: "Copyright Compliance Guide,Creative Commons Usage,Licensing for Shari
 thumbnail: https://thmb.techidaily.com/836971730456bc9358fe3cf3cc37a571dba17728e808122dfec490930e9df565.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## In-Depth Explanation: Implementing CC License Types
 
 # How to Use Creative Commons Copyright Licenses \[Complete Guide\]
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Oct 26, 2023• Proven solutions
@@ -76,29 +52,24 @@ An example of a derivative someone might make of a YouTube video would be auto-t
 
 Here are the 6 creative commons licenses, and a chart you can use as a quick reference tool.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Attribution – CC BY
 
 If you’re using music or other media with this license, all you need to do is credit the artist.
 
 If you license your video this way, people can do whatever they like with any element of it (video or sound) so long as they credit you. I.e. if someone wanted to mute your clips and use you as stock footage in a bigger project, they could.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115914/19272" target="_top" id="2115914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115914" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115914/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Attribution-ShareAlike – CC BY-SA
 
 If you use music, photos, or any other media licensed this way, then you must both credit the artist and license your video this same way. Meaning, you can’t use YouTube’s standard license and must instead allow for others to use your work the way you are using the licensed media.
 
 If you apply this license to your video, you’re saying you don’t mind people using all or portions of your video for their project so long as they allow others to use their work in the same way.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Attribution-NoDerivs – CC BY-ND
 
@@ -124,11 +95,25 @@ If you license your video this way, people can use it in whatever way they like 
 
 The thing to be careful of with this license is that it’s not ‘ShareAlike’. So, if you license your video this way somebody could use your clips as stock footage and then provide them - as part of their project – for free to a third person to use in a project they were making money off of.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Attribution-NonCommercial-ShareAlike – CC BY-NC-SA
 
 Music and other media with an ‘Attribution-NonCommercial-ShareAlike’ license can be used in and altered for your videos, so long as you aren't making money off those videos. You must also use this same license for the video you create using elements licensed this way.
 
 If you license your video this way, people can use it or a portion of it in their project if they credit you. They must also use this same license for their video if they do. This protects you from the situation where a third person who never licensed your original content is making money off of it.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Attribution-NonCommercial-NoDerivs – CC BY-NC-ND
 
@@ -140,34 +125,26 @@ You also probably shouldn’t use this license for your videos. ‘NoDerivs’ m
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -176,4 +153,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-become-a-streaming-guru-utilizing-zooms-features-for-effective-youtube-broadcasts/"><u>[New] Become a Streaming Guru Utilizing Zoom's Features for Effective YouTube Broadcasts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-scouring-for-meaningful-youtube-discussions/"><u>[New] In 2024, Scouring for Meaningful YouTube Discussions</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/aximizing-your-youtube-earnings-with-smart-tactics/"><u>[New] Maximizing Your YouTube Earnings with Smart Tactics</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-navigate-the-quickest-growing-yt-havens-for-mental-brightness/"><u>[Updated] 2024 Approved Navigate the Quickest-Growing YT Havens for Mental Brightness</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-guide-to-amplifying-your-video-presence-with-seo-tips/"><u>[Updated] Guide to Amplifying Your Video Presence with SEO Tips</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-boost-your-content-reach-the-expert-guide-to-youtubes-featured-channels/"><u>2024 Approved Boost Your Content Reach The Expert Guide to Youtube's Featured Channels</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-from-zero-to-hero-amplifying-youtube-influence-via-famebit-partnerships/"><u>2024 Approved From Zero to Hero Amplifying YouTube Influence via FameBit Partnerships</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-expertly-snip-tamil-ringtones-a-complete-walkthrough/"><u>2024 Approved How to Expertly Snip Tamil Ringtones A Complete Walkthrough</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Realme C67 4G | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ntling-youtube-ranks-factors-and-their-effects/"><u>Dismantling YouTube Ranks Factors and Their Effects</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/graphics-driver-crisis-resolved/"><u>Graphics Driver Crisis Resolved</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-snicker-sonatas-top-10-humorous-hits/"><u>In 2024, Snicker Sonatas Top 10 Humorous Hits</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/losung-erstellen-eines-wiederherstellungslaufwerks-trotz-fehlender-daten-bei-windows-systemwiederherstellung/"><u>Lösung: Erstellen Eines Wiederherstellungslaufwerks Trotz Fehlender Daten Bei Windows-Systemwiederherstellung</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/simplified-installation-of-samsung-m2070fw-driver/"><u>Simplified Installation of Samsung M2070FW Driver</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-essential-handbook-for-iphone-ringtone-tweaking-for-2024/"><u>The Essential Handbook for iPhone Ringtone Tweaking for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/the-updated-method-to-bypass-tecno-spark-20-frp-by-drfone-android/"><u>The Updated Method to Bypass Tecno Spark 20 FRP</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/top-rated-ipad-pro-13-protective-covers-and-skins-2024-edition/"><u>Top-Rated iPad Pro 13 Protective Covers & Skins - 2024 Edition</u></a></li>
+</ul></div>
 

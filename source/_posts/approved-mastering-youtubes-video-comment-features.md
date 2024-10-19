@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Mastering YouTube's Video Comment Features\""
-date: 2024-09-09T13:06:05.710Z
-updated: 2024-09-10T13:06:05.710Z
+date: 2024-10-13T20:00:53.333Z
+updated: 2024-10-19T04:25:02.793Z
 tags:
   - ai video
   - ai youtube
@@ -20,12 +20,6 @@ thumbnail: https://thmb.techidaily.com/6f98ed833e99780ec633017bfd02ba19a6f592b21
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Liza Brown
 
  Mar 27, 2024• Proven solutions
@@ -46,12 +40,6 @@ Use your favorite web browser to go to YouTube and sign in to your Google accoun
 
 ![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Step 2: Go to Channel’s Advanced Settings
 
 From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
@@ -70,12 +58,6 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### 2\. Define Acceptable Comment Types
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
@@ -108,6 +90,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -129,19 +118,14 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -159,17 +143,12 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -184,20 +163,24 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -206,4 +189,21 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-youtubes-premier-gatherings-top-events-beyond-vidcon/"><u>[New] 2024 Approved Youtube's Premier Gatherings Top Events Beyond VidCon</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-streaming-stardom-unraveling-jake-pauls-youtube-rise/"><u>[New] In 2024, Streaming Stardom Unraveling Jake Paul's YouTube Rise</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-low-cost-recording-choices-top-11-vlogger-essentials/"><u>[Updated] 2024 Approved Low-Cost Recording Choices Top 11 Vlogger Essentials</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-countering-harshness-maintaining-poise-online/"><u>[Updated] Countering Harshness Maintaining Poise Online</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-elevating-videography-mastery-of-the-green-screen-effect/"><u>[Updated] In 2024, Elevating Videography Mastery of the Green Screen Effect</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-strategies-to-fast-track-vimeo-content/"><u>[Updated] Strategies to Fast-Track Vimeo Content</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-top-picks-for-the-best-android-image-correction-tools-5-choices/"><u>[Updated] Top Picks for the Best Android Image Correction Tools (5 Choices)</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-quadcopter-showdown-dji-pro-and-hero-4-black/"><u>2024 Approved Quadcopter Showdown DJI Pro and Hero 4 Black</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/beyond-the-screen-ultimate-vr-gadget-guide-for-2024/"><u>Beyond the Screen - Ultimate VR Gadget Guide for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/expert-advice-the-ultimate-7-techniques-to-enhance-computer-speeds/"><u>Expert Advice: The Ultimate 7 Techniques to Enhance Computer Speeds</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-ultimate-utility-watch-opens-your-macdevice/"><u>In 2024, Ultimate Utility Watch Opens Your MacDevice</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/is-your-iphone-13-case-compatible-with-the-latest-iphone-14-model-insights-and-tips-techradar/"><u>Is Your iPhone 13 Case Compatible with the Latest iPhone 14 Model? Insights & Tips | TechRadar</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/no-audio-in-battlefield-4-discover-how-to-bring-your-game-back-to-life/"><u>No Audio in Battlefield 4? Discover How to Bring Your Game Back to Life</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/inting-your-participation-in-youtube-dialogues-for-2024/"><u>Pinpointing Your Participation in YouTube Dialogues for 2024</u></a></li>
+</ul></div>
 

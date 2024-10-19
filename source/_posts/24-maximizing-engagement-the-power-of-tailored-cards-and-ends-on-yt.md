@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Maximizing Engagement  The Power of Tailored Cards & Ends on YT\""
-date: 2024-09-09T13:06:04.640Z
-updated: 2024-09-10T13:06:04.640Z
+date: 2024-10-12T17:16:25.915Z
+updated: 2024-10-18T21:10:18.148Z
 tags:
   - ai video
   - ai youtube
@@ -20,18 +20,6 @@ thumbnail: https://thmb.techidaily.com/b3b1cb7d8c5c52c25843bc952abd6a00ab0cd811c
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
@@ -44,22 +32,17 @@ The traditional annotation’s features are replaced by its successor YouTube Ca
 
 [Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle&spm=rs.filmora%5Fweb)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: Why You Need to Add End Screens and Cards to Videos
 
 There are several reasons that make the YouTube end screen and cards a great tool when added to the videos. The new channel builtin features, donation choices, embedded polls and more are some of the best interactive and powerful features of YouTube end screen that’s when added to the video can drive in users to your channel. It is a strong tool to build viewership of your channel. When you use YouTube end screen at the end of the video, it helps in directing the users to other channels, playlists, and videos and also helps in promoting crowdfunding campaigns, merchandise and website. The YouTube end screen is a part of the video and to have an end screen on your video, it must be around 25seconds long.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: How To Use Youtube End Screen
 
 Do you wish to add YouTube end screen to your video? Just follow the steps and get going.
@@ -80,11 +63,12 @@ Do you wish to add YouTube end screen to your video? Just follow the steps and g
 **Link**\- This element helps in sending the users directly to your website. Although, Google has restricted other link addition in the video. In order to add, you must have an Adsense account and permit monetization.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: How To Use Youtube Cards
 
 YouTube Cards is more interactive. Users can add images and other linkes. Here are the steps.
@@ -94,12 +78,6 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * Choose the cards type you want to make on "Add Card" drop down menu.
 * Click “create” button. Select the timeline. In the end, apply.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### The types of YouTube cards
 
 * **Video or playlist**: links to other videos/the complete palylist on YouTube related or non-related to that specific videolinks to further purchase websites or specific product.
@@ -107,18 +85,6 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * **Poll**: Encourage viewers to participate in a poll (vote)
 * **Link**: links to a website which compliments whatever content is in the video.
 
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4 Tips for Using YouTube Cards
 
 **1\.** You might be used to pointing to the part of your screen where you intend to put an annotation, but when you use YouTube Cards they might switch locations depending on what device a viewer is watching on.
@@ -129,11 +95,25 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 
  **4.** The end of your video is always a great place to link viewers to another of your videos, whether you use a card or an end screen. If somebody liked your video enough to watch until the end they’ll probably welcome a chance to consume similar content.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Now, that you are aware how to add YouTube end screen to your video, make use of the amazing features of YouTube end screen and cards and let driving in traffic to your site be easy and fruitful.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -141,14 +121,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -157,4 +134,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-a-beginners-approach-to-adding-dates-to-photographs/"><u>[New] In 2024, A Beginner's Approach to Adding Dates to Photographs</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/astering-your-unique-fashion-voice/"><u>[New] Mastering Your Unique Fashion Voice</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-cut-the-boring-watch-these-15-hilarious-youtube-bites/"><u>[Updated] 2024 Approved Cut the Boring, Watch These 15 Hilarious YouTube Bites</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-detailed-insights-into-youtubes-perfected-aspect-ratios-for-2024/"><u>[Updated] Detailed Insights Into YouTube's Perfected Aspect Ratios for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-how-to-compose-captivating-youtube-intros-for-free/"><u>[Updated] In 2024, How To Compose Captivating YouTube Intros for FREE</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-unveiling-the-mystery-of-youtubes-monetization-rates-for-2024/"><u>[Updated] Unveiling the Mystery of YouTube's Monetization Rates for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-exclusive-guide-to-prime-livestream-sites/"><u>2024 Approved Exclusive Guide to Prime Livestream Sites</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-leading-tech-for-group-virtual-engagement/"><u>2024 Approved Leading Tech for Group Virtual Engagement</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/diagnosing-and-repairing-annoying-humming-noises-coming-from-headphone-speakers/"><u>Diagnosing and Repairing Annoying Humming Noises Coming From Headphone Speakers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ting-your-channel-a-gamers-blueprint-for-success-for-2024/"><u>Elevating Your Channel A Gamers' Blueprint for Success for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/forge-individualized-chatai/"><u>Forge Individualized ChatAI</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-oppo-reno-8t-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Oppo Reno 8T to New Android? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-motorola-moto-g14-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Motorola Moto G14 FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-open-your-apple-iphone-14-without-a-home-button-by-drfone-ios/"><u>In 2024, How To Open Your Apple iPhone 14 Without a Home Button</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-oppo-find-x7-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Oppo Find X7</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ize-youtube-traffic-top-viewing-times-for-2024/"><u>Maximize YouTube Traffic Top Viewing Times for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/revolutionize-your-household-workflows-the-power-of-6-chatgpt-applications/"><u>Revolutionize Your Household Workflows: The Power of 6 ChatGPT Applications</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/isionaries-of-video-workshop/"><u>The Visionaries of Video Workshop</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/standing-and-applying-youtube-markup-for-2024/"><u>Understanding & Applying YouTube Markup for 2024</u></a></li>
+</ul></div>
 

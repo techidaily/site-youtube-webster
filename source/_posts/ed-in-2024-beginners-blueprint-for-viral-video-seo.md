@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Beginner's Blueprint for Viral Video SEO"
-date: 2024-09-09T13:06:02.051Z
-updated: 2024-09-10T13:06:02.051Z
+date: 2024-10-18T00:05:21.341Z
+updated: 2024-10-18T17:25:37.575Z
 tags:
   - ai video
   - ai youtube
@@ -20,12 +20,6 @@ thumbnail: https://thmb.techidaily.com/3e134df3d1e30ff21305cf90a72d9a508b70a320e
 
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Oct 26, 2023• Proven solutions
@@ -58,12 +52,6 @@ Do a quick search on YouTube to see what videos already exist on your topic.
 
 ![Find Related Videos Sample](https://images.wondershare.com/filmora/article-images/find-related-videos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Uh oh… your video will be competing against celebrities like Gordon Ramsay and Jamie Oliver.
 
 Okay, don’t panic! There is a fantastic quote, credited to bestselling author, [Jon Acuff](https://acuff.me/), that goes:
@@ -96,24 +84,12 @@ Once you have an idea of what people are searching for related to your topic, yo
 
 ![Find Keywords with Ubersuggest](https://images.wondershare.com/filmora/article-images/keyword-seo-tool-ubersuggest.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 This app gives you a whole list of long-tail keywords, which are 3-4-word phrases which is specific to what your video is about.
 
 Some you will use to dig deeper in and other you will deem irrelevant to your videos. A good way of determining the value of a keyword is by the stats the application shows.
 
 ![ Keywords in Ubersuggest](https://images.wondershare.com/filmora/article-images/find-keywords-with-ubersuggest.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ####  
 
 #### How to Read Keyword Suggestions
@@ -181,11 +157,12 @@ Have the specific keywords at the top, followed by more general keywords, and th
 **Branded**: Gordon Ramsay scrambled eggs
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -220,6 +197,13 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Who knows, who will respond.
 
 #### Step 9: Design a Thumbnail
@@ -230,12 +214,6 @@ Your viewers will absolutely judge your video by its cover so it’s important t
 
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
 
 Don’t want to pay money for a photo editing software such as Photoshop?
@@ -257,6 +235,13 @@ Come on, keep going!
 The video is done, the thumbnail is designed, and you have all your title, description, and tags ready to go. This step is easy, upload the video, and fill out the assets, and give yourself a pat on the back.
 
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Step 11: Add Transcripts
 
@@ -282,15 +267,16 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -298,14 +284,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -314,4 +297,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-top-10-best-flvto-alternatives-youtube-converter/"><u>[New] In 2024, Top 10 Best Flvto Alternatives YouTube Converter</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-youtube-riches-with-best-hash-tags-tips/"><u>[New] In 2024, YouTube Riches with Best Hash Tags Tips</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-joshis-success-youtube-earnings-strategy/"><u>[Updated] 2024 Approved Joshi's Success YouTube Earnings Strategy</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-rank-higher-with-youtube-shorts-a-guide-to-making-a-difference/"><u>[Updated] In 2024, Rank Higher with YouTube Shorts A Guide to Making a Difference</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-ultimate-guide-to-fisheye-camera-capabilities/"><u>[Updated] The Ultimate Guide to Fisheye Camera Capabilities</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-virtual-studio-compiling-the-best-dj-visuals-for-download-for-2024/"><u>[Updated] Virtual Studio Compiling the Best DJ Visuals for Download for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-mememasters-suite-download/"><u>2024 Approved MemeMasters Suite Download</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-perfecting-iphoneipad-screenshots-a-youtube-guide/"><u>2024 Approved Perfecting iPhone/iPad Screenshots A YouTube Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-uncovering-the-leading-10-under-the-radar-story-viewers/"><u>2024 Approved Uncovering the Leading 10 Under-the-Radar Story Viewers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-youtube-rotation-simplified-techniques-for-any-degree-updated-edition/"><u>2024 Approved YouTube Rotation Simplified Techniques for Any Degree [Updated Edition]</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-can-i-unlock-my-iphone-12-mini-after-forgetting-my-pin-code-by-drfone-ios/"><u>In 2024, How Can I Unlock My iPhone 12 mini After Forgetting my PIN Code?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-apple-id-verification-code-not-working-on-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, How To Fix Apple ID Verification Code Not Working On iPhone 11 Pro Max</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-instantaneous-youtube-profit-projections/"><u>In 2024, Instantaneous YouTube Profit Projections</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-youtube-streams-optimal-webm-converters-ranked/"><u>In 2024, YouTube Streams Optimal WebM Converters Ranked!</u></a></li>
+<li><a href="https://extra-support.techidaily.com/quick-collage-creation-a-step-by-step-guide-for-google-images-for-2024/"><u>Quick Collage Creation A Step-by-Step Guide for Google Images for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/sharpen-your-focus-tips-for-zooming-inout-on-instagram-stories-for-2024/"><u>Sharpen Your Focus Tips for Zooming In/Out on Instagram Stories for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ior-sound-transformation-gear-for-online-vloggers-for-2024/"><u>Superior Sound Transformation Gear for Online Vloggers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-vloggers-retreat-excellence-unleashed-for-2024/"><u>The Vloggers' Retreat Excellence Unleashed for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Motorola Defy 2 | Dr.fone</u></a></li>
+</ul></div>
 

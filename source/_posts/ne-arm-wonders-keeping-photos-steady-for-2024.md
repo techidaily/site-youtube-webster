@@ -1,7 +1,7 @@
 ---
 title: "\"[New] One Arm Wonders  Keeping Photos Steady for 2024\""
-date: 2024-09-12T19:19:15.707Z
-updated: 2024-09-15T18:07:26.376Z
+date: 2024-10-16T19:04:54.865Z
+updated: 2024-10-18T21:04:25.981Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,13 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 Here are 3 of our favorite DIY tripods.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -54,9 +61,23 @@ And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -75,13 +96,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128843/7443" target="_top" id="2128843">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128843" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128843/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -89,13 +103,6 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -119,6 +126,13 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -138,5 +152,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-blurring-identity-erasing-faces-from-video-content-for-2024/"><u>[New] Blurring Identity Erasing Faces From Video Content for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ocket-playlist-portraits-actors-and-audio-art-for-2024/"><u>[New] Pocket Playlist Portraits Actors & Audio Art for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-say-it-see-it-speech-recognition-techniques-with-word/"><u>[New] Say It, See It Speech Recognition Techniques with Word</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-elevating-positivity-in-a-constructive-space/"><u>[Updated] Elevating Positivity in a Constructive Space</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-from-beginner-to-expert-a-comprehensive-guide-to-looping-your-favorite-vids-for-2024/"><u>[Updated] From Beginner to Expert A Comprehensive Guide to Looping Your Favorite Vids for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-narrating-numbers-making-millions-from-your-micro-vlogs-for-2024/"><u>[Updated] Narrating Numbers Making Millions From Your Micro-Vlogs for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-surveying-the-lack-of-diversity-s-vr-realm-for-2024/"><u>[Updated] Surveying the Lack of Diversity 'S VR Realm for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-mastering-gaming-snaps-top-5-windows-11-tactics/"><u>2024 Approved Mastering Gaming Snaps Top 5 Windows 11 Tactics</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/te-youtube-content-advanced-editing-using-wm-maker-for-2024/"><u>Elevate YouTube Content Advanced Editing Using WM Maker for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/experience-the-new-era-of-computing-with-these-5-key-improvements-to-windows-software/"><u>Experience the New Era of Computing with These 5 Key Improvements to Windows Software</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-delete-icloud-account-remove-your-apple-id-permanently-from-apple-iphone-6-by-drfone-ios/"><u>How To Delete iCloud Account Remove Your Apple ID Permanently From Apple iPhone 6</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Analyzing Why YouTube Features Specific Comments\""
-date: 2024-10-07T19:20:21.417Z
-updated: 2024-10-13T03:12:04.909Z
+date: 2024-10-14T02:16:34.211Z
+updated: 2024-10-18T17:25:53.856Z
 tags:
   - ai video
   - ai youtube
@@ -59,13 +59,6 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: What Does The Highlighted Comment Look Like?
 
 YouTube has been working on improving the navigation of the comment section for videos, and highlighted comments are one of them. These comments appear even above the pinned comments on a video. The label of a highlighted comment is displayed above the commentator's name in a light grey shade.
@@ -73,21 +66,22 @@ YouTube has been working on improving the navigation of the comment section for 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 YouTube labels comment replies as well and call it "Highlighted Reply." You can see this tag above the replier's name in the same color tone.
 
 ![YouTube Highlighted Reply](https://images.wondershare.com/filmora/article-images/youtube-highlighted-reply.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Make My Comment Highlighted?
 
@@ -96,6 +90,13 @@ Now, making YouTube highlight your comment on a popular video is nothing less th
 Thus, anybody who wants to get their YouTube comment an HC tag has to follow a few simple steps, which we will discuss below in another section. Finding the correct or relevant video content that can benefit your channel from such a comment is an excellent place to start.
 
 For example, if you are a YouTuber who deals in tech information, you need to look for a popular video or channel with a similar genre, in this case, technical knowledge. The more popular the channel is, the more is the chance of a viewer checking the comments on its videos. You will only benefit if you're comment is highlighted on pages of Youtuber's who are huge.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: How to Get the URL of Highlighted Comments?
 
@@ -107,13 +108,6 @@ Suppose you are a viewer who is going through the comments section of a video. I
 
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 5: How to Reply to Highlighted Comments?
 
 Replying to "highlighted comments" on your YouTube channel is pretty easy since this feature was developed, keeping the user's convenience in mind. If you want to follow up or reply to such comments, you can do so from your email or YouTube Dashboard.
@@ -121,13 +115,6 @@ Replying to "highlighted comments" on your YouTube channel is pretty easy since 
 If you click the notification bell icon, whenever a viewer drops a new comment on one of your videos, YouTube will send you a notification via email. On opening the email, you will find a clickable "Reply" option. Or else, if you follow the comment section in the YouTube Dashboard, you can directly view or reply to highlighted comments from here as well.
 
 Have you ever wondered why a highlighted comment always shows at the top of the comment list? Both the above options will lead you to the comment thread on YouTube. To help you find the new activity easily, it appears with the highlight tag on it. The purpose is to remind you that you are here for that specific comment.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 6: How to Remove Highlighted Comments?
 
@@ -173,6 +160,19 @@ In this article, we have shared facts on YouTube's commonly seen highlighted com
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -194,24 +194,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-unlocking-collective-watch-strategies-for-multiple-channels/"><u>[New] 2024 Approved Unlocking Collective Watch Strategies for Multiple Channels</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-free-fix-swiftly-eradicate-unwanted-eyeshine-from-your-iphone-pics/"><u>[New] Free Fix Swiftly Eradicate Unwanted Eyeshine From Your iPhone Pics</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/nnovations-in-youtube-shorts-templates-latest-trends-and-tips/"><u>[New] Innovations in YouTube Shorts Templates Latest Trends & Tips</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/earn-the-easy-ways-to-turn-your-watching-experience-on-youtube-into-a-screencast-without-money-for-2024/"><u>[New] Learn the Easy Ways to Turn Your Watching Experience on YouTube Into a Screencast Without Money for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-fun-flicks-online-must-see-comedy-streaming-stations/"><u>[Updated] Fun Flicks Online Must-See Comedy Streaming Stations</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-youtube-newbies-guide-to-channels-and-cashflow-creation/"><u>[Updated] In 2024, Youtube Newbie's Guide to Channels and Cashflow Creation</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-perfect-iphone-silhouette-captures-101/"><u>[Updated] Perfect iPhone Silhouette Captures 101</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-the-ultimate-guide-to-video-capture-obs-versus-bandicam/"><u>2024 Approved The Ultimate Guide to Video Capture OBS versus Bandicam</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-youtube-thumbnail-mastery-size-and-ratio-tactics/"><u>2024 Approved Youtube Thumbnail Mastery Size & Ratio Tactics</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/boost-your-channels-popularity-optimal-post-dates/"><u>Boost Your Channel's Popularity - Optimal Post Dates</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/long-winded-to-concise-the-art-of-youtube-trimming/"><u>From Long-Winded to Concise The Art of YouTube Trimming</u></a></li>
-<li><a href="https://win-answers.techidaily.com/how-to-overcome-adobe-failed-to-launch-problem-with-error-0xc0000022/"><u>How to Overcome 'Adobe Failed to Launch' Problem with Error 0xC0000022</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-a-global-perspective-your-favorite-travel-youtubers/"><u>In 2024, A Global Perspective Your Favorite Travel Youtubers</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-unlocked-iphone-15-pro-drfone-by-drfone-ios/"><u>In 2024, Everything You Need To Know About Unlocked iPhone 15 Pro | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-realme-v30-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Realme V30 Devices</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-plotline-path-to-youtube-prosperity/"><u>In 2024, Plotline Path to YouTube Prosperity</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leading-smart-outlet-solutions-the-ultimate-guide/"><u>Leading Smart Outlet Solutions: The Ultimate Guide</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-nokia-c02-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Nokia C02 with and without jailbreak | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/troubleshooting-steps-for-repairing-a-cmos-error-summation-discrepancy/"><u>Troubleshooting Steps for Repairing a CMOS Error Summation Discrepancy</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-successfully-integrate-high-definition-videos-on-youtube-platform-for-2024/"><u>[New] How To Successfully Integrate High-Definition Videos on Youtube Platform for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-harvest-hangouts-the-most-friendly-farm-gaming-experiences/"><u>[New] In 2024, Harvest Hangouts The Most Friendly Farm Gaming Experiences</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-scripting-significant-soliloquies/"><u>[New] In 2024, Scripting Significant Soliloquies</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/aster-the-algorithm-top-youtube-seo-tips-and-techniques-for-2024/"><u>[New] Master the Algorithm Top YouTube SEO Tips and Techniques for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/hythmic-repository-perfect-dj-templates-instantly-downloadable/"><u>[New] Rhythmic Repository Perfect DJ Templates, Instantly Downloadable</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-ultimate-method-to-integrate-flv-content-on-youtube/"><u>[Updated] 2024 Approved The Ultimate Method to Integrate FLV Content on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-cultivating-a-visionary-channel-with-best-video-ideas/"><u>[Updated] Cultivating a Visionary Channel with Best Video Ideas</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-animating-elegance-self-designed-tricks-and-effects/"><u>2024 Approved Animating Elegance Self-Designed Tricks & Effects</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-torrent-management-software-for-efficient-downloading-and-streaming/"><u>Best Torrent Management Software for Efficient Downloading and Streaming</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-samsung-galaxy-a15-4g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Samsung Galaxy A15 4G to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-5-solutions-for-infinix-smart-8-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Infinix Smart 8 Unlock Without Password</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-elevate-your-edits-a-selection-of-top-9-free-software-choices/"><u>In 2024, Elevate Your Edits A Selection of Top 9 Free Software Choices</u></a></li>
+<li><a href="https://article-files.techidaily.com/innovative-ideas-the-best-12-websites-to-access-no-cost-photographic-treasures/"><u>Innovative Ideas The Best 12 Websites to Access No-Cost Photographic Treasures</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/maximize-console-performance-the-compelling-case-for-using-external-ssds-join-the-trend/"><u>Maximize Console Performance: The Compelling Case for Using External SSDs - Join the Trend!</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-ultimate-mobile-cinema-showcase-apples-best-freepluspaid-film-watchers-guide/"><u>The Ultimate Mobile Cinema Showcase Apple's Best FREE+Paid Film Watchers Guide</u></a></li>
 </ul></div>
 
