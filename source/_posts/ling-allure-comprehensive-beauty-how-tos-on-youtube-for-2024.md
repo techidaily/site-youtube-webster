@@ -1,7 +1,7 @@
 ---
 title: "\"Unveiling Allure  Comprehensive Beauty How-Tos on Youtube for 2024\""
-date: 2024-10-13T17:44:22.004Z
-updated: 2024-10-18T16:10:42.612Z
+date: 2024-10-19T22:07:03.702Z
+updated: 2024-10-24T22:46:13.559Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,13 @@ Wondershare Filmora is specifically made keeping quality on priority and to make
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Finding Your Niche in Beauty or Lifestyle**
 
 As a new makeup, beauty, or lifestyle YouTuber you’ll be jumping into a category that’s already packed with thousands of channels. In order to gain any momentum, you’ll have to decide on a particular thing you want to be known for. That’s your niche.
@@ -61,13 +68,6 @@ People looking for beauty tutorials are often looking for someone who has someth
 Another way you could find a niche is by taking on a specific area of interest, like a skincare channel with a focus on coping with acne or a makeup channel with a focus on natural products.
 
   SunKissAlba has a lifestyle channel that focuses on a ‘natural’ niche. She posts videos about every aspect of her lifestyle from putting on makeup to cooking, but natural/non-toxic products are a constant theme through everything she does. By niching her channel she hasn’t limited what kinds of videos she can do at all - she posts a huge variety of different types of videos. What she has done is to make her channel particularly valuable to audiences interested in things that are natural or organic.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Types of Beauty Videos – Your Content Strategy**
 
@@ -128,13 +128,6 @@ Here are 4 tips for getting free products for review:
 Make sure to link to your channel so they can verify what you say (do not hide your subscriber count).  
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Simple Camera Setup for Beauty Vloggers**
 
 There are a lot of different ways to set up your camera for a ‘talking head’ video (anything that is primarily you talking to the camera). Keep reading to learn about a popular ring-light setup for beauty videos, or [click here to learn 4 different camera setups](https://www.filmora.io/community-blog/4-ways-to-set-up-your-talking-head-shots-for-youtube-431.html).
@@ -161,10 +154,10 @@ You might want to experiment with sitting at different distances to see how the 
 ![tilt down your camera](https://images.wondershare.com/filmora/article-images/tilt-down-camera1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **_Step 3:_** Check your frame (this is easiest if your camera has a screen that flips out) to make sure there’s not too much empty space in your shot.
@@ -178,6 +171,13 @@ Turn off autofocus and adjust your focus manually by turning the focus ring on y
 An aperture of f/5.0 is good if you’re going to be moving around a lot, but if you’re not going to be moving much and want a blurry background you might want to go with f/2.8 or lower.
 
 ![set f stop](https://images.wondershare.com/filmora/article-images/set-f-stop2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 6:** Set your ISO (film speed). A lower ISO will give you a darker, but higher quality, image. A higher ISO will lower your quality and give you a brighter image.
 
@@ -223,6 +223,13 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 * **_Clamp lights ($10 each) and paper lanterns ($10 each) provide great lighting and are much more affordable than professional lighting kits._ The paper lanterns will provide even, diffused, light and the clamp lights will be easy to set up wherever you need them.**
 * **_Check out these [DIY tips for creating your own reflectors and diffusers](https://www.filmora.io/community-blog/save-money-with-clever-diy-youtube-gear%21-462.html)._**
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Top Ring Lights for YouTube**
 
 ####  
@@ -234,10 +241,10 @@ One cool feature of the Neewer Ring Light is that you can choose between dayligh
 ![Neewer Ring Light ](https://images.wondershare.com/filmora/article-images/neewer-ring-light5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 This light is dimmable and can be adjusted to the angle that suits your shot. That’s true of our number 2 pick too, and the second place light actually has a slight edge over the Neewer light because its color temperature is 5400K which is slightly closer to daylight than Neewer’s 5500K, but that’s honestly not super important for YouTube. They’re close enough that you won’t be able to tell the difference, and this light is over $100 more affordable.
@@ -247,13 +254,6 @@ This light is dimmable and can be adjusted to the angle that suits your shot. Th
 This lightweight ring light is easy to transport, set up, and mount your phone or camera to. It’s a fluorescent ‘daylight’ (5400K) light, so the colors in your videos will look natural.
 
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Build Your Own Diva Ring Light**
 
@@ -292,13 +292,6 @@ Before you start recording your makeup tutorial there are a few things you shoul
  4. **_Do a video test._** Before you start your video for real, start recording and shoot some test footage. Watch that back to make sure you like the look of your frame, your face is never blurry, and you’re happy with the overall look of things.
  5. **_Do an audio test._** If you’re going to be talking in your video instead of recording a voiceover after, do an audio test to make sure your audience will be able to hear you clearly.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **How to Make a Makeup Tutorial – Recording**
 
 Here are some things to keep in mind while you record your makeup tutorial:
@@ -307,6 +300,13 @@ Here are some things to keep in mind while you record your makeup tutorial:
 If you’re using autofocus, you can hold products up to the screen and wait for it to kick in. If you’re not using autofocus, just hold them up next to you for a moment. You can also shoot separate closeups of each product and cut them into your main tutorial video.
 2. **_Highlight small details._** Describe what you’re doing in a lot of detail and don’t gloss over anything. Assume the person watching your tutorial doesn’t know anything about putting on makeup.
 3. **_Take stills for your thumbnail._** Remember to take some still photos of your finished makeup to use in your YouTube thumbnail.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **How to Make a Makeup Tutorial – After Shooting**
 
@@ -345,17 +345,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/he-ultimate-hash-tag-guide-for-gamers-youtube-channels/"><u>[New] The Ultimate Hash Tag Guide for Gamers' YouTube Channels</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-channel-prodigy-skyrocketing-with-content-innovation/"><u>[Updated] 2024 Approved Channel Prodigy Skyrocketing with Content Innovation</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-youtubes-short-form-videos-10-tactics-for-dominance-in-views/"><u>[Updated] 2024 Approved Youtube's Short-Form Videos - 10 Tactics for Dominance in Views</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-complete-handbook-enhancing-productivity-using-mobizen-recorder/"><u>[Updated] In 2024, Complete Handbook Enhancing Productivity Using Mobizen Recorder</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-secure-your-video-conferences-recording-made-easy/"><u>[Updated] In 2024, Secure Your Video Conferences Recording Made Easy</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-the-power-of-jump-cuts-in-engaging-videos/"><u>2024 Approved The Power of Jump Cuts in Engaging Videos</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/oad-free-youtube-pics-and-templates-in-2024/"><u>Download Free YouTube Pics & Templates, In 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/fishing-footage-frontier-top-action-cameras-for-the-sea-for-2024/"><u>Fishing Footage Frontier Top Action Cameras for the Sea for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/secure-lenovo-thinkpad-driver-downloads-and-updates-guaranteed-safety/"><u>Secure Lenovo ThinkPad Driver Downloads and Updates – Guaranteed Safety</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/steady-as-you-go-camera-stability-without-a-tripod/"><u>Steady as You Go Camera Stability Without a Tripod</u></a></li>
-<li><a href="https://win-lab.techidaily.com/step-by-step-tutorial-on-downloading-and-transforming-americas-test-kitchen-shows-into-mp4-videos/"><u>Step-by-Step Tutorial on Downloading and Transforming America's Test Kitchen Shows Into MP4 Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/uncovering-youtube-dialogues-for-2024/"><u>Uncovering YouTube Dialogues for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-how-to-maximize-video-reach-with-effective-tags-titles/"><u>[New] 2024 Approved How to Maximize Video Reach with Effective Tags, Titles</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/r-beasts-financial-reach/"><u>[New] Mr. Beast's Financial Reach</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-launch-free-youtube-events-a-step-by-step-guide/"><u>[Updated] 2024 Approved Launch Free Youtube Events A Step-by-Step Guide</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/1716069193215-updated-in-2024-offline-android-delights-top-screen-free-game-list-you-must-play/"><u>[Updated] In 2024, Offline Android Delights Top Screen-Free Game List You Must Play!</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-top-20-free-mobile-apps-for-downloading-youtube-playlists/"><u>[Updated] In 2024, Top 20 Free Mobile Apps for Downloading YouTube Playlists</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-mastering-quick-youtube-comment-removal-techniques-for-2024/"><u>[Updated] Mastering Quick YouTube Comment Removal Techniques for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-step-by-step-to-a-perfectly-arranged-youtube-queue/"><u>[Updated] Step-by-Step to a Perfectly Arranged YouTube Queue</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-encompassing-insight-a-look-inside-the-google-podcasts-app/"><u>2024 Approved Encompassing Insight A Look Inside the Google Podcasts App</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/1719306648168-fix-your-windows-onedrive-hurdles-now/"><u>Fix Your Windows OneDrive Hurdles Now!</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/from-download-to-execution-winchatgpt/"><u>From Download to Execution: WinChatGPT</u></a></li>
+<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-vivo-x90s-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Vivo X90S | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-mastering-hd-broadcasts-on-the-social-media-giant-fb/"><u>In 2024, Mastering HD Broadcasts on the Social Media Giant, FB</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-ultimate-list-of-21-free-and-unmarked-screen-capture-apps-recommended-by-movavi/"><u>The Ultimate List of 21 Free & Unmarked Screen Capture Apps Recommended by Movavi</u></a></li>
 </ul></div>
 

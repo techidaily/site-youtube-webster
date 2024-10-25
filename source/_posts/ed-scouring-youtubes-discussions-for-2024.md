@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Scouring YouTubes' Discussions for 2024"
-date: 2024-10-17T00:21:27.238Z
-updated: 2024-10-19T04:41:25.701Z
+date: 2024-10-21T16:12:35.138Z
+updated: 2024-10-24T17:40:03.231Z
 tags:
   - ai video
   - ai youtube
@@ -67,16 +67,16 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 You can combine these additional filters to narrow your comments search for YouTube.
 
 <!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Using YCS – YouTube Comment Search Extension
@@ -92,16 +92,10 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
@@ -136,13 +130,6 @@ Did you post a comment on your favorite celebrity’s video? Do you think it may
 
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Use the Comment History feature to Search Comments?
 
 You can see all the comments you have posted in the Comment History in a few quick steps.
@@ -153,19 +140,20 @@ You can see all the comments you have posted in the Comment History in a few qui
 
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
 <!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
@@ -212,21 +200,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-audiovisual-innovators-best-portable-devices-for-editors-for-2024/"><u>[New] Audiovisual Innovators Best Portable Devices for Editors for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ite-sized-content-on-youtube/"><u>[New] Bite-Sized Content on YouTube</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-fast-tip-mastering-green-screen-techniques/"><u>[New] In 2024, Fast Tip Mastering Green Screen Techniques</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-the-creators-guide-turn-viewers-into-paychecks/"><u>[New] In 2024, The Creator’s Guide Turn Viewers Into Paychecks</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/irtual-voyage-youtubes-premier-10-vr-video-experience/"><u>[New] Virtual Voyage YouTube's Premier 10-VR Video Experience</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-how-to-accelerate-subscriber-count-on-your-channel-for-2024/"><u>[Updated] How to Accelerate Subscriber Count on Your Channel for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-top-6-downloads-unlocked-with-free-online-and-global-viewing/"><u>2024 Approved Top 6 Downloads – Unlocked with Free Online & Global Viewing</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-youtube-thumbnail-101-phones-edition/"><u>2024 Approved YouTube Thumbnail 101 Phones Edition</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/android-music-integration-a-guide-to-social-media-playlists/"><u>Android Music Integration A Guide to Social Media Playlists</u></a></li>
-<li><a href="https://fox-useful.techidaily.com/aomei-fonebackupios/"><u>AOMEI FoneBackupを使って、iOSデバイスを最適に操作する方法</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/benq-sw320-4k-315-inch-monitor-review/"><u>BenQ SW320 4K 31.5-Inch Monitor Review</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/vate-audiences-with-perfectly-tailored-youtube-descriptions-for-2024/"><u>Captivate Audiences with Perfectly Tailored Youtube Descriptions for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/delete-gmail-account-withwithout-password-on-xiaomi-redmi-13c-5g-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Xiaomi Redmi 13C 5G</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-full-guide-to-unlock-iphone-6-with-itunes-by-drfone-ios/"><u>In 2024, Full Guide to Unlock iPhone 6 with iTunes</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-how-high-fps-impacts-slow-motion-movie-quality/"><u>In 2024, How High FPS Impacts Slow Motion Movie Quality</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Xiaomi Redmi A2 | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-detailed-steps-to-supercharge-your-youtube-audio-content/"><u>[New] 2024 Approved Detailed Steps to Supercharge Your YouTube Audio Content</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-playlists-that-dominate-spotify/"><u>[New] 2024 Approved Playlists That Dominate Spotify</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-youtube-vs-dailymotion-key-platform-distinctions/"><u>[New] 2024 Approved YouTube Vs. Dailymotion Key Platform Distinctions</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-capitalizing-on-hairstyle-demonstrations/"><u>[New] In 2024, Capitalizing on Hairstyle Demonstrations</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-explore-and-compare-20plus-best-free-video-editors-for-ios/"><u>[New] In 2024, Explore and Compare 20+ Best Free Video Editors for iOS</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-skypes-premier-audio-capture-solutions/"><u>[New] Skype's Premier Audio Capture Solutions</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/mart-shoppers-guide-to-inexpensive-recording-gear-for-2024/"><u>[New] Smart Shopper's Guide to Inexpensive Recording Gear for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/our-first-step-into-youtube-creating-an-engaging-channel/"><u>[New] Your First Step Into YouTube Creating an Engaging Channel</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-expert-audio-enhancement-toolkit/"><u>[Updated] Expert Audio Enhancement Toolkit</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-top-6-budget-friendly-youtube-outro-makers/"><u>[Updated] In 2024, Top 6 Budget-Friendly YouTube Outro Makers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-maximize-your-creativity-a-detailed-instruction-manual-for-uploading-videos-on-youtube/"><u>[Updated] Maximize Your Creativity A Detailed Instruction Manual for Uploading Videos on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ring-the-mechanisms-of-noteworthy-youtube-discussions/"><u>Exploring the Mechanisms of Noteworthy YouTube Discussions</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-a-step-by-step-guide-to-finding-your-apple-id-from-your-apple-iphone-6s-plus-by-drfone-ios/"><u>In 2024, A Step-by-Step Guide to Finding Your Apple ID From Your Apple iPhone 6s Plus</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-effective-ways-to-fix-checkra1n-error-31-from-iphone-se-by-drfone-ios/"><u>In 2024, Effective Ways To Fix Checkra1n Error 31 From iPhone SE</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-navigating-keyword-strategies-for-youtube-success/"><u>In 2024, Navigating Keyword Strategies for YouTube Success</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-obsudios-ultimate-guide-to-video-recording-with-obs/"><u>In 2024, Obsudio's Ultimate Guide to Video Recording with OBS</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/maximize-your-apple-watchs-battery-endurance-with-these-simple-adjustments-insider-tips-from-zdnet/"><u>Maximize Your Apple Watch's Battery Endurance with These Simple Adjustments - Insider Tips From ZDNet</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/pixel-buds-pro-galaxy-buds-2-pro-and-airpods-pro-showdown-comparing-top-tier-earphones-for-tech-enthusiasts/"><u>Pixel Buds Pro, Galaxy Buds 2 Pro & AirPods Pro Showdown: Comparing Top-Tier Earphones for Tech Enthusiasts</u></a></li>
+<li><a href="https://win-great.techidaily.com/verfahren-zur-wiederherstellung-geloschter-ordner-und-dokumente-auf-microsofts-onedrive/"><u>Verfahren Zur Wiederherstellung Gelöschter Ordner Und Dokumente Auf Microsofts OneDrive</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Unlocking Your Potential in Free YouTube Transcription Techniques"
-date: 2024-10-14T07:24:07.460Z
-updated: 2024-10-19T00:23:55.629Z
+date: 2024-10-21T01:12:18.326Z
+updated: 2024-10-24T22:47:15.812Z
 tags:
   - ai video
   - ai youtube
@@ -43,16 +43,16 @@ Besides the [basic video editing features on the YouTube](https://tools.techidai
 Below are the two methods to transcribe your YouTube videos for free:
 
 <!-- affiliate ads begin -->
-<span id="1983549">
+<span id="1983553">
 					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 1: Use the Automated Transcription Service on YouTube
@@ -70,6 +70,19 @@ Sign in to your YouTube account, click your profile picture from the top-right c
 On the **Details** page of the next box that appears, scroll down and click **MORE OPTIONS**, and select **English** in the **Video language** drop-down list under the **Language, subtitles, and closed captions (CC)** section.
 
 ![Select Language on YouTube](https://images.wondershare.com/filmora/article-images/select-language-on-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Step 3  Publish the Video
 
@@ -94,13 +107,6 @@ In the video subtitle page of the target video, hover mouse on the **Published A
 Click and open the **Actions** drop-down list from the top-left corner of the left pane, click your preferred transcription format including .vtt, .srt and .sbv from the list, and save the file on your local hard disk.
 
 ![YouTube videos transcription](https://images.wondershare.com/filmora/article-images/download-youtube-video-transcription.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 2: Get YouTube Transcription when Watching
 
@@ -135,16 +141,10 @@ Click **Auto-generate** from the right window, and follow the on-screen instruct
 ![Kapwing Auto Generate Subtitles](https://images.wondershare.com/filmora/article-images/kapwing-auto-generate-subtitles.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 3: Download the Transcription File**
@@ -176,16 +176,10 @@ Click **Auto-generate** from the right window, and follow the on-screen instruct
 ![Kapwing Auto Generate Subtitles](https://images.wondershare.com/filmora/article-images/kapwing-auto-generate-subtitles.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 3: Download the Transcription File**
@@ -193,6 +187,13 @@ Click **Auto-generate** from the right window, and follow the on-screen instruct
 Click **Download SRT** from the left pane, and follow the instructions from there to download the transcription file in \*.srt format.
 
 ![Kapwing Auto Generate Subtitles](https://images.wondershare.com/filmora/article-images/kapwing-auto-generated-subtitles.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Pros**
 
@@ -258,13 +259,6 @@ If you are looking for a quick and easy way of adding subtitles to your videos, 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -286,19 +280,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/xclusive-list-11-pioneering-cost-free-online-title-makers-for-yt-for-2024/"><u>[New] Exclusive List 11 Pioneering, Cost-Free Online Title Makers for YT for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/eep-watching-youtube-in-the-background-with-ease/"><u>[New] Keep Watching YouTube in the Background with Ease</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-streamlining-video-conferencing-with-efficient-use-of-snap-features-on-google-meet/"><u>[Updated] In 2024, Streamlining Video Conferencing with Efficient Use of Snap Features on Google Meet</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-navigating-the-process-of-voice-over-recording-in-media-production/"><u>[Updated] Navigating the Process of Voice-Over Recording in Media Production</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-mastering-clear-sound-recording-without-mic-techniques/"><u>2024 Approved Mastering Clear Sound Recording Without Mic Techniques</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-the-step-by-step-process-to-embed-timestamps-on-youtube-links/"><u>2024 Approved The Step-by-Step Process to Embed Timestamps on YouTube Links</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-vivo-v27-pro-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Vivo V27 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/affordable-video-editors-in-the-market-2023-edition-for-2024/"><u>Best Affordable Video Editors in the Market - 2023 Edition for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-repair-system-of-apple-iphone-8-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair System of Apple iPhone 8 Plus? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Realme C67 5G | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-infinix-smart-8-plus-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Infinix Smart 8 Plus FRP</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-your-music-after-itel-p55-has-been-deleted-by-fonelab-android-recover-music/"><u>Recover your music after Itel P55 has been deleted</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-recover-deleted-photos-on-asus-rog-phone-7-ultimate-without-backup-by-fonelab-android-recover-photos/"><u>The way to recover deleted photos on Asus ROG Phone 7 Ultimate without backup.</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-the-outer-worlds-solutions-for-pc-game-crashes/"><u>Troubleshooting The Outer Worlds: Solutions for PC Game Crashes</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-how-to-use-jump-cuts-in-your-vlog/"><u>[New] In 2024, How To Use Jump Cuts in Your Vlog</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/s-youtubes-monetization-payment-frequent-in-2024/"><u>[New] Is YouTube's Monetization Payment Frequent, In 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ncovering-the-dynamics-of-youtubes-post-upload-system-for-2024/"><u>[New] Uncovering the Dynamics of YouTube's Post-Upload System for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-mobile-magnification-premium-highlights-for-iphonesandroids/"><u>[Updated] In 2024, Mobile Magnification Premium Highlights for IPhones/Androids</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-from-recording-to-broadcasting-the-steam-gamers-path/"><u>2024 Approved From Recording to Broadcasting The Steam Gamers' Path</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-a15-5g-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Samsung Galaxy A15 5G Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-craft-stellar-channels-best-10-apps-for-artistic-banner-design/"><u>In 2024, Craft Stellar Channels Best 10 Apps for Artistic Banner Design</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/resolving-color-desaturation-issues-in-windows-10-and-11-a-step-by-step-solution/"><u>Resolving Color Desaturation Issues in Windows 10 and 11 - A Step-by-Step Solution</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-messages-from-asus-rog-phone-8-pro-by-fonelab-android-recover-messages/"><u>Undelete lost messages from Asus ROG Phone 8 Pro</u></a></li>
 </ul></div>
 

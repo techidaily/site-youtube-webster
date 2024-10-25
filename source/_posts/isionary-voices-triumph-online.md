@@ -1,7 +1,7 @@
 ---
 title: "[New] Visionary Voices Triumph Online"
-date: 2024-10-17T18:10:21.315Z
-updated: 2024-10-19T06:16:41.484Z
+date: 2024-10-22T17:02:31.349Z
+updated: 2024-10-24T21:16:11.845Z
 tags:
   - ai video
   - ai youtube
@@ -67,16 +67,22 @@ The most common videos on Felix's channel are gaming videos in which he comments
 
 ![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second most subscribed channel on YouTube with more than 32 million subscribers. Furthermore, HolaSoyGerman’s channel is the most subscribed Spanish-speaking channel today. Germán's second YouTube channel JuegaGerman has made him the only YouTuber ever to receive two diamond play buttons for having over 40 million subscribers on his two channels.
 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ###  3\.  ElrubiusOMG
 
@@ -87,10 +93,10 @@ More than 25 million subscribers who follow this gaming commentator. The El Rubi
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ###  4\.  Smosh
@@ -107,19 +113,6 @@ In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube c
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
 At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 million downloads in the first week. His videos are mostly in Spanish which somewhat limits his audience, but it is safe to say the Fernanfloo channel is among the most popular channels in the Latin American countries since most of his audience comes from Bolivia, Peru, and Ecuador.
@@ -128,24 +121,25 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -168,24 +162,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-wrapping-up-with-impactful-endings/"><u>[New] 2024 Approved Wrapping Up with Impactful Endings</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/chieving-video-popularity-mastering-youtube-thumbnail-selection/"><u>[New] Achieving Video Popularity Mastering YouTube Thumbnail Selection</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/uture-of-online-gaming-earnings/"><u>[New] Future of Online Gaming Earnings</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/tep-by-step-revenue-building-for-youtube-creators/"><u>[New] Step-by-Step Revenue Building for YouTube Creators</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-pioneers-in-the-realm-of-multimedia-synergy/"><u>[Updated] In 2024, Pioneers in the Realm of Multimedia Synergy</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-step-by-step-guide-posting-shorts-on-youtube-from-pcmobile-devices-for-2024/"><u>[Updated] Step-by-Step Guide Posting Shorts on YouTube From PC/Mobile Devices for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-elevating-video-visibility-through-thumbnails/"><u>2024 Approved Elevating Video Visibility Through Thumbnails</u></a></li>
-<li><a href="https://win-dash.techidaily.com/dvd2023windows-10/"><u>DVDビデオをパソコン上へ持ち込む:2023年版、無料Windows 10ガイド</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/te-your-online-presence-audios-for-your-channel-for-2024/"><u>Elevate Your Online Presence Audios for Your Channel for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-disable-the-personalized-content-in-your-instagram-experience/"><u>How to Disable the Personalized Content in Your Instagram Experience</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-watch-hulu-outside-us-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>How to Watch Hulu Outside US On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-essentials-understanding-whatsapp-calls/"><u>In 2024, The Essentials Understanding WhatsApp Calls</u></a></li>
-<li><a href="https://driver-error.techidaily.com/mitigating-issues-with-acpi-device-33a0/"><u>Mitigating Issues with ACPI: DEVICE 33A0</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/simplified-techniques-for-correcting-profile-ages/"><u>Simplified Techniques for Correcting Profile Ages</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/streamline-your-views-eradicate-lags-in-vlc/"><u>Streamline Your Views, Eradicate Lags in VLC</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-convert-mts-for-samsung-galaxy-s24-ultra-by-aiseesoft-video-converter-play-mts-on-android/"><u>The way to convert MTS for Samsung Galaxy S24 Ultra</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/treacle-tracking-step-by-step-tutorial-on-summer-snack-monitoring-for-2024/"><u>Treacle Tracking Step-by-Step Tutorial on Summer Snack Monitoring for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/uncovering-notable-versions-within-microsofts-movie-maker/"><u>Uncovering Notable Versions Within Microsoft's Movie Maker</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/guide-to-understanding-youtube-tvs-signature-features/"><u>Your Guide to Understanding YouTube TV's Signature Features</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-3-step-financial-forecasting-assessing-revenue-from-googles-platform-youtube/"><u>[New] 2024 Approved 3-Step Financial Forecasting Assessing Revenue From Google's Platform, YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-become-a-pro-in-calculating-youtube-ratio-measures/"><u>[New] 2024 Approved Become a Pro in Calculating YouTube Ratio Measures</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-elevate-your-content-premier-youtube-rank-tracker-apps/"><u>[New] 2024 Approved Elevate Your Content Premier YouTube Rank Tracker Apps</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-enhancing-your-game-time-with-youtube-live-broadcasts/"><u>[New] 2024 Approved Enhancing Your Game Time with YouTube Live Broadcasts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-exclusive-list-of-premium-video-downloader-apps-for-2024/"><u>[New] Exclusive List of Premium Video Downloader Apps for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/create-logos-via-free-logo-template-customize-and-download-for-free/"><u>Create Logos via Free Logo Template Customize and Download for Free</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-vivo-t2-5g-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Vivo T2 5G Quickly | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-find-zen-with-these-10-game-choices/"><u>In 2024, Find Zen with These 10 Game Choices</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-how-to-fix-live-video-interrupted-on-facebook/"><u>In 2024, How to Fix Live Video Interrupted on Facebook?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-samsung-galaxy-z-fold-5-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Samsung Galaxy Z Fold 5 Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/interactive-guide-to-the-philips-49-oled-gaming-display-with-curved-screen/"><u>Interactive Guide to the Philips 49 OLED Gaming Display with Curved Screen</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-to-skyrocket-your-youtube-subscribers-count/"><u>Steps to Skyrocket Your YouTube Subscribers Count</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-video-editors-paradise-10-essential-software-solutions/"><u>Updated 2024 Approved Video Editors Paradise 10 Essential Software Solutions</u></a></li>
 </ul></div>
 

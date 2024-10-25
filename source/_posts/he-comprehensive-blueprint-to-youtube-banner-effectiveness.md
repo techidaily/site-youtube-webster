@@ -1,7 +1,7 @@
 ---
 title: "[New] The Comprehensive Blueprint to YouTube Banner Effectiveness"
-date: 2024-10-12T08:01:55.961Z
-updated: 2024-10-18T22:38:53.522Z
+date: 2024-10-19T23:32:52.189Z
+updated: 2024-10-24T23:06:11.822Z
 tags:
   - ai video
   - ai youtube
@@ -99,23 +99,9 @@ We recommend these two sites for anybody who finds copyright rules confusing bec
 
 ![free-youtube-banner-unsplash](https://images.wondershare.com/filmora/free-youtube-banner-unsplash.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [**Unsplash:**](https://unsplash.com/) This site has a huge selection, and more photos are being added all the time. Finding what you want is as easy as typing a keyword (i.e., 'sunset') into the search bar on the home page.
 
 ![free-youtube-banner-pexels](https://images.wondershare.com/filmora/free-youtube-banner-pexels.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [**Pexels:**](https://www.pexels.com/) you can find a wide variety of images on Pexels just by using the search bar on the main page, much like Unsplash. There is actually some overlap in the images available on the two sites, but they also each have photos the other doesn't, so it's worth looking at both.
 
@@ -136,13 +122,6 @@ Often, the download will not be as large as the image you see on the site. It wi
 You can use the navigation tools in the top right of the screen to see more patterns. Clicking the icon that looks like a bunch of squares will allow you to see multiple patterns at once.
 
 ![free-youtube-banner-hero-pattern](https://images.wondershare.com/filmora/free-youtube-banner-hero-pattern.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [**Hero Patterns:**](https://www.heropatterns.com/) the patterns on this site are editable before you download. You choose a foreground color, a background color, and the opacity of the design in the foreground. This means that you can make the pattern as subtle or vibrant as you want, which is a great thing to have control over when you're creating channel art.
 
@@ -184,6 +163,13 @@ A major **benefit** of PixStudio is that it provides a feature to remove the ima
 
 ![ Wondershare PixStudio Banner Maker](https://images.wondershare.com/filmora/article-images/ultimate-guide-to-effective-youtube-banners.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [**Design Wizard**](https://www.designwizard.com/)
 
 This is another easy to use image editor with templates and stock images, like Canva. You just select YouTube Cover from the options in the Social Media menu (there are also options for YouTube Thumbnails and Profile Pics).
@@ -203,6 +189,13 @@ Fotor has more free templates than Canva or Design Wizard, although it does also
 You can upload your own images to use in Fotor as well.
 
 A major **benefit** of Fotor is that it has a lot of genuinely free channel art templates you can customize, and one **drawback** is that it doesn't have as many stock photos.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **How to Make Good Channel Art**
 
@@ -224,10 +217,10 @@ Here are some things you might want to include in your YouTube banner. Not all o
 ![ YouTube channel art layout](https://images.wondershare.com/filmora/article-images/youtube-channel-art-layout.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### **Top 5 Tips for Making Great YouTube Banners**
@@ -265,10 +258,16 @@ Here's a guide to what people tend to associate with different colors:
 ![color-implication](https://images.wondershare.com/filmora/color-implication.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Include Your Face**
@@ -309,10 +308,10 @@ However, for lots of YouTube niches, the channel art you make will be built arou
 ![text-and-logo-minimalism](https://images.wondershare.com/filmora/text-and-logo-minimalism.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 This is an example of a minimalist YouTube banner. This style typically uses only 2 or 3 colors and features clean lines, simple backgrounds, and not a lot of noise. If you want to project a calm, tidy, balanced vibe on your channel, then you should consider going in a minimalist direction with your banner.
@@ -338,6 +337,19 @@ If you're looking for inspiration for a custom funky banner, go to your closet a
 **Comic**
 
 ![/text-and-logo-comic](https://images.wondershare.com/filmora/text-and-logo-comic.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 A banner featuring an actual comic book character probably belongs to a channel that discusses comics, but the style itself is great for just about anyone. It's bold and communicates confidence. If your attitude towards YouTube is that you want to be fearless, why not go for something worthy of a superhuman?
 
@@ -370,20 +382,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ow-to-find-your-niche-and-style-a-starters-guide-high-cpm-for-2024/"><u>[New] How to Find Your Niche and Style - a Starter's Guide [High CPM] for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ecrets-unveiled-perfect-your-360-youtube-live-experience-for-2024/"><u>[New] Secrets Unveiled Perfect Your 360° YouTube Live Experience for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-engaging-video-credits-the-best-fonts-for-thumbnails-for-2024/"><u>[Updated] Engaging Video Credits The Best Fonts for Thumbnails for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-spark-your-audience-with-best-video-content-ideas-for-2024/"><u>[Updated] Spark Your Audience with Best Video Content Ideas for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-viral-video-venues-clash-youtube-shorts-vs-tiktoks-rapid-rise-for-2024/"><u>[Updated] Viral Video Venues Clash YouTube Shorts Vs. TikTok's Rapid Rise for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-youtubes-retro-playlist-trick-how-to-go-in-arrears/"><u>[Updated] Youtube's Retro Playlist Trick How to Go in Arrears</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/discover-windows-11-key-combinations-for-screenshot-taking/"><u>Discover Windows 11 Key Combinations for Screenshot Taking</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/how-to-share-vimeo-video-in-instagram-stories-for-2024/"><u>How to Share Vimeo Video in Instagram Stories for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-analyzing-online-video-discussions/"><u>In 2024, Analyzing Online Video Discussions</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-ios-and-android-leading-10-apps-for-captivating-stickers-on-images/"><u>In 2024, IOS & Android Leading 10 Apps for Captivating Stickers on Images</u></a></li>
-<li><a href="https://win-dash.techidaily.com/installing-the-latest-logitech-brio-webcam-software-on-windows-11-a-step-by-step-guide/"><u>Installing the Latest Logitech BRIO Webcam Software on Windows 11: A Step-by-Step Guide</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/iphones-power-plunge-top-7-solutions-for-post-ios-1751-battery-woes-techtips/"><u>IPhone's Power Plunge: Top 7 Solutions for Post-IOS 17.5.1 Battery Woes | TechTips</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/solving-avi-file-playback-issues-on-xbox-360xbox-one-step-by-step-fixes/"><u>Solving AVI File Playback Issues on Xbox 360/Xbox One: Step-by-Step Fixes</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/the-path-from-twitter-video-to-fb-sharing-for-2024/"><u>The Path From Twitter Video to FB Sharing for 2024</u></a></li>
-<li><a href="https://win-docs.techidaily.com/top-3-adorable-and-simple-tools-for-converting-videos-to-memes/"><u>Top 3 Adorable & Simple Tools for Converting Videos to Memes</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-adjusting-youtubes-viewership-limits-for-content/"><u>[New] 2024 Approved Adjusting YouTube's Viewership Limits for Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-best-practices-for-adding-content-enhancements-cards/"><u>[New] 2024 Approved Best Practices for Adding Content Enhancements (Cards)</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-digital-dive-essential-recording-tactics-for-shows/"><u>[New] 2024 Approved Digital Dive Essential Recording Tactics for Shows</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-the-essential-srt-compendium-for-all-levels/"><u>[New] In 2024, The Essential SRT Compendium for All Levels</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-top-economical-live-capture-software-suite/"><u>[Updated] 2024 Approved Top Economical Live Capture Software Suite</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-conversion-made-simple-youtube-to-mp3-mac-edition/"><u>Audio Conversion Made Simple YouTube to MP3, Mac Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/ray-ban-stories-on-facebook-detailed-overview-and-pricing-info/"><u>Ray-Ban Stories on Facebook - Detailed Overview & Pricing Info</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-introduction-the-art-of-green-screening/"><u>Swift Introduction The Art of Green Screening</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-blueprint-for-successful-collaborative-video-production-on-youtube-for-2024/"><u>The Blueprint for Successful Collaborative Video Production on YouTube for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/tips-for-private-discussions-with-friends-on-xbox/"><u>Tips for Private Discussions with Friends on Xbox</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Visual Anonymous  How to Make Faces and Objects Invisible\""
-date: 2024-09-04T22:22:34.086Z
-updated: 2024-09-05T22:22:34.086Z
+date: 2024-10-18T16:32:09.998Z
+updated: 2024-10-24T16:48:14.243Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,13 @@ Suppose you are interested in preserving the identity of people in your YouTube 
 
 If you are recording your tutorial for YouTube or your demonstration videos, you may need to blur or hide the private and sensitive information. Click [to check how did I hide the personal info in the video](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Blur Faces or Objects in Videos With YouTube Video Editor
 
 YouTube has offered the chance to blur out images, faces, and more since 2012\. The face blur tool available on YouTube works quite well.
@@ -63,10 +70,24 @@ Here is what you need to do:
 
 ![blur faces in youtube videos](https://images.wondershare.com/filmora/article-images/blur-faces-in-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Click on the Edit button of the Custom blurring option
 * This time, a pop-up window will appear
 
 ![costum-blur-in-youtube-videos](https://images.wondershare.com/filmora/article-images/costum-blur-in-youtube-videos.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * With the use of click and drag properties, you can create the blurred content
 * Click on Done
@@ -76,20 +97,24 @@ Here is a tutorial video for how to blur faces or objects on YouTube:
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -98,11 +123,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/ootball-video-analysis-top-youtube-infographics/"><u>[New] Football Video Analysis Top YouTube Infographics</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-speed-control-101-taming-video-velocity-in-snapchat/"><u>[New] Speed Control 101 Taming Video Velocity in Snapchat</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-how-to-deal-with-youtube-trolls-and-negative-comments/"><u>[Updated] 2024 Approved How To Deal with YouTube Trolls and Negative Comments</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-captivate-crowds-mastering-hashtag-use-in-high-traffic-short-videos/"><u>[Updated] In 2024, Captivate Crowds Mastering Hashtag Use in High-Traffic Short Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-turning-tides-creative-methods-to-flip-your-youtube-video-for-2024/"><u>[Updated] Turning Tides Creative Methods to Flip Your YouTube Video for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-thumbnail-design-101-for-video-promotion-on-youtube/"><u>2024 Approved Thumbnail Design 101 for Video Promotion on YouTube</u></a></li>
+<li><a href="https://article-files.techidaily.com/a-deep-dive-into-metaverse-gear-top-8-recommendations-for-2024/"><u>A Deep Dive Into Metaverse Gear Top 8 Recommendations for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Gionee F3 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-unlock-your-presentation-potential-with-these-high-quality-templates/"><u>In 2024, Unlock Your Presentation Potential with These High-Quality Templates</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/transforming-your-dvds-into-mp4-format-top-10-methods-for-windows-and-mac-users/"><u>Transforming Your DVDs Into MP4 Format: Top 10 Methods for Windows and Mac Users</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/understanding-windows-fresh-start-versus-backup-restoration-what-sets-them-apart/"><u>Understanding Windows Fresh Start versus Backup Restoration: What Sets Them Apart?</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

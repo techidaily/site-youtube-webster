@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Make Your Own YouTube Opening & Closing Graphics"
-date: 2024-09-04T22:24:59.587Z
-updated: 2024-09-05T22:24:59.587Z
+date: 2024-10-18T18:09:33.037Z
+updated: 2024-10-24T20:22:14.875Z
 tags:
   - ai video
   - ai youtube
@@ -77,6 +77,13 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -112,20 +119,24 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,11 +145,23 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/rafting-successful-videos-on-youtube-for-beginners-for-2024/"><u>[New] Crafting Successful Videos on YouTube for Beginners for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-final-flourishes-crafting-memorable-video-closures/"><u>[New] In 2024, Final Flourishes Crafting Memorable Video Closures</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/railblazer-in-multimedia-craftsmanship/"><u>[New] Trailblazer in Multimedia Craftsmanship</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-prime-top-10-free-transcript-harvesters-for-videos/"><u>[Updated] 2024 Approved Prime Top 10 Free Transcript Harvesters for Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-a-shadows-perspective-instagram-story-discovery-with-zero-identity-disclosure-pc-android-iphone/"><u>[Updated] A Shadow's Perspective Instagram Story Discovery with Zero Identity Disclosure [PC, Android, iPhone]</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-compreranimal-webcam-tutorial-achieve-excellent-video-quality/"><u>[Updated] Compreranimal Webcam Tutorial Achieve Excellent Video Quality</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-best-zoom-transcription-software/"><u>[Updated] In 2024, Best Zoom Transcription Software</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-seamless-conversion-excellence-with-these-top-8-tools/"><u>[Updated] In 2024, Seamless Conversion Excellence with These Top 8 Tools</u></a></li>
+<li><a href="https://driver-download.techidaily.com/canon-pro-100-printer-drivers-installer-and-setup-for-pc-easy-guide/"><u>Canon PRO 100 Printer Drivers Installer & Setup for PC - Easy Guide</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/eco-conscious-speedsters-unveiled-in-depth-analysis-of-teamgroups-t-force-vulcan-ddr5-6000-2x16gb-stick-set-a-comprehensive-review/"><u>Eco-Conscious Speedsters Unveiled: In-Depth Analysis of TeamGroup's T-Force Vulcan DDR5-6000, 2X16GB Stick Set - A Comprehensive Review</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-integrating-youtube-into-your-imovie-projects/"><u>In 2024, Integrating YouTube Into Your iMovie Projects</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-steps-to-successful-remote-podcasting/"><u>In 2024, Steps to Successful Remote Podcasting</u></a></li>
+<li><a href="https://games-able.techidaily.com/streamlining-gaming-experience-connect-controllers-to-android-devices/"><u>Streamlining Gaming Experience: Connect Controllers to Android Devices</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ry-of-short-videos-simplicity-included/"><u>Summary of Short Videos, Simplicity Included</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/understanding-lag-times-could-it-be-your-internet-or-actual-nintendo-switch-online-disruptions/"><u>Understanding Lag Times: Could It Be Your Internet or Actual Nintendo Switch Online Disruptions?</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/windows-10-audio-problems-heres-how-to-make-your-headphones-work-again/"><u>Windows 10 Audio Problems? Here's How to Make Your Headphones Work Again</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

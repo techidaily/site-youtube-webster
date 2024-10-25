@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Instantly Purging Unwanted YouTube Comments Made Simple"
-date: 2024-10-15T02:59:05.807Z
-updated: 2024-10-19T07:52:56.187Z
+date: 2024-10-18T17:45:20.403Z
+updated: 2024-10-24T20:54:29.247Z
 tags:
   - ai video
   - ai youtube
@@ -51,13 +51,6 @@ In this section, we will tell you how you can do it from your desktop.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Delete All YouTube Comments from Mobile?
 
@@ -116,10 +109,17 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -131,15 +131,22 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
@@ -153,13 +160,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -182,22 +182,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-unleashing-the-power-of-youtube-short-form-videos/"><u>[New] 2024 Approved Unleashing the Power of YouTube Short Form Videos</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-unlock-faster-youtube-submission-via-smart-rendering-and-uploading/"><u>[New] 2024 Approved Unlock Faster YouTube Submission via Smart Rendering & Uploading</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-maximize-your-youtube-income-with-effective-mobile-device-strategies/"><u>[New] In 2024, Maximize Your YouTube Income with Effective Mobile Device Strategies</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-extract-and-save-youtube-gallery-files/"><u>[Updated] 2024 Approved Extract and Save YouTube Gallery Files</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-eluding-youtube-ban-protective-measures-for-2024/"><u>[Updated] Eluding YouTube Ban Protective Measures for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-how-to-guide-perfect-your-youtube-video-looping-game-for-2024/"><u>[Updated] How-To Guide Perfect Your YouTube Video Looping Game for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-listening-landscapes-where-should-you-invest-more-time-podcasts-or-youtube/"><u>[Updated] In 2024, Listening Landscapes Where Should You Invest More Time – Podcasts or YouTube?</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-language-of-cinema-writing-as-an-art/"><u>[Updated] In 2024, The Language of Cinema Writing as an Art</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-the-insider-guide-elevating-your-instagram-imagery/"><u>[Updated] The Insider Guide Elevating Your Instagram Imagery</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-whats-the-price-tag-for-1m-youtube-sights-in-2024/"><u>[Updated] What's the Price Tag for 1M YouTube Sights, In 2024</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/efficiently-downsizing-videos-ensuring-excellent-quality-preservation-through-conversion-techniques/"><u>Efficiently Downsizing Videos: Ensuring Excellent Quality Preservation Through Conversion Techniques</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/expert-external-storage-fix-with-ifind-recover-pro-secure-your-lost-data-on-compromised-hdds-and-ssds/"><u>Expert External Storage Fix with iFinD Recover Pro: Secure Your Lost Data on Compromised HDDs and SSDs</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-engaging-audiences-triad-of-effective-storytelling/"><u>In 2024, Engaging Audiences Triad of Effective Storytelling</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/maximizing-video-quality-enabling-av1-on-youtube-for-2024/"><u>Maximizing Video Quality Enabling AV1 on YouTube for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigate-feeds-intentionally-on-twitter-and-instagram/"><u>Navigate Feeds Intentionally on Twitter & Instagram</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ey-to-attracting-views-youtube-image-marketing-for-2024/"><u>The Key to Attracting Views YouTube Image Marketing for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/unveiling-hidden-system-files-in-windows-11-a-comprehensive-guide/"><u>Unveiling Hidden System Files in Windows 11: A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-lightning-share-youtube-playlist-hacks/"><u>[New] 2024 Approved Lightning Share YouTube Playlist Hacks</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-essential-tips-for-the-steam-switch-pro-controller-for-2024/"><u>[New] Essential Tips for the Steam Switch Pro Controller for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-start-saving-youtube-videos-as-screen-captures-today-completely-free/"><u>[New] In 2024, Start Saving YouTube Videos as Screen Captures Today - Completely Free</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-staying-grounded-in-vr-worlds/"><u>[New] Staying Grounded in VR Worlds</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-streaming-stakes-pewdiepies-earnings-examination-for-2024/"><u>[New] Streaming Stakes PewDiePie’s Earnings Examination for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-superior-hd-video-capture-options-reviewed-here/"><u>[New] Superior HD Video Capture Options Reviewed Here</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-navigating-your-way-through-youtube-tvs-unique-offerings/"><u>[Updated] In 2024, Navigating Your Way Through YouTube TV's Unique Offerings</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-unveiling-the-power-of-youtube-backlinks-for-creators/"><u>2024 Approved Unveiling the Power of YouTube Backlinks for Creators</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/achieve-peak-mac-operation-discover-stellars-fix/"><u>Achieve Peak Mac Operation - Discover Stellar’s Fix</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nt-creators-preferences-vimeo-or-youtube-for-2024/"><u>Content Creators' Preferences Vimeo or YouTube for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/full-guide-to-bypass-xiaomi-redmi-note-12-pro-4g-frp-by-drfone-android/"><u>Full Guide to Bypass Xiaomi Redmi Note 12 Pro 4G FRP</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-elite-recording-tools-for-gamers/"><u>In 2024, Elite Recording Tools for Gamers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-from-fumbling-clips-to-viral-videos-youtube-edits-made-easy-with-sony-vegas/"><u>In 2024, From Fumbling Clips to Viral Videos YouTube Edits Made Easy with Sony Vegas</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-step-into-worlds-youtubes-premier-selection-of-vr-movies/"><u>In 2024, Step Into Worlds YouTube's Premier Selection of VR Movies</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-neon-font-creator-top-rated-online-tools-for-custom-neon-text/"><u>New Neon Font Creator Top-Rated Online Tools for Custom Neon Text</u></a></li>
+<li><a href="https://change-location.techidaily.com/pokemon-go-cooldown-chart-on-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Samsung Galaxy F34 5G | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/seamless-srt-to-sub-transition-techniques-for-2024/"><u>Seamless SRT to SUB Transition Techniques for 2024</u></a></li>
 </ul></div>
 

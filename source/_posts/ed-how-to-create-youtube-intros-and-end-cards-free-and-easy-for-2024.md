@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] How to Create YouTube Intros & End Cards - Free and Easy for 2024\""
-date: 2024-10-14T22:51:57.269Z
-updated: 2024-10-18T21:31:49.973Z
+date: 2024-10-17T17:59:12.312Z
+updated: 2024-10-24T22:32:18.150Z
 tags:
   - ai video
   - ai youtube
@@ -83,10 +83,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,10 +125,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -152,18 +152,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-icon-and-logo-havens-a-guide-to-6-unique-online-resources/"><u>[Updated] 2024 Approved Icon & Logo Havens A Guide to 6 Unique Online Resources</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-a-comprehensible-explanation-of-youtubes-viewership-puzzle/"><u>[Updated] In 2024, A Comprehensible Explanation of YouTube's Viewership Puzzle</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-launchpad-equipment-the-beginners-checklist/"><u>[Updated] Launchpad Equipment The Beginner's Checklist</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-crafting-captivating-openings-top-free-intra-makers-list/"><u>2024 Approved Crafting Captivating Openings Top Free Intra Makers List</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-unveiling-the-basics-an-approachable-hdr-review/"><u>2024 Approved Unveiling the Basics An Approachable HDR Review</u></a></li>
-<li><a href="https://win-blog.techidaily.com/flashmovavitsflv/"><u>網路直接Flash格式化，無限制過渡：Movavi的自由版TS到FLV變更器</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ient-mac-video-resizing-to-fixed-ratio/"><u>Efficient Mac Video Resizing to Fixed Ratio</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/how-to-master-hunting-alien-monsters-an-in-depth-review-of-monster/"><u>How to Master Hunting Alien Monsters: An In-Depth Review of Monster</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-dominating-search-results-essential-youtube-seo-tricks/"><u>In 2024, Dominating Search Results Essential YouTube SEO Tricks</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-mastering-powerpoint-recording-on-camera-for-professionals/"><u>In 2024, Mastering PowerPoint Recording on Camera for Professionals</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ipad-pro-vs-macbook-pro-in-depth-analysis-of-differences/"><u>IPad Pro Vs. MacBook Pro – In-Depth Analysis of Differences</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/movavi-online-free-tool-convertir-de-archivos-wav-a-wma-facilmente/"><u>Movavi Online Free Tool: Convertir De Archivos WAV a WMA Fácilmente</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-best-websites-to-download-nature-sounds/"><u>New Best Websites to Download Nature Sounds</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-paint-your-posts-brightly-instagrams-triple-highlight-strategies/"><u>[New] Paint Your Posts Brightly Instagram's Triple Highlight Strategies</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nlocking-youtubes-full-potential-advanced-banner-strategies-for-2024/"><u>[New] Unlocking YouTube's Full Potential Advanced Banner Strategies for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-a-comprehensive-list-of-top-video-making-software-iphone-android/"><u>[Updated] A Comprehensive List of Top Video-Making Software (iPhone, Android)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-collaborative-video-creation-and-growth-tips-for-2024/"><u>[Updated] Collaborative Video Creation & Growth Tips for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-direct-music-upload-top-tools-for-turning-spotify-into-youtube-listings/"><u>[Updated] Direct Music Upload Top Tools for Turning Spotify Into YouTube Listings</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-mac-users-guide-to-snapchat-integration-for-2024/"><u>[Updated] Mac Users' Guide to Snapchat Integration for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-navigating-youtube-shorts-thumbnail-losses/"><u>[Updated] Navigating YouTube Shorts Thumbnail Losses</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-minimizing-moments-edit-longer-videos-for-youtube/"><u>2024 Approved Minimizing Moments Edit Longer Videos for YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-unveiling-the-secrets-to-effortless-youtube-sharing-on-fb-groups/"><u>2024 Approved Unveiling the Secrets to Effortless YouTube Sharing on FB Groups</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/complete-guide-to-iphone-notes-recovery-regain-all-deleted-content/"><u>Complete Guide to iPhone Notes Recovery - Regain All Deleted Content</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/direct-to-streamer-content-twitch-versus-youtube-explored/"><u>Direct-to-Streamer Content Twitch Versus YouTube Explored</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-nokia-c12-plus-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Nokia C12 Plus Location Settings | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-can-you-transfer-files-from-honor-70-lite-5g-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How Can You Transfer Files From Honor 70 Lite 5G To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-apex-screen-capture-tools-the-elite-line-up/"><u>In 2024, Apex Screen Capture Tools The Elite Line-Up</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/make-your-own-cartoons-top-rated-mobile-apps/"><u>Make Your Own Cartoons Top-Rated Mobile Apps</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ring-the-art-of-youtube-music-reactions-essential-tips-for-2024/"><u>Mastering the Art of YouTube Music Reactions - Essential Tips for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unveiling-the-ultimate-top-10-4k-displays-for-macbook-users/"><u>Unveiling the Ultimate Top 10 4K Displays for MacBook Users</u></a></li>
 </ul></div>
 

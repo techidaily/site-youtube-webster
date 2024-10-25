@@ -1,7 +1,7 @@
 ---
 title: "Tripping Up? Here's How to Avoid It"
-date: 2024-09-04T22:26:11.324Z
-updated: 2024-09-05T22:26:11.324Z
+date: 2024-10-23T00:17:26.501Z
+updated: 2024-10-24T19:40:15.403Z
 tags:
   - ai video
   - ai youtube
@@ -59,11 +59,12 @@ Now you can set your smartphone upon any stable surface, like a table or a stack
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -82,17 +83,12 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -102,11 +98,12 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 _All of your supplies plus the finished product._
 
 **Readying your legs**
@@ -130,31 +127,23 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -163,4 +152,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-decrypting-youtube-live-thumbnails-for-success/"><u>[New] 2024 Approved Decrypting YouTube Live Thumbnails for Success</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/avigating-copyright-challenges-on-youtube-shorts-for-2024/"><u>[New] Navigating Copyright Challenges on YouTube Shorts for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/tep-up-your-stream-simultaneous-views-on-one-screen/"><u>[New] Step Up Your Stream Simultaneous Views on One Screen</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-pioneering-in-play-a-step-by-step-to-thriving-gaming-channels/"><u>[Updated] 2024 Approved Pioneering in Play A Step-by-Step to Thriving Gaming Channels</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-9-steps-to-combat-chromes-video-blackout/"><u>[Updated] 9 Steps to Combat Chrome's Video Blackout</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-photoshops-powerful-tool-image-curving-techniques/"><u>[Updated] In 2024, Photoshop's Powerful Tool Image Curving Techniques</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-social-stream-wars-fb-live-vs-yt-live-and-tweetstreams/"><u>[Updated] In 2024, Social Stream Wars FB LIVE Vs. YT Live & TweetStreams</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-tidying-up-old-youtube-tracks-bar-free-viewing/"><u>[Updated] In 2024, Tidying Up Old YouTube Tracks Bar-Free Viewing</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-insights-on-how-youtube-handles-uploaded-videos/"><u>2024 Approved Insights on How YouTube Handles Uploaded Videos</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-video-repair-tool-to-fix-and-repair-corrupted-video-files-of-google-pixel-7a-by-stellar-video-repair-mobile-video-repair/"><u>Best Video Repair tool to Fix and Repair Corrupted video files of Google Pixel 7a</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/boost-your-skills-a-guide-to-teaching-chatgpts-bots-for-board-games-image-production-and-more/"><u>Boost Your Skills: A Guide to Teaching ChatGPT's Bots for Board Games, Image Production & More</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-master-the-art-of-video-editing-in-obs-studio/"><u>In 2024, Master the Art of Video Editing in OBS Studio</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/mastering-discord-bot-integration-a-comprehensive-walkthrough/"><u>Mastering Discord Bot Integration: A Comprehensive Walkthrough</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/pcpodcast/"><u>PCやスマートフォンで簡単にPodcast レコーディングのコツ</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/by-step-guide-enhancing-youtube-content-with-ios-recording-for-2024/"><u>Step-by-Step Guide Enhancing YouTube Content with iOS Recording for 2024</u></a></li>
+<li><a href="https://media-tips.techidaily.com/the-ultimate-guide-to-7-leading-converters-from-m4a-files-to-quality-wav-on-pcs-and-macs/"><u>The Ultimate Guide to 7 Leading Converters From M4A Files to Quality WAV on PCs & Macs</u></a></li>
+</ul></div>
 
