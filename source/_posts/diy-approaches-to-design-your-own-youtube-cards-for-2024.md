@@ -1,7 +1,7 @@
 ---
 title: "Free DIY Approaches to Design Your Own YouTube Cards for 2024"
-date: 2024-10-19T22:25:11.988Z
-updated: 2024-10-25T01:38:43.143Z
+date: 2024-10-26T22:13:35.760Z
+updated: 2024-10-30T21:45:07.798Z
 tags:
   - ai video
   - ai youtube
@@ -83,10 +83,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,10 +125,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -152,19 +152,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-building-wealth-through-video-content-revenue/"><u>[New] In 2024, Building Wealth Through Video Content Revenue</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-capturefreeplay-cutting-edge-recording-for-gamers/"><u>[Updated] 2024 Approved CaptureFreePlay Cutting-Edge Recording for Gamers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-rank-higher-on-youtube-essential-seo-tips-unveiled/"><u>[Updated] 2024 Approved Rank Higher on YouTube Essential SEO Tips Unveiled</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-precision-in-every-frame-top-9-tips-for-vr-filmmaking/"><u>[Updated] Precision in Every Frame Top 9 Tips for VR Filmmaking</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-a-fresh-take-on-frigidity-crafting-inviting-backdrops/"><u>2024 Approved A Fresh Take on Frigidity Crafting Inviting Backdrops</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-movie-substitutes-to-explore-top-7-choices/"><u>2024 Approved Movie Substitutes to Explore - Top 7 Choices</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-navigating-the-freebie-waters-of-final-cut-pro/"><u>2024 Approved Navigating the Freebie Waters of Final Cut Pro</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-trustworthy-youtube-to-mp4-file-extraction-processes/"><u>2024 Approved Trustworthy YouTube to MP4 File Extraction Processes</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-track-access-in-google-docs-identifying-those-who-have-peeked/"><u>How to Track Access in Google Docs: Identifying Those Who Have Peeked</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-nokia-c300-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Nokia C300? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/record-breaking-reddit-threads-ranked-1-10-for-2024/"><u>Record-Breaking Reddit Threads Ranked 1-10 for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/telecharger-et-convertir-facilement-votre-fichier-m4v-au-format-wav-gratuitement-via-movavi/"><u>Télécharger Et Convertir Facilement Votre Fichier M4V Au Format WAV Gratuitement via Movavi</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/the-seamless-tweet-to-snap-transition-guide/"><u>The Seamless Tweet-to-Snap Transition Guide</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/be-movie-maker-unleashed-creative-possibilities-explored/"><u>YouTube Movie Maker Unleashed Creative Possibilities Explored</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ssential-gif-making-software-the-ultimate-guide-for-2024/"><u>[New] Essential GIF Making Software The Ultimate Guide for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-elite-7-dslr-options-superior-for-professional-videography/"><u>[New] In 2024, Elite 7 DSLR Options Superior for Professional Videography</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-leveraging-technology-for-flawless-youtube-cc-and-subtitled-videos/"><u>[New] In 2024, Leveraging Technology for Flawless YouTube CC & Subtitled Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/astering-your-content-delivery-insights-on-igtv-and-youtube-for-2024/"><u>[New] Mastering Your Content Delivery Insights on IGTV and YouTube for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-unveiling-the-mysteries-of-io-video-capture/"><u>[New] Unveiling the Mysteries of IO Video Capture</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-leading-videographers-best-editor-picks/"><u>[Updated] 2024 Approved Leading Videographers' Best Editor Picks</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-the-8-best-sketch-tools-for-digital-illustrators/"><u>[Updated] 2024 Approved The 8 Best Sketch Tools for Digital Illustrators</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-the-finishing-touch-journalisms-close-call/"><u>2024 Approved The Finishing Touch Journalism's Close Call</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-does-predictive-ai-generate-accurate-forecasts/"><u>How Does Predictive AI Generate Accurate Forecasts?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-track-imei-number-of-vivo-t2-5g-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Vivo T2 5G Through Google Earth?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-maximize-profitability-the-dos-and-donts-of-youtube-monetization/"><u>In 2024, Maximize Profitability – The Do's and Don'ts of YouTube Monetization</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/journey-blueprint-top-picks-of-seven-ai-apps-for-free-travel-planning/"><u>Journey Blueprint: Top Picks of Seven AI Apps for FREE Travel Planning</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/mastering-easy-ipad-video-recording-methods-for-2024/"><u>Mastering Easy iPad Video Recording Methods for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/still-using-pattern-locks-with-itel-s23plus-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Itel S23+? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ltimate-checklist-for-youtube-short-success/"><u>The Ultimate Checklist for YouTube Short Success</u></a></li>
+<li><a href="https://win-blog.techidaily.com/ultimate-troubleshooting-steps-for-fixing-battlenet-startup-problems/"><u>Ultimate Troubleshooting Steps for Fixing Battle.net Startup Problems</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/wie-man-sms-von-einem-iphone-an-ein-anderes-iphone-ohne-icloud-sendet/"><u>Wie Man SMS Von Einem iPhone an Ein Anderes iPhone Ohne iCloud Sendet</u></a></li>
 </ul></div>
 

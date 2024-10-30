@@ -1,7 +1,7 @@
 ---
 title: "Navigating Online Public Opinion for Video Content Concepts"
-date: 2024-10-19T00:26:57.437Z
-updated: 2024-10-24T16:19:29.005Z
+date: 2024-10-25T18:55:42.022Z
+updated: 2024-10-30T18:31:20.722Z
 tags:
   - ai video
   - ai youtube
@@ -52,10 +52,16 @@ Unless you do news or political commentary on your channel these probably aren�
 To get information more relevant to your channel you’re going to have to do some filtering.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Getting Results That Matter to You
@@ -82,6 +88,13 @@ For example, if you have a gaming channel and you’re looking for a non-gamepla
 
 ![Google Trends Category YouTube Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-categories.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The first two happen to be about gaming. If you, as a gamer, had any strong reaction to either of these topics – whether it’s that you feel like you’re knowledgeable about them, or that you’re excited by something that’s coming up, or that something made you groan – then that would be a sign that you should make a video. Capitalizing on a trend while also covering a topic you have a lot to say about is always a good move.
 
 Having something to say doesn’t have to mean having a strong opinion. If you just find something interesting and want to pass the information along to your viewers then that’s great too.
@@ -106,13 +119,6 @@ You can see near the top that this chart represents searches for the topic over 
 
 ![Google Trends YouTube Video Ideas Filmora](https://images.wondershare.com/filmora/article-images/google-trends-search-term-time-range.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 There, now I can see how the popularity of Filmora as a search term has spiked on specific days and times (if you hover over a spike it tells you the time and day) and plan to post my video at a time that capitalizes on these trends.
 
 Next, what other words do I want to include in my video title? Is this a review, a tutorial, or a how-to? By clicking on my search term Filmora, I can edit it to read ‘filmora review’. Then I can click **\+ Compare** and type in ‘filmora tutorial’ and ‘how to use Filmora’. Google Trends will create a chart comparing the popularity of those 3 terms.
@@ -120,10 +126,10 @@ Next, what other words do I want to include in my video title? Is this a review,
 ![Google Trends Filmora Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term-comparison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _I also ‘zoomed out’ to 90 days – if I’d only looked at how they compared over the last week my results could have been skewed._
@@ -144,13 +150,6 @@ One of the biggest benefits of identifying trends and making videos about them q
 
 Want to make coming up with YouTube video ideas a habit? [This post here](https://www.filmora.io/community-blog/how-to-come-up-with-better-youtube-video-ideas-391.html) will help you develop a process to generate more ideas and properly evaluate them.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Making Better YouTube Videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 As one of the most widely used video editing software among YouTubers, Filmora provides plentiful editing tools, such as cut, trim, [video stabilization](https://tools.techidaily.com/wondershare/filmora/download/), [noise removal](https://tools.techidaily.com/wondershare/filmora/download/), [chroma key compositing](https://tools.techidaily.com/wondershare/filmora/download/), and color grading. Besides, there are royalty-free music track and sound effects available in the built-in Audio library, and title templates and presets, as well as elements and effects. Download the free trial version below and get started now.
@@ -158,6 +157,13 @@ As one of the most widely used video editing software among YouTubers, Filmora p
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -180,20 +186,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/o-global-quickly-optimal-tags-to-escalate-your-youtube-snippets-for-2024/"><u>[New] Go Global Quickly Optimal Tags to Escalate Your YouTube Snippets for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/avigating-youtubes-tagging-system-tips-for-finding-prime-video-labels/"><u>[New] Navigating YouTube's Tagging System Tips for Finding Prime Video Labels</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-viral-talent-quest-episodes-1-10/"><u>[Updated] 2024 Approved Viral Talent Quest Episodes #1-10</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-best-talker-alteration-apps-for-video-content-makers/"><u>[Updated] In 2024, Best Talker Alteration Apps for Video Content Makers</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-pinnacle-of-camera-quality-top-18-4k-camcorders-for-2024/"><u>[Updated] Pinnacle of Camera Quality - Top 18 4K Camcorders for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-pro-streaming-setup-leading-livestream-hardware-and-software/"><u>[Updated] Pro Streaming Setup Leading Livestream Hardware and Software</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-snapstreak-savvy-guidance-to-prevent-interruptions-for-2024/"><u>[Updated] Snapstreak Savvy Guidance to Prevent Interruptions for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-memimagic-create-funny-images-on-the-go/"><u>2024 Approved MemiMagic Create Funny Images On-the-Go</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/ppm-tiff-movavi/"><u>免費在網路上 PPM 到 TIFF 轉換 - 利用Movavi</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/re-8-best-strategies-for-increasing-youtube-traffic/"><u>Explore 8 Best Strategies for Increasing Youtube Traffic</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-after-deleting-from-recently-deleted-on-iphone-se-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to recover deleted photos after deleting from Recently Deleted on iPhone SE | Stellar</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-unveiling-transparent-video-on-youtube/"><u>In 2024, Unveiling Transparent Video on YouTube</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondlys-latest-update-a-user-friendly-language-book/"><u>Mondly’s Latest Update: A User-Friendly Language Book</u></a></li>
-<li><a href="https://win-unique.techidaily.com/step-by-step-guide-to-safeguarding-onenote-on-windows-11-saving-and-reviving-your-written-content/"><u>Step-by-Step Guide to Safeguarding OneNote on Windows 11: Saving & Reviving Your Written Content</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/enefits-of-tubebuddy-manage-your-youtube-channel-more-easily/"><u>The Benefits of TubeBuddy | Manage Your YouTube Channel More Easily</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/chieving-financial-gain-with-youtube-shorts-essentials-opportunities-and-earning-prospects-for-2024/"><u>[New] Achieving Financial Gain with Youtube Shorts Essentials, Opportunities & Earning Prospects for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/hoosing-the-right-tool-for-your-youtube-to-avi-desire/"><u>[New] Choosing the Right Tool for Your YouTube-to-AVI Desire</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-cutting-edge-free-and-easy-top-11-youtube-title-inventors-for-2024/"><u>[New] Cutting-Edge, Free, and Easy Top 11 YouTube Title Inventors for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-raising-livestock-a-guide-to-ginger-island-farm-for-2024/"><u>[New] Raising Livestock A Guide to Ginger Island Farm for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-mastering-color-grading-with-ease-a-compreranble-guide-for-pscc-users/"><u>[Updated] In 2024, Mastering Color Grading with Ease A Compreranble Guide for PSCC Users</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-overcoming-shyness-in-the-spotlight-top-video-blogger-fears-for-2024/"><u>[Updated] Overcoming Shyness in the Spotlight Top Video Blogger Fears for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-essential-asmr-channel-discoveries/"><u>2024 Approved Essential ASMR Channel Discoveries</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-unlocking-the-secrets-to-counting-youtube-traffic-and-profits/"><u>2024 Approved Unlocking the Secrets to Counting YouTube Traffic and Profits</u></a></li>
+<li><a href="https://fox-making.techidaily.com/best-solutions-for-persistent-changes-in-itunes-library-path-top-4-strategies/"><u>Best Solutions for Persistent Changes in iTunes Library Path: Top 4 Strategies</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/boost-your-speed-with-these-12-beloved-free-typing-courses-for-everyone-any-age/"><u>Boost Your Speed With These 12 Beloved Free Typing Courses for Everyone, Any Age</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/guia-paso-a-paso-para-localizar-y-extraer-datos-escondidos-en-un-usb-mediante-el-simbolo-del-sistema/"><u>Guía Paso a Paso Para Localizar Y Extraer Datos Escondidos en Un USB Mediante El Símbolo Del Sistema</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-best-practices-for-youtube-video-brightness-and-contrast/"><u>In 2024, Best Practices for YouTube Video Brightness and Contrast</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-iosandroid-comparison-youtube-app-explored/"><u>In 2024, IOS/Android Comparison YouTube App Explored</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-non-sport-spectacles-in-the-top-ten-front-rows/"><u>In 2024, Non-Sport Spectacles in the Top Ten Front Rows</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-samsung-galaxy-a15-4g-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Samsung Galaxy A15 4G Phone Now with These Tips</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/movie-substitutes-that-shook-up-my-world-7-choices/"><u>Movie Substitutes That Shook Up My World - #7 Choices</u></a></li>
 </ul></div>
 

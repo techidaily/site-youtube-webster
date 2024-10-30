@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Starting Up YouTube - Your First Gear List\""
-date: 2024-10-17T18:55:04.961Z
-updated: 2024-10-24T16:26:21.114Z
+date: 2024-10-29T18:11:11.509Z
+updated: 2024-10-30T18:53:40.925Z
 tags:
   - ai video
   - ai youtube
@@ -66,10 +66,10 @@ Again, most YouTube video makers have a limited budget at their disposal, so pro
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lights for YouTube
@@ -99,10 +99,10 @@ Even if you are using a phone or a webcam to record YouTube videos, you should c
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
@@ -114,10 +114,10 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Equipment with Easy-to-Use Video Editor
@@ -125,10 +125,16 @@ Another common downside of smartphone cameras is that most of them use digital z
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -154,22 +160,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-copyright-laws-and-screencasting-of-online-video-platforms-youtube/"><u>[New] 2024 Approved Copyright Laws and Screencasting of Online Video Platforms (YouTube)</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-understanding-youtube-short-videos/"><u>[New] 2024 Approved Understanding YouTube Short Videos</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/onquer-your-audience-the-top-5-youtube-strategies-for-brands/"><u>[New] Conquer Your Audience The #Top 5 YouTube Strategies for Brands</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-artful-expression-on-tablets-leading-ios-drawers/"><u>[New] In 2024, Artful Expression on Tablets Leading iOS Drawers</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-connected-platforms-sharing-videos-between-twitter-and-tumblr/"><u>[Updated] 2024 Approved Connected Platforms Sharing Videos Between Twitter & Tumblr</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-sonic-gold-standard-10-ways-to-elevate-home-recordings/"><u>[Updated] 2024 Approved Sonic Gold Standard 10 Ways to Elevate Home Recordings</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-6-best-linkedin-video-downloaders-to-save-videos-from-linkedin/"><u>[Updated] 6 Best Linkedin Video Downloaders to Save Videos From LinkedIn</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-best-practices-for-inserting-text-on-youtube-videos-effectively-for-2024/"><u>[Updated] Best Practices for Inserting Text on YouTube Videos Effectively for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-amplify-your-brands-voice-the-power-of-shaped-videos/"><u>[Updated] In 2024, Amplify Your Brand’s Voice The Power of Shaped Videos</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-transform-video-discoverability-essential-seo-tips-for-yt/"><u>[Updated] In 2024, Transform Video Discoverability Essential SEO Tips for YT</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhanced-audio-experience-top-5-game-headsets-for-streaming/"><u>2024 Approved Enhanced Audio Experience Top 5 Game Headsets for Streaming</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-strategic-insightfulness-comparing-your-channel-to-competitors-crafts/"><u>2024 Approved Strategic Insightfulness Comparing Your Channel to Competitors' Crafts</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-youtube-subscriber-boost4-simplest-tricks-to-grow-your-channel/"><u>2024 Approved YouTube Subscriber Boost–4 Simplest Tricks to Grow Your Channel</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-honor-magic-vs-2-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Honor Magic Vs 2 to New Android? | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-11-best-location-changers-for-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Samsung Galaxy S24 | Dr.fone</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-from-surviving-to-conquering-top-zombie-games-decoded/"><u>In 2024, From Surviving to Conquering Top Zombie Games Decoded</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/lg-360-degree-headset-review-next-gen-immersion/"><u>LG 360-Degree Headset Review - Next-Gen Immersion</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-how-to-stream-in-hd-1080p-on-facebook-in-2024/"><u>[New] How to Stream in HD 1080P on Facebook, In 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-the-wanderlust-chronicles-setting-up-for-success-as-a-travel-vlogger/"><u>[New] In 2024, The Wanderlust Chronicles Setting Up for Success as a Travel Vlogger</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ust-have-programs-for-youtube-video-downloads/"><u>[New] Must-Have Programs for YouTube Video Downloads</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-art-of-imitation-crafting-parody-videos-for-2024/"><u>[New] The Art of Imitation Crafting Parody Videos for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-affordable-full-rotational-camera-systems-enhancing-media-for-2024/"><u>[Updated] Affordable, Full Rotational Camera Systems Enhancing Media for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-elevate-your-presence-the-best-5-practices-for-max-viewers/"><u>[Updated] In 2024, Elevate Your Presence The Best 5 Practices for Max Viewers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-master-your-youtube-content-with-superior-webm-converters-for-2024/"><u>[Updated] Master Your YouTube Content with Superior WebM Converters for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-mediameld-mixer-for-2024/"><u>[Updated] MediaMeld Mixer for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-personalizing-who-can-see-your-youtube-content/"><u>[Updated] Personalizing Who Can See Your YouTube Content</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-innovative-tactics-for-stellar-facebook-ad-videos/"><u>2024 Approved Innovative Tactics for Stellar Facebook Ad Videos</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-photoshop-simplified-beginner-friendly-editing-secrets/"><u>2024 Approved Photoshop Simplified Beginner-Friendly Editing Secrets</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/achieving-professional-streams-with-obs-android-style/"><u>Achieving Professional Streams with OBS, Android Style</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/genius-widecam-f100-review-pixelated-image-and-echoing-sound/"><u>Genius WideCam F100 Review: Pixelated Image and Echoing Sound</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-students-gateway-to-history-the-top-10-youtube-archives/"><u>In 2024, Students' Gateway to History The Top 10 Youtube Archives</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-steps-why-is-your-lunar-software-continuously-failing/"><u>Troubleshooting Steps: Why Is Your Lunar Software Continuously Failing?</u></a></li>
 </ul></div>
 

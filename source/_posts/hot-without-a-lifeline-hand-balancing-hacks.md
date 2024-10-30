@@ -1,7 +1,7 @@
 ---
 title: "\"The Shot Without a Lifeline  Hand Balancing Hacks\""
-date: 2024-10-21T18:09:59.869Z
-updated: 2024-10-24T18:55:25.215Z
+date: 2024-10-28T22:11:53.265Z
+updated: 2024-10-30T20:54:44.185Z
 tags:
   - ai video
   - ai youtube
@@ -55,26 +55,26 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
@@ -95,10 +95,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
@@ -108,6 +108,13 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -131,19 +138,6 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -165,22 +159,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/58471121-new-halt-youtube-suggested-content-now/"><u>[New] Halt YouTube Suggested Content Now!</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-halt-youtube-suggested-content-now/"><u>[New] In 2024, Halt YouTube Suggested Content Now!</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/astering-youtube-video-text-overlay-techniques-for-2024/"><u>[New] Mastering YouTube Video Text Overlay Techniques for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/he-essential-blueprint-to-compiling-youtube-soundscape-for-2024/"><u>[New] The Essential Blueprint to Compiling YouTube Soundscape for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-navigating-updated-earnings-policies-for-streamers/"><u>[Updated] 2024 Approved Navigating Updated Earnings Policies for Streamers</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-crafting-engaging-instagram-reels-step-by-step/"><u>[Updated] In 2024, Crafting Engaging Instagram Reels Step-by-Step</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/updated-structuring-a-significant-tiktok-close-up-for-2024/"><u>[Updated] Structuring a Significant TikTok Close-Up for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-10plus-best-free-video-editing-programs-of-2023/"><u>2024 Approved 10+ Best Free Video Editing Programs of 2023</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-best-stabilized-gimbals-for-mobile-and-pro-cameras-unveiled/"><u>2024 Approved Best Stabilized Gimbals for Mobile and Pro Cameras Unveiled</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/cing-follows-into-genuine-subscriptions/"><u>Enhancing Follows Into Genuine Subscriptions</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-from-idea-to-screen-smartphone-video-creation-tips/"><u>In 2024, From Idea to Screen Smartphone Video Creation Tips</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-100-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Honor 100 | Dr.fone</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/in-2024-top-9-apple-iphone-12-mini-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 9 Apple iPhone 12 mini Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-game-video-a-detailed-tool-analysis/"><u>In-Game Video A Detailed Tool Analysis</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/youtube-video-on-the-best-days-to-get-more-view-for-2024/"><u>Post Youtube Video on the Best Days to Get More View for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/uno-bindas-download-de-videos-de-aerobic-una-guia-completa-para-el-usuario-promedio/"><u>Uno Bindas Download De Vídeos De Aerobic: Una Guía Completa Para El Usuario Promedio</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/updated-tailoring-auditory-experiences-to-your-videos-with-ease-and-precision/"><u>Updated Tailoring Auditory Experiences to Your Videos with Ease and Precision</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-youtube-mastery-elevate-your-content-with-smart-tag-techniques/"><u>[New] In 2024, YouTube Mastery Elevate Your Content with Smart Tag Techniques</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ropel-your-online-presence-via-creator-studio/"><u>[New] Propel Your Online Presence via Creator Studio</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-top-tweet-talent-social-medias-10-gems/"><u>[Updated] 2024 Approved Top Tweet Talent Social Media’s 10 Gems</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-behind-the-scenes-youtubes-view-count-algorithm/"><u>[Updated] Behind the Scenes YouTube's View Count Algorithm</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-from-chaos-to-clarity-combining-obs-with-zoom/"><u>[Updated] From Chaos to Clarity Combining OBS with Zoom</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-from-viewers-to-vips-ajays-strategy-for-sustainable-income-streams/"><u>[Updated] From Viewers to VIPs Ajay's Strategy for Sustainable Income Streams</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-designing-custom-youtube-music-sequences/"><u>[Updated] In 2024, Designing Custom YouTube Music Sequences</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-rise-to-success-with-these-essential-15-fb-sales-insights-for-2024/"><u>[Updated] Rise to Success with These Essential 15 FB Sales Insights for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-complete-guide-to-mastering-games-with-kinemaster-android/"><u>[Updated] The Complete Guide to Mastering Games with KineMaster Android</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/emier-video-game-entrances-by-top-youtubers-free-and-paid-analysis/"><u>12 Premier Video Game Entrances by Top Youtubers Free & Paid Analysis</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-exploring-10-innovative-affordable-video-call-apps-iosandroid/"><u>2024 Approved Exploring 10 Innovative, Affordable Video Call Apps - iOS/Android</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-subtle-shift-top-8-choices-for-transforming-sub-into-easy-to-use-srt/"><u>2024 Approved Subtle Shift Top 8 Choices for Transforming SUB Into Easy-to-Use SRT</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/p-by-step-approach-to-youtube-gold-music-reaction-magic/"><u>A Step-by-Step Approach to YouTube Gold Music Reaction Magic</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dive-into-creating-alluring-youtube-video-intros/"><u>Dive Into Creating Alluring YouTube Video Intros</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ey-through-time-with-these-top-10-historical-youtube-sources-for-2024/"><u>Journey Through Time with These Top 10 Historical YouTube Sources for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolving-pre-launch-troubleshooting-for-age-of-empires-4/"><u>Resolving Pre-Launch Troubleshooting for Age of Empires 4</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/st-rewards-for-creators/"><u>Richest Rewards for Creators</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/solutions-for-unplayable-video-files/"><u>Solutions for Unplayable Video Files</u></a></li>
+<li><a href="https://win-dash.techidaily.com/speedy-transfer-obtain-your-usb-to-serial-rs232-driver-now/"><u>Speedy Transfer: Obtain Your USB to Serial (RS232) Driver Now</u></a></li>
 </ul></div>
 

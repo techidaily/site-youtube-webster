@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, A Step-by-Step Approach to Crafting Customized Youtube Alerts & Notifications\""
-date: 2024-10-20T16:40:59.056Z
-updated: 2024-10-25T01:28:56.258Z
+date: 2024-10-25T18:40:11.237Z
+updated: 2024-10-30T18:30:08.253Z
 tags:
   - ai video
   - ai youtube
@@ -73,10 +73,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to add YouTube annotations
@@ -90,10 +90,16 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
@@ -102,10 +108,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Apply changes
@@ -147,10 +153,16 @@ No matter what kind of annotations you are using, you should never use more than
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -174,21 +186,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/eciphering-ad-revenue-and-affiliate-opportunities-on-youtube/"><u>[New] Deciphering Ad Revenue and Affiliate Opportunities on YouTube</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-mastering-the-art-of-selecting-free-music-for-videos/"><u>[New] In 2024, Mastering the Art of Selecting Free Music for Videos</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ecipe-realms-stepwise-food-videography-for-2024/"><u>[New] Recipe Realms Stepwise Food Videography for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-digital-dreams-unite-conference-for-2024/"><u>[Updated] Digital Dreams Unite Conference for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-elevate-your-videography-premiere-to-youtube-upload-for-2024/"><u>[Updated] Elevate Your Videography Premiere to YouTube Upload for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-inside-look-3d-lut-creation-process/"><u>[Updated] Inside Look 3D LUT Creation Process</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-mirrorless-vs-dslr-cameras-which-is-better-for-videos-in-2024/"><u>[Updated] Mirrorless Vs. DSLR Cameras Which Is Better for Videos, In 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-rhythmic-rarities-assembling-the-best-dj-video-samples-for-2024/"><u>[Updated] Rhythmic Rarities Assembling the Best DJ Video Samples for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-eliminating-errors-utilizing-photoshops-eraser-feature/"><u>2024 Approved Eliminating Errors Utilizing Photoshop's Eraser Feature</u></a></li>
-<li><a href="https://blog-min.techidaily.com/comprehensive-guide-steps-to-permanently-remove-a-youtube-video/"><u>Comprehensive Guide: Steps to Permanently Remove a YouTube Video</u></a></li>
-<li><a href="https://win11.techidaily.com/disabling-win11s-protection-measures-with-rufus/"><u>Disabling Win11's Protection Measures with Rufus</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-honor-magic-6-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Honor Magic 6 | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-step-by-step-guide-to-creating-popular-youtube-openings/"><u>In 2024, Step-by-Step Guide to Creating Popular YouTube Openings</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/resolving-the-missing-coprocessor-driver-issue-in-windows-11-a-comprehensive-guide/"><u>Resolving the 'Missing Coprocessor Driver' Issue in Windows 11 - A Comprehensive Guide</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/the-2023-panorama-of-facebooks-micro-videos-insights-and-impact-for-2024/"><u>The 2023 Panorama of Facebook's Micro-Videos Insights and Impact for 2024</u></a></li>
-<li><a href="https://driver-error.techidaily.com/1721098981663-unlock-the-secret-to-a-smooth-iphone-pc-connection-by-fixing-mtp-usb-drivers/"><u>Unlock the Secret to a Smooth iPhone-PC Connection by Fixing MTP USB Drivers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ancefloor-dynamics-free-pristine-dj-template-videos-for-2024/"><u>[New] Dancefloor Dynamics Free, Pristine DJ Template Videos for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitter-videos-on-facebook-the-transfer-guide/"><u>[New] In 2024, Twitter Videos on Facebook The Transfer Guide</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-top-11-youtube-video-rippers-to-download-youtube-videos-for-2024/"><u>[New] Top 11 YouTube Video Rippers to Download YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-creating-classical-cinematography-a-modern-tutorial/"><u>[Updated] Creating Classical Cinematography A Modern Tutorial</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/anticipating-chatgpt-for-your-local-setup-heres-a-list-of-impressive-free-software-picks/"><u>Anticipating ChatGPT for Your Local Setup? Here's a List of Impressive Free Software Picks</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/tifying-income-for-t-series-on-youtube-for-2024/"><u>Demystifying Income for T-Series on YouTube for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-vivo-y36-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Vivo Y36 Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-oppo-reno-8t-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Oppo Reno 8T</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-crafting-a-customized-soundscape-youtube-playlist-building-on-the-internetapps/"><u>In 2024, Crafting a Customized Soundscape YouTube Playlist Building on the Internet/Apps</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-oneplus-nord-ce-3-lite-5g-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to OnePlus Nord CE 3 Lite 5G Phones? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ative-youtube-channel-titles-the-key-to-successful-blogging-and-filmmaking-no-more-than-156-characters-for-2024/"><u>Innovative YouTube Channel Titles The Key to Successful Blogging & Filmmaking (No More than 156 Characters) for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-guide-resolve-audio-device-not-installed-errors-in-windows/"><u>Step-by-Step Guide: Resolve Audio Device Not Installed Errors in Windows</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/bing-success-final-stages-and-top-resources/"><u>YouTubing Success Final Stages and Top Resources</u></a></li>
 </ul></div>
 

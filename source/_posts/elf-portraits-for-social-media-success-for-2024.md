@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Self-Portraits for Social Media Success for 2024\""
-date: 2024-09-04T22:19:45.978Z
-updated: 2024-09-05T22:19:45.978Z
+date: 2024-10-23T18:11:43.036Z
+updated: 2024-10-30T20:09:16.831Z
 tags:
   - ai video
   - ai youtube
@@ -37,14 +37,15 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
 Don’t have a lot of space to set up your camera and lighting equipment? No problem! You can be within an arm’s length away from your camera with a close quarters wide-angle vlog set-up.
@@ -59,12 +60,6 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -80,11 +75,12 @@ You can see from how even the background and couch looks across the entire camer
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -92,6 +88,13 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -109,46 +112,32 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -157,4 +146,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-diving-into-virtual-landscapes-a-guide-to-vr-tours/"><u>[New] Diving Into Virtual Landscapes A Guide to VR Tours</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-streamlined-method-for-crafting-mobile-focused-youtube-channels/"><u>[New] In 2024, Streamlined Method for Crafting Mobile-Focused YouTube Channels</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-the-full-spectrum-alliance-an-mcn-decision-blueprint/"><u>[New] In 2024, The Full Spectrum Alliance An MCN Decision Blueprint</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-on-the-road-and-recorded-essential-helmet-cams-unveiled-for-bikers-gear/"><u>[New] On the Road & Recorded - Essential Helmet Cams Unveiled for Bikers' Gear</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-smart-way-to-save-youtube-sections-for-2024/"><u>[New] The Smart Way to Save YouTube Sections for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ransforming-live-youtube-broadcasts-into-recorded-soundtracks-for-2024/"><u>[New] Transforming Live YouTube Broadcasts Into Recorded Soundtracks for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-effortless-keyword-harvesting-explore-the-best-7-no-fee-tag-extractors/"><u>[Updated] 2024 Approved Effortless Keyword Harvesting Explore the Best 7 No-Fee Tag Extractors</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-superior-drones-at-affordable-prices/"><u>[Updated] 2024 Approved Superior Drones at Affordable Prices</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-uncover-8-effective-youtube-promotion-methods/"><u>[Updated] 2024 Approved Uncover 8 Effective YouTube Promotion Methods</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-configuring-who-can-see-your-youtube-clips/"><u>[Updated] In 2024, Configuring Who Can See Your YouTube Clips</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rative-study-of-youtubes-and-dailymentions/"><u>Comparative Study of YouTubes and DailyMentions</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/elevate-your-online-presence-through-advanced-cookiebot-solutions/"><u>Elevate Your Online Presence Through Advanced Cookiebot Solutions</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/end-silent-screenings-top-strategies-to-restore-audio-in-pc-users-facebook-video-playbacks/"><u>End Silent Screenings: Top Strategies to Restore Audio in PC Users' Facebook Video Playbacks</u></a></li>
+<li><a href="https://win-able.techidaily.com/1722993678617-halo-infinite-pc-freeze-dilemma-fix-it-in-just-7-easy-ways/"><u>Halo Infinite PC Freeze Dilemma? Fix It in Just 7 Easy Ways</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-photos-files-from-meizu-21-by-fonelab-android-recover-photos/"><u>How To Restore Missing Photos Files from Meizu 21.</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-vivo-y28-5g-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Vivo Y28 5G | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/latest-samsung-usb-driver-for-seamless-use-on-windows-11-systems-free-download/"><u>Latest Samsung USB Driver for Seamless Use on Windows 11 Systems - Free Download</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ring-youtube-streaming-a-guide-for-gamers-for-2024/"><u>Mastering YouTube Streaming A Guide for Gamers for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/be-success-elevating-audience-count/"><u>YouTube Success Elevating Audience Count</u></a></li>
+</ul></div>
 

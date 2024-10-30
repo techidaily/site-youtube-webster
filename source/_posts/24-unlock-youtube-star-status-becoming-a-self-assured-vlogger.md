@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Unlock YouTube Star Status  Becoming a Self-Assured Vlogger\""
-date: 2024-09-04T22:18:49.165Z
-updated: 2024-09-05T22:18:49.165Z
+date: 2024-10-23T21:13:46.759Z
+updated: 2024-10-30T21:41:31.854Z
 tags:
   - ai video
   - ai youtube
@@ -50,12 +50,6 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -64,12 +58,6 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -79,17 +67,12 @@ Unlike being invited to a party, there is no obligation when it comes to YouTube
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
 
 <!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **5\. Compose the Shot**
 
 Vlogging is a visual medium, and while the story is important, what is captured in the frame will play an impactful role in the video as well.
@@ -113,11 +96,12 @@ Good preparation includes having all your gear ready for filming when you need i
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
-  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **7\. Be Expressive**
 
 Remember those teachers that drone on and on, without adding any expression or passion to what they are lecturing? While they might have been perfectly suitable as teachers, they wouldn’t make good vloggers.
@@ -128,12 +112,6 @@ Consider your audience: they are coming home from school or work, where there we
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **8\. Stay Organized**
 
 The same way you should prepare before filming, it’s also important to be organized comes the editing phase. Editing is arguably the most time-consuming part of the vlogging process, so have a system for categorizing and finding your footages.
@@ -158,28 +136,33 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -188,4 +171,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-access-a-world-of-content-anywhere-anyplace-with-the-leading-6-best-and-cost-free-tools-to-download-youtubes-short-videos/"><u>[New] In 2024, Access a World of Content Anywhere, Anyplace with the Leading 6 Best and Cost-Free Tools to Download YouTubes' Short Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-effortless-audio-downloads-these-24-tools-split-youtube-sounds/"><u>[New] In 2024, Effortless Audio Downloads These 24 Tools Split YouTube Sounds</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-is-higher-frame-rate-better-weighing-30-vs-60fps-in-video/"><u>[New] Is Higher Frame Rate Better? Weighing 30 Vs. 60Fps in Video</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ro-gif-maker-software-that-wins-every-time/"><u>[New] Pro-Gif Maker Software That Wins Every Time</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ideo-pioneer-record-pcmac-screens-youtube-uploading-made-easy-for-2024/"><u>[New] Video Pioneer Record PC/Mac Screens, YouTube Uploading Made Easy for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-enhancing-facebook-traffic-with-innovative-video-techniques/"><u>[Updated] In 2024, Enhancing Facebook Traffic with Innovative Video Techniques</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-micro-snippet-analysis-at-a-glance/"><u>[Updated] In 2024, Micro Snippet Analysis at a Glance</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-the-peak-of-youtubes-monetization-wonders/"><u>2024 Approved The Peak of YouTube's Monetization Wonders</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/achieve-maximum-reach-on-twitter-with-smaller-videos-pcmobile-strategies-and-online-tools-updated-for-2-surveys-2024/"><u>Achieve Maximum Reach on Twitter with Smaller Videos - PC/Mobile Strategies and Online Tools (Updated for 2 Surveys 2024)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/e-delight-endless-looping-of-youtube-videos-for-tvs-for-2024/"><u>Double Delight Endless Looping of YouTube Videos for TVs for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/end-hardware-unveiled-by-gaming-influencers-for-2024/"><u>High-End Hardware Unveiled by Gaming Influencers for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-oneplus-11r-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 OnePlus 11R Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-chill-and-thrills-highlighting-olympic-snowboard-cross-winners/"><u>In 2024, Chill & Thrills Highlighting Olympic Snowboard Cross Winners</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-the-hidden-value-in-uninterrupted-youtube-watching-is-it-worth-the-investment/"><u>In 2024, The Hidden Value in Uninterrupted YouTube Watching Is It Worth the Investment?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-transformative-content-blocks-enhanced-youtube-decks/"><u>In 2024, Transformative Content Blocks Enhanced Youtube Decks</u></a></li>
+<li><a href="https://win-able.techidaily.com/mafia-iiis-successor-delayed-is-the-definitive-edition-cancelled/"><u>Mafia III's Successor Delayed: Is the Definitive Edition Cancelled?</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/resolving-the-common-lameencdll-error-in-audacitys-mp3-encoding-process/"><u>Resolving the Common lame_enc.dll Error in Audacity's MP3 Encoding Process</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-5-best-no-cost-global-voice-communication-platforms/"><u>Top 5 Best No-Cost Global Voice Communication Platforms</u></a></li>
+<li><a href="https://win-blog.techidaily.com/trasforma-i-tuoi-file-pgm-in-jpeg-gratuitamente-con-il-convertitore-di-movavi-online/"><u>Trasforma I Tuoi File PGM in JPEG Gratuitamente Con Il Convertitore Di Movavi Online!</u></a></li>
+</ul></div>
 

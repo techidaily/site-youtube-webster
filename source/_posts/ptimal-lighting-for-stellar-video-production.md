@@ -1,7 +1,7 @@
 ---
 title: "[New] Optimal Lighting for Stellar Video Production"
-date: 2024-10-19T22:17:29.234Z
-updated: 2024-10-24T16:16:55.729Z
+date: 2024-10-27T21:23:14.496Z
+updated: 2024-10-30T20:28:53.236Z
 tags:
   - ai video
   - ai youtube
@@ -50,19 +50,31 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -98,10 +110,10 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -111,10 +123,10 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -138,14 +150,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/tep-into-the-spotlight-learning-youtube-vlogger-etiquette/"><u>[New] Step Into the Spotlight Learning YouTube Vlogger Etiquette</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-calculating-clickers-contribution-to-youtube-earnings-for-2024/"><u>[Updated] Calculating Clickers' Contribution to YouTube Earnings for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-navigating-the-networking-of-photos-from-iphone-to-snapchat-for-2024/"><u>[Updated] Navigating the Networking of Photos From iPhone to Snapchat for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-eluding-youtube-ban-protective-measures/"><u>2024 Approved Eluding YouTube Ban Protective Measures</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-smartphones-ultimate-guide-to-image-editing-and-annotation/"><u>2024 Approved Smartphones' Ultimate Guide to Image Editing & Annotation</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-vivo-y27s-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Vivo Y27s Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/cash-flow-estimator-apps-for-2024/"><u>Free Cash Flow Estimator Apps for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/game-innovators-reveal-upcoming-hardware-at-ifa-2023/"><u>Game Innovators Reveal Upcoming Hardware at IFA 2023</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/navigating-modern-computing-a-dive-into-toms-world-of-hardware/"><u>Navigating Modern Computing - A Dive Into Tom's World of Hardware</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/est-tools-for-transforming-your-spotify-mixes-into-youtube-channels-for-2024/"><u>[New] Best Tools for Transforming Your Spotify Mixes Into YouTube Channels for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/our-route-to-youtube-entrepreneurship-top-10-easy-channels-for-2024/"><u>[New] Your Route to YouTube Entrepreneurship Top 10 Easy Channels for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-choreographing-climactic-crescendos/"><u>[Updated] Choreographing Climactic Crescendos</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-uncover-the-best-6-screen-recording-software-on-mac/"><u>[Updated] Uncover the Best 6 Screen Recording Software on Mac</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For ZTE Nubia Flip 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-htc-u23-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring HTC U23 | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-motorola-moto-g14-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Motorola Moto G14 For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-oneplus-open-drfone-by-drfone-virtual-android/"><u>In 2024, 6 Ways to Change Spotify Location On Your OnePlus Open | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-leading-sound-transformation-tools-magic-edition-included/"><u>In 2024, Leading Sound Transformation Tools, Magic Edition Included</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-samsung-galaxy-s24-ultra-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Samsung Galaxy S24 Ultra Location | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/e-look-at-youtubes-digital-media-oasis-for-2024/"><u>Inside Look at YouTube's Digital Media Oasis for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rt-of-tweaking-soundtracks-in-youtube-videos-for-2024/"><u>The Art of Tweaking Soundtracks in YouTube Videos for 2024</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/vidmendermagic-rapid-repair-of-videos/"><u>VidMenderMagic: Rapid Repair of Videos</u></a></li>
 </ul></div>
 

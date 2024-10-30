@@ -1,7 +1,7 @@
 ---
 title: "\"The Blueprint for Designing Eye-Catching Thumbnails for Your YouTube Channel\""
-date: 2024-10-19T20:41:22.320Z
-updated: 2024-10-25T00:52:27.194Z
+date: 2024-10-29T19:48:24.073Z
+updated: 2024-10-30T16:30:47.949Z
 tags:
   - ai video
   - ai youtube
@@ -48,10 +48,16 @@ Here are 5 easy tips for creating thumbnails that get views.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
@@ -68,13 +74,6 @@ People feel automatically connected and drawn into images that make eye contact.
 
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. Use Graphics/Emojis that are On Topic
 
 Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
@@ -82,10 +81,10 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 Make sure the images you choose are relevant to the topic of your video.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Make Your Text Huge
@@ -95,10 +94,10 @@ If you use text in your thumbnail (you don’t have to) then it should be to add
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
@@ -112,6 +111,13 @@ A good rule for text is to use only 1-3 words. That way they won’t clutter you
 Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -134,21 +140,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/nhancing-youtube-videos-for-superior-quality-for-2024/"><u>[New] Enhancing YouTube Videos for Superior Quality for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-global-giga-viewers-worlds-favorite-youtube-stars/"><u>[New] In 2024, Global Giga-Viewers World's Favorite YouTube Stars</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-the-ultimate-explanation-of-youtube-keyword-optimization/"><u>[New] In 2024, The Ultimate Explanation of YouTube Keyword Optimization</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-top-tier-video-openings-the-best-16-to-grow-your-audience/"><u>[New] In 2024, Top-Tier Video Openings The Best 16 to Grow Your Audience</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-the-ultimate-plan-for-profit-from-instagram-content/"><u>[New] The Ultimate Plan for Profit From Instagram Content</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/op-9-affordable-and-straightforward-video-editors/"><u>[New] Top 9 Affordable & Straightforward Video Editors</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-demystifying-facebooks-use-of-blue-video-icons-for-communication/"><u>[Updated] In 2024, Demystifying Facebook's Use of Blue Video Icons for Communication</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-pursuing-passion-professionally-a-guide-for-aspiring-designers/"><u>[Updated] In 2024, Pursuing Passion Professionally A Guide for Aspiring Designers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-shield-against-random-youtube-video-plays/"><u>[Updated] In 2024, Shield Against Random YouTube Video Plays</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-navigating-the-landscape-intricacies-of-using-the-background-eraser-feature/"><u>[Updated] Navigating the Landscape Intricacies of Using the Background Eraser Feature</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-streamlined-guide-5-efficient-windows-11-audio-recording-tips/"><u>2024 Approved Streamlined Guide 5 Efficient Windows 11 Audio Recording Tips</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-and-troubleshoot-broadcom-gigabit-ethernet-drivers-compatible-with-windows-11/"><u>Download & Troubleshoot Broadcom Gigabit Ethernet Drivers Compatible with Windows 11</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-discover-leading-video-ranking-tools-for-youtube-success/"><u>In 2024, Discover Leading Video Ranking Tools for YouTube Success</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-lava-blaze-2-pro-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Lava Blaze 2 Pro to PC- Detailed Steps | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-honor-x50-gt-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Honor X50 GT Location | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-4k-video-test-hc-wxf991-verdict/"><u>Ultimate 4K Video Test: HC-WXF991 Verdict</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-choosing-the-right-tool-for-your-youtube-to-avi-desire/"><u>2024 Approved Choosing the Right Tool for Your YouTube-to-AVI Desire</u></a></li>
+<li><a href="https://win11.techidaily.com/displaying-numeric-key-status-in-system-tray-for-win11-users/"><u>Displaying Numeric Key Status in System Tray for Win11 Users</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/61818733-enhance-productions-no-cost-sounds-available/"><u>Enhance Productions No-Cost Sounds Available!</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-pro-gamers-equipment-showcase-series/"><u>In 2024, Pro Gamer's Equipment Showcase Series</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-raising-awareness-with-youtubes-cc-membership-tips-for-view-growth/"><u>In 2024, Raising Awareness with YouTube's CC Membership Tips for View Growth</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/slice-the-baguette-lengthwise-but-not-all-the-way-through-leave-about-an-inch-of-bread-intact-at-one-end-to-hold-it-together/"><u>Slice the Baguette Lengthwise, but Not All the Way Through – Leave About an Inch of Bread Intact at One End to Hold It Together.</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/solving-the-puzzle-comprehensive-insight-into-blue-screen-issues-and-fixes/"><u>Solving the Puzzle: Comprehensive Insight Into Blue Screen Issues and Fixes</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/transforming-your-approach-to-interviews-with-chatgpt/"><u>Transforming Your Approach to Interviews with ChatGPT</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/virtual-venue-face-off-assessing-obs-and-twitch-studios-for-2024/"><u>Virtual Venue Face-Off Assessing OBS & Twitch Studios for 2024</u></a></li>
 </ul></div>
 

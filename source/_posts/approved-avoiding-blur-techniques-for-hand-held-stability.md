@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Avoiding Blur  Techniques for Hand-Held Stability\""
-date: 2024-09-04T22:19:38.919Z
-updated: 2024-09-05T22:19:38.919Z
+date: 2024-10-24T20:04:42.199Z
+updated: 2024-10-30T16:53:15.225Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,13 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 Here are 3 of our favorite DIY tripods.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -50,6 +57,19 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
@@ -59,17 +79,12 @@ Now you can set your smartphone upon any stable surface, like a table or a stack
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -87,12 +102,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -102,11 +111,12 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 _All of your supplies plus the finished product._
 
 **Readying your legs**
@@ -129,26 +139,17 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -157,4 +158,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-dreamland-discourse-top-asmr-practitioners-recommended/"><u>[New] Dreamland Discourse Top ASMR Practitioners Recommended</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-enhancing-clicks-youtube-thumbnail-sizes-explored/"><u>[New] In 2024, Enhancing Clicks YouTube Thumbnail Sizes Explored</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-converting-youtube-broadcasts-into-listenable-formats/"><u>[Updated] 2024 Approved Converting YouTube Broadcasts Into Listenable Formats</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-comprehensive-techniques-for-gauging-yt-popularity-and-monetization-for-2024/"><u>[Updated] Comprehensive Techniques for Gauging YT Popularity & Monetization for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-eternal-void-a-complete-ban-on-youtube-short-video-feature-for-2024/"><u>[Updated] Eternal Void A Complete Ban on YouTube Short Video Feature for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-realme-gt-neo-5-se-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-the-complete-guide-to-conquering-video-editing-with-vivocut/"><u>2024 Approved The Complete Guide to Conquering Video Editing with VivoCut</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1726029611796-dvdavi/"><u>DVD再生対応のAVIファイルへの変換手順</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/how-to-master-every-feature-of-periscope/"><u>How to Master Every Feature of Periscope</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-realme-12-pro-5g-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Realme 12 Pro 5G Is Unlocked</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unveiling-your-design-how-to-eliminate-backgrounds-in-figma/"><u>In 2024, Unveiling Your Design How To Eliminate Backgrounds in Figma</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/mastering-the-art-of-instagram-to-mp4-conversion-expert-tips-for-2024/"><u>Mastering the Art of Instagram to MP4 Conversion - Expert Tips for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722957707630-temperature-ranges-during-different-growth-stages-from-spore-germination-to-fruiting-bodies-emergence/"><u>Temperature Ranges During Different Growth Stages From Spore Germination to Fruiting Bodies Emergence.</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/l-producer-hub-for-2024/"><u>Visual Producer Hub for 2024</u></a></li>
+</ul></div>
 

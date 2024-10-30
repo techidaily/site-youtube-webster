@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  From Scribbles to Spectacle  Personalized Effect Crafting\""
-date: 2024-10-19T20:26:49.663Z
-updated: 2024-10-24T19:18:59.810Z
+date: 2024-10-27T18:06:39.261Z
+updated: 2024-10-30T16:06:05.761Z
 tags:
   - ai video
   - ai youtube
@@ -56,10 +56,10 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -69,10 +69,10 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -80,10 +80,10 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -93,16 +93,10 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
+  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -126,24 +120,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-finding-the-highlighted-online-discourse/"><u>[New] 2024 Approved Finding the Highlighted Online Discourse</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-multimedia-designers-space/"><u>[New] 2024 Approved Multimedia Designer's Space</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-navigate-your-way-to-perfect-content-top-12-flipscreen-cams/"><u>[New] 2024 Approved Navigate Your Way to Perfect Content Top 12 Flipscreen Cams</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-real-time-viewership-counter-systems/"><u>[New] 2024 Approved Real-Time Viewership Counter Systems</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-swaying-scripts-an-introduction-to-bouncy-text-animations/"><u>[New] 2024 Approved Swaying Scripts An Introduction to Bouncy Text Animations</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-the-complete-checklist-for-youtube-video-resolution-and-size/"><u>[New] 2024 Approved The Complete Checklist for YouTube Video Resolution and Size</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-the-power-of-personalization-upgrade-your-youtube-url/"><u>[New] 2024 Approved The Power of Personalization Upgrade Your YouTube URL</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-the-ultimate-guide-to-years-top-makeup-vloggers/"><u>[New] 2024 Approved The Ultimate Guide to Year's Top Makeup Vloggers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-transformative-tactics-for-developing-a-professional-youtubers-sanctuary-on-mobile/"><u>[New] 2024 Approved Transformative Tactics for Developing a Professional YouTubers' Sanctuary on Mobile</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-transformative-tactics-youtube-visibility-strategies/"><u>[New] 2024 Approved Transformative Tactics YouTube Visibility Strategies</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-top-tools-for-effortless-recording-of-desktop-screens-on-windows-10/"><u>[Updated] 2024 Approved Top Tools for Effortless Recording of Desktop Screens on Windows 10</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-podcast-vs-youtube-determining-your-digital-destination/"><u>2024 Approved Podcast Vs. YouTube Determining Your Digital Destination</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/a-how-to-guide-on-bypassing-apple-iphone-6-icloud-activation-lock-by-drfone-ios/"><u>A How-To Guide on Bypassing Apple iPhone 6 iCloud Activation Lock</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/are-battery-fixes-profitable-for-phonespods/"><u>Are Battery Fixes Profitable for Phones/Pods?</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/como-editar-video-en-una-mac-usando-el-software-de-corta-filmado-movavi/"><u>Cómo Editar Vídeo en Una Mac Usando El Software De Corta-Filmado Movavi</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-ultimate-list-of-8-health-enhancing-chatbot-addons-to-transform-your-exercise-regime/"><u>The Ultimate List of 8 Health-Enhancing Chatbot Addons to Transform Your Exercise Regime</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/unleashing-visual-velocity-illustrators-guide-to-motion-blurs-for-2024/"><u>Unleashing Visual Velocity Illustrator's Guide to Motion Blurs for 2024</u></a></li>
-<li><a href="https://win-premium.techidaily.com/unveiling-strategies-for-apples-triumph-over-tech-giants-at-the-upcoming-wwdc-event-exclusive-analysis-by-zdnet/"><u>Unveiling Strategies for Apple's Triumph Over Tech Giants at the Upcoming WWDC Event | Exclusive Analysis by ZDNet</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-no-cost-voice-shaping-secrets-revealed-comprehensive-guide-to-professional-video-voice-edits-using-filmora/"><u>Updated No-Cost Voice Shaping Secrets Revealed Comprehensive Guide to Professional Video Voice Edits Using Filmora</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-choosing-faithful-hymns-download-and-modify-guide-for-2024/"><u>[New] Choosing Faithful Hymns Download and Modify Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-strategies-for-clearer-facebook-live-footage-viewing-for-2024/"><u>[New] Strategies for Clearer Facebook Live Footage Viewing for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-optimize-your-videos-discoverability-with-key-youtube-seo-strategies/"><u>[Updated] 2024 Approved Optimize Your Videos' Discoverability with Key YouTube SEO Strategies</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-complete-lowdown-on-making-captivating-short-videos/"><u>[Updated] 2024 Approved The Complete Lowdown on Making Captivating Short Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-biggest-fifa-visuals-youtube-insights-graphed-for-2024/"><u>[Updated] Biggest FIFA Visuals YouTube Insights Graphed for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-perfect-lighting-setup-for-engaging-youtube-videos-for-2024/"><u>[Updated] Perfect Lighting Setup for Engaging YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-unrivaled-5-editors-perfect-for-non-youtube-vids-for-2024/"><u>[Updated] Unrivaled 5 Editors Perfect for Non-YouTube Vids for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/windows-help-tackle-dll-fails/"><u>[Windows Help] Tackle DLL Fails</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-the-definitive-guide-to-ios-and-android-maker-tools/"><u>2024 Approved The Definitive Guide to iOS & Android Maker Tools</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-easy-ways-to-copy-contacts-from-vivo-y78plus-t1-edition-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Easy Ways to Copy Contacts from Vivo Y78+ (T1) Edition to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/giggle-engineer-apocalyptic-comic-relief/"><u>Giggle Engineer Apocalyptic Comic Relief</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-a-locked-realme-c55-phone-by-drfone-android/"><u>How to Reset a Locked Realme C55 Phone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-join-the-monetized-majority-with-500-subscribers/"><u>In 2024, Join the Monetized Majority with 500 Subscribers</u></a></li>
+<li><a href="https://extra-information.techidaily.com/m1-demystified-apple-redefines-chipset-technology/"><u>M1 Demystified Apple Redefines Chipset Technology</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/navigating-modern-and-future-terrain-with-drones/"><u>Navigating Modern and Future Terrain with Drones</u></a></li>
 </ul></div>
 
