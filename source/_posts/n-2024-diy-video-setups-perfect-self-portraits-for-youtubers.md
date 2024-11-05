@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, DIY Video Setups  Perfect Self-Portraits for YouTubers\""
-date: 2024-08-31T18:56:35.603Z
-updated: 2024-09-01T18:56:35.603Z
+date: 2024-11-02T09:08:17.200Z
+updated: 2024-11-05T13:57:23.218Z
 tags:
   - ai video
   - ai youtube
@@ -40,8 +40,12 @@ We’ve summarized the key points about setting up talking head style video shot
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
 Don’t have a lot of space to set up your camera and lighting equipment? No problem! You can be within an arm’s length away from your camera with a close quarters wide-angle vlog set-up.
@@ -57,8 +61,12 @@ Objects and people that just make it into the sides of the frame will appear mor
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -73,9 +81,6 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -101,8 +106,12 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
@@ -110,27 +119,25 @@ To make a talking-head video more interesting, you can add some background music
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -139,4 +146,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-prime-strategies-for-constructing-mcc-homes/"><u>[New] 2024 Approved Prime Strategies for Constructing MCC Homes</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/iscovering-whos-watching-your-videos-for-2024/"><u>[New] Discovering Who's Watching Your Videos for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ow-to-convert-youtube-videos-to-mp3-songs-on-mac-for-2024/"><u>[New] How to Convert YouTube Videos to MP3 Songs on Mac for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-visual-virtuosos-popular-ig-effects/"><u>[New] In 2024, Visual Virtuosos Popular IG Effects</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/outube-editing-competitors-ranked-top-5-non-youtube-sites-list-for-2024/"><u>[New] YouTube Editing Competitors Ranked Top 5 Non-YouTube Sites List for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-building-brilliance-top-6-minecraft-homes/"><u>[Updated] 2024 Approved Building Brilliance Top 6 Minecraft Homes</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-aural-adventures-discovering-the-top-15-instructional-music-videos-for-2024/"><u>[Updated] Aural Adventures Discovering the Top 15 Instructional Music Videos for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-how-to-blur-background-of-your-youtube-video/"><u>[Updated] How to Blur Background of Your YouTube Video</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-audio-to-video-bridge-easy-3-step-guide-for-mp3-to-youtube-uploads/"><u>[Updated] In 2024, Audio-to-Video Bridge Easy 3-Step Guide for MP3 to YouTube Uploads</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-infographics-boosting-buzz-through-social-videos-for-2024/"><u>[Updated] Infographics Boosting Buzz Through Social Videos for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-no-pay-all-gain-the-fcp-freedom-guide-for-2024/"><u>[Updated] No Pay, All Gain The FCP Freedom Guide for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/44cm44kr44od44og44kj44oz44kw44gk44ki44gz57eo6zug5pa55rov77ya44k544kv44oq44o844oz44k344on44od44oi44ov44kh44kk44or5zcr44gr44ks44kk44oj44cn/"><u>「カッティングおよび編集方法：スクリーンショットファイル向けガイド」</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-beyond-boundaries-recognizing-leading-women-in-digital-storytelling/"><u>2024 Approved Beyond Boundaries Recognizing Leading Women in Digital Storytelling</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/essential-fixes-for-the-haldll-not-found-error-on-windows-xp-computers/"><u>Essential Fixes for the Hal.dll Not Found Error on Windows XP Computers</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/how-to-save-snapchat-videos-with-apps-on-android-and-mac-for-2024/"><u>How to Save Snapchat Videos with Apps on Android and Mac for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-xs-max-passcode-without-itunes-without-knowing-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone XS Max Passcode without iTunes without Knowing Passcode? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Poco M6 5G | Dr.fone</u></a></li>
+</ul></div>
 

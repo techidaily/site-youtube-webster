@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Fast Track to Clearing YouTube Post-Comments for 2024\""
-date: 2024-10-26T19:12:38.604Z
-updated: 2024-10-30T17:31:42.339Z
+date: 2024-11-01T11:05:18.907Z
+updated: 2024-11-05T12:45:51.158Z
 tags:
   - ai video
   - ai youtube
@@ -52,13 +52,6 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -81,13 +74,6 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -103,10 +89,10 @@ If it is your video where the comment to be removed is, you can go to My Channel
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
@@ -130,10 +116,10 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -149,9 +135,23 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
@@ -182,18 +182,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-unleash-creativity-learning-sony-vegas-techniques-for-youtube-video-editing/"><u>[New] 2024 Approved Unleash Creativity Learning Sony Vegas Techniques for YouTube Video Editing</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-a-comprehensive-review-of-vidmas-screen-recorder/"><u>[New] A Comprehensive Review of Vidma's Screen Recorder</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ynchronized-screen-serenity-youtube-loops-on-television/"><u>[New] Synchronized Screen Serenity YouTube Loops on Television</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-unlock-youtubes-monetizing-potential-with-strategic-short-videos/"><u>[Updated] 2024 Approved Unlock YouTube's Monetizing Potential with Strategic Short Videos</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-your-ultimate-yt-shorts-companion/"><u>[Updated] Your Ultimate YT Shorts Companion</u></a></li>
-<li><a href="https://techidaily.com/boost-your-sites-engagement-with-cookiebot-the-ultimate-analytics-solution/"><u>Boost Your Site's Engagement with Cookiebot - The Ultimate Analytics Solution!</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-do-you-play-mov-files-on-galaxy-a15-4g-by-aiseesoft-video-converter-play-mov-on-android/"><u>How do you play .mov files on Galaxy A15 4G ?</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-enhance-creativity-on-a-budget-pick-from-these-8-zero-price-edits/"><u>In 2024, Enhance Creativity on a Budget Pick From These 8 Zero Price Edits</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-how-to-make-a-cool-youtube-video-intro-in-imovie/"><u>In 2024, How to Make a Cool YouTube Video Intro in iMovie?</u></a></li>
-<li><a href="https://techidaily.com/simple-ways-to-get-recent-calls-back-from-tecno-by-fonelab-android-recover-call-logs/"><u>Simple ways to get recent calls back from Tecno</u></a></li>
-<li><a href="https://win-superb.techidaily.com/top-notch-download-tool-the-ultimate-youtube-dl-replacement-for-macos-and-windows-by-allavsoft/"><u>Top Notch Download Tool: The Ultimate YouTube-DL Replacement for macOS & Windows by AllAvsoft</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/eling-your-yt-playlist-quick-methods-for-reversal/"><u>Unraveling Your YT Playlist Quick Methods for Reversal</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/updated-in-2024-maximizing-yandex-translate-in-video-translation-and-beyond/"><u>Updated In 2024, Maximizing Yandex Translate in Video Translation and Beyond</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/levate-visibility-maximize-views-seo-for-videos-for-2024/"><u>[New] Elevate Visibility, Maximize Views - SEO for Videos for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-exclusive-drone-visuals-free-luts-for-dji-drones/"><u>[New] Exclusive Drone Visuals Free LUTS for DJI Drones</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rom-videos-to-vault-ajays-revenue-journey-on-youtube/"><u>[New] From Videos to Vault AJay’s Revenue Journey on YouTube</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-elite-8-video-grabber-utilities/"><u>[New] In 2024, Elite 8 Video Grabber Utilities</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-action-adventure-hits-the-best-of-the-best-top-10/"><u>[Updated] Action-Adventure Hits The Best of the Best (Top 10)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-innovate-on-screen-imagery-with-youtubes-green-screens-edge/"><u>[Updated] In 2024, Innovate On-Screen Imagery with YouTube’s Green Screens Edge</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unlocking-online-potential-top-5-strategic-approaches-to-youtube-marketing/"><u>[Updated] In 2024, Unlocking Online Potential - Top 5 Strategic Approaches to YouTube Marketing</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-maximizing-online-presence-through-youtube-ad-and-image-marketing-for-2024/"><u>[Updated] Maximizing Online Presence Through YouTube Ad & Image Marketing for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-does-immediate-subscription-enhance-user-engagement-on-youtube/"><u>2024 Approved Does Immediate Subscription Enhance User Engagement on Youtube?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/3d-worlds-on-your-android-mastering-vr-and-360-videos/"><u>3D Worlds on Your Android Mastering VR & 360 Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-captivating-audiencvith-effective-thumbnail-sizes/"><u>In 2024, Captivating Audiencvith Effective Thumbnail Sizes</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-detailed-instructions-for-embedding-and-displaying-youtube-playlists-online/"><u>In 2024, Detailed Instructions for Embedding and Displaying YouTube Playlists Online</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-effortless-video-editing-how-to-add-effects-in-fcp-x-in-3-steps/"><u>New Effortless Video Editing How to Add Effects in FCP X in 3 Steps</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-performers-the-best-of-8-mirrorless-cameras-for-video-creators-for-2024/"><u>Proven Performers The Best of 8 Mirrorless Cameras for Video Creators for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-snug-new-199-case-for-your-apple-vision-pro-detailed-review-and-first-impressions-gizmodo/"><u>The Snug New $199 Case for Your Apple Vision Pro - Detailed Review & First Impressions | Gizmodo</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/shing-content-effortless-download-of-youtube-video-for-ios/"><u>Unleashing Content Effortless Download of Youtube Video for iOS</u></a></li>
+<li><a href="https://windows11.techidaily.com/unlock-workspace-potential-discover-the-best-window-folder-methods/"><u>Unlock Workspace Potential: Discover the Best Window Folder Methods</u></a></li>
 </ul></div>
 

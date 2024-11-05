@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Top 5 Cozy Winter Scenes for YouTube Backdrops"
-date: 2024-09-04T22:15:56.381Z
-updated: 2024-09-05T22:15:56.381Z
+date: 2024-11-01T20:38:57.448Z
+updated: 2024-11-05T01:07:44.185Z
 tags:
   - ai video
   - ai youtube
@@ -51,62 +51,40 @@ So, whenever you can and whenever there is an opportunity, don’t be afraid to 
 
 Now, before we dive into the examples themselves and the tutorial on how to make the best backgrounds yourself, here are several factors you must consider before proceeding.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Content Relevance
 
 As a video creator, you must ensure to be consistent with your elements. This includes your **background tune for YouTube videos.** For example, if you’re talking about books in your video, including a bookshelf in the winter background makes all the difference.
 
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Audience Appeal
 
 If you already have an audience, regardless of its size, you should definitely consider what they like and don’t like. You should then leverage this information to create highly appealing content for them and adjust your background scenery accordingly.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Lighting and Visibility
 
 Another thing you must ensure is to keep your background simple and not too distracting. Remember, even though you have the **best background for YouTube videos**, you still need to realize that it’s not the main focus of the video. It’s just there to make it better.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Personal Branding
 
 If you want to improve your brand identity and get your name known by more people, incorporate your logo, name, or something similar in the background. It will have a small but meaningful impact, and it’s easy to do.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Editing
 
 If you plan to shoot a YouTube live background and not some stock images or videos, then you must make sure it has enough headroom for editing later on. The best option here is to use a **green screen background for YouTube videos**.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **5 Winter YouTube Background Ideas**
 
 It’s finally time to have a look at some examples of highly effective and engaging YouTube video backgrounds for the winter season.
@@ -126,21 +104,23 @@ Enjoy!
 ![cozy indoor winter background](https://images.wondershare.com/filmora/article-images/2024/winter-youtube-background-ideas-to-warm-up-your-videos-3.png)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 * Winter Cityscapes
 
 ![winter cityscapes background](https://images.wondershare.com/filmora/article-images/2024/winter-youtube-background-ideas-to-warm-up-your-videos-4.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 * Animated Winter Scenes
 
 ![animated winter scenes background](https://images.wondershare.com/filmora/article-images/2024/winter-youtube-background-ideas-to-warm-up-your-videos-5.png)
@@ -167,12 +147,6 @@ Run the program and click on **“**New Project”. No need to create an account
 
 ![filmora new project](https://images.wondershare.com/filmora/article-images/2024/winter-youtube-background-ideas-to-warm-up-your-videos-6.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Step 3
 
 Click on “Stock Media” and then type in “winter” in the Search Bar.
@@ -211,12 +185,6 @@ Click on **“**My Media” and then click in the middle of the small box to upl
 
 ![upload media in filmora](https://images.wondershare.com/filmora/article-images/2024/winter-youtube-background-ideas-to-warm-up-your-videos-8.png)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Step 3
 
 After uploading all the files, simply drag everything in a separate Track down on the Timeline.
@@ -226,11 +194,12 @@ After uploading all the files, simply drag everything in a separate Track down o
 Export and upload to YouTube. That’s it!
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Summary
 
 You’re now ready to make some outstanding Winter YouTube videos and bless everyone with amazing scenery and backgrounds that will make their hearts warm up. Not only do you have infinite backgrounds to choose from, you also know how to perfectly blend them in any of your videos.
@@ -241,24 +210,6 @@ Enjoy!
 
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What Is a YouTube Video Background?
 
 A **YouTube video background** is a simple image or video that sits in place at the back of your videos. It’s just a simple background that can greatly impact your brand, presence, and style as a creator.
@@ -268,17 +219,12 @@ Even something as small as your **YouTube video thumbnail background** can stron
 Obviously, choosing the right **custom YouTube background** is important. And, now that it’s winter, this requires a special approach.
 
 <!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Why Are Seasonal Backgrounds Effective?
 
 There are several important reasons why a seasonal YouTube video background or photo, and other elements are very effective and engage us more.
@@ -292,28 +238,17 @@ The main reasons include:
 
 So, whenever you can and whenever there is an opportunity, don’t be afraid to use a seasonal **YouTube video background download**.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Factors to Consider When Choosing a Background for YouTube Videos
 
 Now, before we dive into the examples themselves and the tutorial on how to make the best backgrounds yourself, here are several factors you must consider before proceeding.
 
 <!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Content Relevance
 
 As a video creator, you must ensure to be consistent with your elements. This includes your **background tune for YouTube videos.** For example, if you’re talking about books in your video, including a bookshelf in the winter background makes all the difference.
@@ -330,12 +265,6 @@ Another thing you must ensure is to keep your background simple and not too dist
 
 If you want to improve your brand identity and get your name known by more people, incorporate your logo, name, or something similar in the background. It will have a small but meaningful impact, and it’s easy to do.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Editing
 
 If you plan to shoot a YouTube live background and not some stock images or videos, then you must make sure it has enough headroom for editing later on. The best option here is to use a **green screen background for YouTube videos**.
@@ -366,12 +295,6 @@ Enjoy!
 
 ![animated winter scenes background](https://images.wondershare.com/filmora/article-images/2024/winter-youtube-background-ideas-to-warm-up-your-videos-5.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Create or Source Winter Backgrounds
 
 If you want to make your own winter backgrounds or simply edit the ones you have, the most effective way is to use a beginner-friendly video editing platform, such as [Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -432,12 +355,6 @@ Click on **“**My Media” and then click in the middle of the small box to upl
 
 ![upload media in filmora](https://images.wondershare.com/filmora/article-images/2024/winter-youtube-background-ideas-to-warm-up-your-videos-8.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030381/7443" target="_top" id="2030381">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030381" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030381/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Step 3
 
 After uploading all the files, simply drag everything in a separate Track down on the Timeline.
@@ -445,6 +362,13 @@ After uploading all the files, simply drag everything in a separate Track down o
 ##### Step 4
 
 Export and upload to YouTube. That’s it!
+
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Summary
 
@@ -464,8 +388,6 @@ Enjoy!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -473,4 +395,24 @@ Enjoy!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/mplify-your-brands-voice-the-power-of-shaped-videos-for-2024/"><u>[New] Amplify Your Brand’s Voice The Power of Shaped Videos for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-navigating-through-the-top-10-making-magic-on-youtube/"><u>[New] In 2024, Navigating Through the Top 10 Making Magic on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-study-aids-top-10-educational-history-channels/"><u>[New] In 2024, Study Aids Top 10 Educational History Channels</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-top-gear-youtube-pros-choice-in-shaky-free-video-capture/"><u>[New] Top Gear YouTube Pros' Choice in Shaky-Free Video Capture</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-10-tips-to-make-your-youtube-shorts-channels-stand-out/"><u>[Updated] 2024 Approved 10 Tips to Make Your YouTube Shorts Channels Stand Out</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-effortless-resolution-of-macs-green-screen-problem-for-youtubers/"><u>[Updated] 2024 Approved Effortless Resolution of Mac's Green Screen Problem for YouTubers</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-creating-immersive-experiences-with-quality-video-voice-over-for-2024/"><u>[Updated] Creating Immersive Experiences with Quality Video Voice Over for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-cutting-edge-cadence-exclusive-perfected-dj-templates-online/"><u>[Updated] In 2024, Cutting Edge Cadence Exclusive, Perfected DJ Templates Online</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-engineering-a-touching-tiktok-conclusion/"><u>[Updated] In 2024, Engineering a Touching TikTok Conclusion</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-final-thoughts-on-youtubing-best-makers-tips-and-templates/"><u>[Updated] In 2024, Final Thoughts on YouTubing - Best Makers, Tips, and Templates</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-premium-portables-laptops-to-supercharge-your-creative-work/"><u>[Updated] Premium Portables Laptops to Supercharge Your Creative Work</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-scriptwriting-essentials-for-realistic-chatter/"><u>[Updated] Scriptwriting Essentials for Realistic Chatter</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/an-insider-look-at-vegaspro-2019/"><u>An Insider Look at VegasPro 2019</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/r-the-art-of-youtubing-with-pro-tools/"><u>Master the Art of YouTubing with Pro Tools</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/reviving-cut-off-livestreams-solving-facebook-streaming-hiccups/"><u>Reviving Cut-Off Livestreams Solving Facebook Streaming Hiccups</u></a></li>
+<li><a href="https://games-able.techidaily.com/strategies-to-resolve-xbox-one-joystick-faults/"><u>Strategies to Resolve Xbox One Joystick Faults</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/omplete-look-at-youtube-tvs-content-library/"><u>The Complete Look at YouTube TV's Content Library</u></a></li>
+</ul></div>
 

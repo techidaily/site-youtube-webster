@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Core Kit  Video Equipment Every Creator Needs\""
-date: 2024-08-31T18:53:58.460Z
-updated: 2024-09-01T18:53:58.460Z
+date: 2024-10-29T04:07:38.788Z
+updated: 2024-11-05T05:25:34.469Z
 tags:
   - ai video
   - ai youtube
@@ -73,8 +73,12 @@ If you have the budget available to get some lighting equipment, you can find so
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -86,15 +90,22 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Smartphone Camera Gear
 
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
 **The long version:** Recording your videos with a mobile phone can be a good decision. It all depends on the phone you have and the range of add-ons and apps that you complement it with. Almost every high-end model released in the past five years can shoot videos in 1080p or higher. Some can even produce 4K footage. If you perfect your smartphone filming technique, your YouTube videos could look as if they were made with pro equipment.
@@ -103,36 +114,37 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ## Equipment with Easy-to-Use Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -141,4 +153,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-top-innovations-best-vr-tech-for-drones/"><u>[New] 2024 Approved Top Innovations Best VR Tech for Drones</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/inematic-composer-software/"><u>[New] Cinematic Composer Software</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-secure-and-simple-step-by-step-for-google-meet-recordings/"><u>[New] Secure and Simple Step-by-Step for Google Meet Recordings</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-3-step-financial-forecasting-assessing-revenue-from-googles-platform-youtube/"><u>[Updated] 3-Step Financial Forecasting Assessing Revenue From Google's Platform, YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-light-up-the-screen-techniques-for-stunning-youtube-visuals/"><u>[Updated] In 2024, Light Up the Screen Techniques for Stunning YouTube Visuals</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-mastering-channel-growth-the-5-key-youtube-strategies/"><u>[Updated] In 2024, Mastering Channel Growth The 5 Key YouTube Strategies</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-pioneering-film-making-skills-through-youtube-videos/"><u>[Updated] In 2024, Pioneering Film Making Skills Through YouTube Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-saving-youtube-videos-a-legal-overview/"><u>[Updated] In 2024, Saving YouTube Videos A Legal Overview</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-mastering-photopeas-background-erase-technique/"><u>[Updated] Mastering Photopea's Background Erase Technique</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-messages-from-lava-agni-2-5g-by-fonelab-android-recover-messages/"><u>Easy steps to recover deleted messages from Lava Agni 2 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-brand-visibility-the-real-impact-of-hashtags-on-fb/"><u>Enhancing Brand Visibility: The Real Impact of #Hashtags on FB</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-streaming-success-starts-here-8-tips-for-beginners/"><u>In 2024, Streaming Success Starts Here - 8 Tips for Beginners</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ct-your-video-subtitles-on-youtube/"><u>Perfect Your Video Subtitles on YouTube</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/quick-fixes-eradicating-screen-lag-with-extra-displays/"><u>Quick Fixes: Eradicating Screen Lag with Extra Displays</u></a></li>
+<li><a href="https://windows11.techidaily.com/top-4-cost-free-applications-for-monitoring-and-optimizing-your-windows-pcs-storage/"><u>Top 4 Cost-Free Applications for Monitoring and Optimizing Your Windows PC's Storage</u></a></li>
+<li><a href="https://some-skills.techidaily.com/ultimate-selection-8-must-have-laptop-backgrounds-for-2024/"><u>Ultimate Selection 8 Must-Have Laptop Backgrounds for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/uniting-your-conference-and-youtube-google-meet-broadcast-steps/"><u>Uniting Your Conference and YouTube Google Meet Broadcast Steps</u></a></li>
+</ul></div>
 

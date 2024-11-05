@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Enlightening Your YouTube Footage with Proper Lighting"
-date: 2024-10-27T20:25:43.033Z
-updated: 2024-10-30T17:02:19.036Z
+date: 2024-10-30T06:18:41.797Z
+updated: 2024-11-04T23:10:29.285Z
 tags:
   - ai video
   - ai youtube
@@ -55,10 +55,16 @@ Window lighting for me was especially difficult to work with because I live in a
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. Home Lighting
@@ -67,22 +73,29 @@ Home lighting is another source of light that many new YouTubers use. In the pas
 
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
 
 Most home lighting is warmer in its color temperature. If you want to use your home lights without everything being orange-tinted, you’ll need to switch out your light bulbs for daytime LED light bulbs.
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1. Light Control
 
@@ -101,10 +114,10 @@ To minimize the shadows on your right side, use a weaker light as a fill light. 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3. 4-Point Lighting
@@ -114,13 +127,6 @@ As a YouTuber, you may not only want yourself to be seen optimally with proper l
 What you’ll need to ensure that your background is sufficiently lit is 4-point lighting setup. The 4-point lighting setup is the same as a 3-point lighting setup, but with an additional light shining at your background.
 
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Touch Up YouTube Videos with Filmora
 
@@ -151,19 +157,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-building-striking-podcast-branding-logo-design-guide/"><u>[New] 2024 Approved Building Striking Podcast Branding Logo Design Guide</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-captivating-videos-start-here-these-7-royalty-free-audios/"><u>[Updated] 2024 Approved Captivating Videos Start Here These 7 Royalty-Free Audios</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-behind-the-curtains-a-guide-to-youtubes-hidden-videos-for-2024/"><u>[Updated] Behind the Curtains A Guide to YouTube’s Hidden Videos for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-how-to-acquire-standardized-thumbnails-from-youtube-online-and-desktop-options-for-2024/"><u>[Updated] How To Acquire Standardized Thumbnails From Youtube Online & Desktop Options for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-leading-8-software-for-linux-video-editors/"><u>[Updated] Leading 8 Software for Linux Video Editors</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-recipes-that-resonate-best-practices-for-eating-themed-titles/"><u>[Updated] Recipes That Resonate Best Practices for Eating-Themed Titles</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/2024-approved-your-roadmap-to-monetization-mastery-the-straightforward-strategy-for-analyzing-youtube-earnings/"><u>2024 Approved Your Roadmap to Monetization Mastery The Straightforward Strategy for Analyzing YouTube Earnings</u></a></li>
-<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Nokia C12 Pro? | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-bypass-software-for-youtube-downloads/"><u>In 2024, Bypass Software for YouTube Downloads</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-lava-blaze-2-pro-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Lava Blaze 2 Pro to PC- Detailed Steps | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ower-of-tags-boost-traffic-with-top-genres-and-keywords/"><u>The Power of Tags Boost Traffic with Top Genres & Keywords</u></a></li>
-<li><a href="https://win-blog.techidaily.com/ultimate-guide-solving-game-performance-issues-tackling-fps-dips-on-your-pc/"><u>Ultimate Guide: Solving Game Performance Issues - Tackling FPS Dips on Your PC</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/unleash-your-full-potential-in-the-metaverse/"><u>Unleash Your Full Potential in the Metaverse</u></a></li>
-<li><a href="https://games-able.techidaily.com/unlocking-the-secrets-of-hrtf-for-better-gameplay/"><u>Unlocking the Secrets of HRTF for Better Gameplay</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-must-see-top-5-youtube-link-share-extensions/"><u>[New] 2024 Approved Must-See Top 5 YouTube Link Share Extensions</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/op-20-thumbnail-fonts-for-impressive-video-credits-for-2024/"><u>[New] Top 20 Thumbnail Fonts for Impressive Video Credits for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-quick-step-by-step-turning-pictures-into-youtube-desktop-thumbnails/"><u>[Updated] 2024 Approved Quick Step-By-Step Turning Pictures Into YouTube Desktop Thumbnails</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-video-lessons-to-visual-gigs-youtube-videos-converted-seamlessly/"><u>[Updated] From Video Lessons to Visual Gigs YouTube Videos Converted Seamlessly</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/1-top-5-free-tools-to-transform-your-m4a-files-into-high-quality-wav-format/"><u>1. Top 5 FREE Tools to Transform Your M4A Files Into High-Quality WAV Format</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ai-eloquence-encounter-chatgpt-versus-googles-bard-brain/"><u>AI Eloquence Encounter: ChatGPT Versus Google's Bard Brain</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/are-inbuilt-iphone-apps-removable-or-permanent-software-features/"><u>Are Inbuilt iPhone Apps Removable or Permanent Software Features?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-revolutionize-marketing-top-tools-for-perfectly-timed-video-tags/"><u>In 2024, Revolutionize Marketing Top Tools for Perfectly Timed Video Tags</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ltimate-guide-to-antique-themed-cinematography/"><u>The Ultimate Guide to Antique-Themed Cinematography</u></a></li>
 </ul></div>
 

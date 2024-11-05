@@ -1,7 +1,7 @@
 ---
 title: "\"YouTube’s Rules  The Creator's Perspective\""
-date: 2024-08-31T18:56:18.221Z
-updated: 2024-09-01T18:56:18.221Z
+date: 2024-10-30T01:00:56.952Z
+updated: 2024-11-05T11:54:37.342Z
 tags:
   - ai video
   - ai youtube
@@ -51,9 +51,6 @@ In order to qualify for YouTube monetization, you must meet these milestones.
 
 YouTube’s reasoning for these changes is essentially the same as they gave for the 10,000 views milestone: having higher standards will help them prevent inappropriate or stolen content from being monetized. They also point out that the majority of channels affected will not have been making any significant money anyways (less than $2.50 per month, in most cases).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ## How Do the Changes Affect Small YouTube Channels
 
 However, even if the immediate financial impact won’t be that financially significant, it is untrue to say these new rules will not affect YouTubers with smaller channels. Having to plan to achieve and maintain those 4,000 hours of watch time and 1,000 subs could have a major impact on how creators plan their content. Will you feel pressured to abandon content that you and your existing viewers love in favor of making videos that will get you to those milestones faster?
@@ -62,9 +59,6 @@ However, even if the immediate financial impact won’t be that financially sign
 
 These new rules could also put niche channels at a disadvantage. Niche channels may have devoted followers who keep their watch time up, but getting to 1,000 subscribers could be harder for them purely because their potential audience is already smaller.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Join The Conversation
 
 There have been b reactions to this news in our forums here on filmora.io, the majority of them negative. Although the perspective that these kinds of measures are necessary as YouTube becomes more and more crowded has also been represented, the majority of people who have weighed in find these changes unreasonable. If you haven't yet, make sure to head over to the forums and [join the conversation](https://www.filmora.io/forum/).
@@ -76,8 +70,12 @@ Cough. Logan Paul. Cough.
 ####  
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Tips for Increasing YouTube Watch Time
 
 1. Sorting your videos into playlists encourages viewers to spend a lot more time on your channel.
@@ -85,8 +83,12 @@ Cough. Logan Paul. Cough.
 3. Basic video editing. Simple things like adding transition effects and cutting out long pauses will help keep viewers watching your videos for longer.
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Helpful Blog Posts
 
 [How to Get People to Subscribe by Asking the Right Way](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -96,8 +98,12 @@ Cough. Logan Paul. Cough.
 [How to Edit a YouTube Video and Get More Subscribers](https://www.filmora.io/community-blog/how-to-edit-a-youtube-video-and-get-more-subscribers-281.html)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Don't Give Up
 
 I risk sounding cheesy here, but I hope nobody gives up on their dreams as creators over something like this. Wanting to be paid for doing what you love is only natural, and you can still get there (YouTube monetization isn't even the only way). There may even be better opportunities to generate revenue when you do. In the long run, this could be a good thing for YouTube. Nobody can really know yet.
@@ -107,22 +113,29 @@ How do you get subscribers, or increase your watch time? If you have any tips, s
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -131,4 +144,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/ecome-a-visionary-creator-optimal-camera-lens-selection-for-2024/"><u>[New] Become a Visionary Creator Optimal Camera Lens Selection for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-hdmi-legacy-package/"><u>[New] HDMI Legacy Package</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-a-practical-approach-to-creating-captivating-youtube-shorts-templates/"><u>[New] In 2024, A Practical Approach to Creating Captivating YouTube Shorts Templates</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-youtube-cpm-rates-how-much-do-youtubers-make/"><u>[New] In 2024, YouTube CPM Rates How Much Do YouTubers Make</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-secrets-to-capturing-your-iphone-7-screen/"><u>[Updated] 2024 Approved Secrets to Capturing Your iPhone 7 Screen</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-apex-chart-seeker-monitor-most-viewed-videos-for-2024/"><u>[Updated] Apex Chart Seeker Monitor Most Viewed Videos for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-capture-and-save-your-linkedin-content-the-ultimate-guide-to-best-tools-for-2024/"><u>[Updated] Capture & Save Your LinkedIn Content The Ultimate Guide to Best Tools for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-tricking-out-genuine-from-fraudulent-instagram-pals/"><u>[Updated] In 2024, Tricking Out Genuine From Fraudulent Instagram Pals</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-youtube-tech-basics-essential-equipment-guide/"><u>[Updated] In 2024, YouTube Tech Basics Essential Equipment Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-earning-potential-unveiled-youtube-adsense-earning-per-thousand-video-observations/"><u>2024 Approved Earning Potential Unveiled YouTube AdSense Earning per Thousand Video Observations</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-how-augmentation-changes-our-reality-view/"><u>2024 Approved How Augmentation Changes Our Reality View</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Honor Magic Vs 2 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-xiaomi-redmi-k70emirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Xiaomi Redmi K70EMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-navigating-through-the-sea-of-user-interactions-on-youtube/"><u>In 2024, Navigating Through the Sea of User Interactions on YouTube</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-pictures-on-honor-magic-6-pro-without-backup-by-fonelab-android-recover-pictures/"><u>The way to recover deleted pictures on Honor Magic 6 Pro without backup.</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Unleashing YouTube Potential  The Best Shortcuts to Higher Views\""
-date: 2024-10-24T19:29:53.779Z
-updated: 2024-10-30T16:58:33.175Z
+date: 2024-11-01T00:20:04.570Z
+updated: 2024-11-04T21:27:14.767Z
 tags:
   - ai video
   - ai youtube
@@ -46,6 +46,13 @@ While watching a YouTube video, there might be instances when you want to pause 
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
 This section talks about the shortcut keys to skim the video forward and backward during playback:
@@ -65,13 +72,6 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 3: Manage Playback Speed
 
 This category contains information on increasing or decreasing the playback speed of a YouTube video:
@@ -80,6 +80,13 @@ This category contains information on increasing or decreasing the playback spee
 | ---------------------- | ----------------------- |
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 4: Managing the Captions
 
@@ -93,13 +100,6 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -109,13 +109,6 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | 'M'               | Mute YouTube video    |
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Category 6: Switching Between Screen Modes
 
@@ -155,6 +148,13 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
@@ -166,10 +166,16 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -193,20 +199,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/levate-your-views-degrees-of-rotation-on-youtube-a-2023-guide-for-2024/"><u>[New] Elevate Your Views Degrees of Rotation on YouTube - A 2023 Guide for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-effortless-device-integration-with-obs-for-streaming-on-pcmac/"><u>[New] In 2024, Effortless Device Integration with OBS for Streaming on PC/Mac</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/he-methodical-path-to-discovering-hidden-youtube-footage-for-2024/"><u>[New] The Methodical Path to Discovering Hidden YouTube Footage for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/nlocking-potential-creating-compelling-content-on-your-phone-for-2024/"><u>[New] Unlocking Potential Creating Compelling Content on Your Phone for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-seamless-sound-transfer-top-10-youtube-to-mp3-picks/"><u>[Updated] 2024 Approved Seamless Sound Transfer Top 10 YouTube to Mp3 Picks</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-chronicles-of-time-student-approved-historical-yt-content/"><u>2024 Approved Chronicles of Time Student-Approved Historical YT Content</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/building-a-winning-portfolio-with-windows-11-video-editing-skills-for-2024/"><u>Building a Winning Portfolio with Windows 11 Video Editing Skills for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210313053-9780984002979-dialogues-with-yeshua-and-mary-magdalene/"><u>Dialogues with Yeshua and Mary Magdalene | Free Book</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-infinix-zero-5g-2023-turbo-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Infinix Zero 5G 2023 Turbo Phone that is Locked?</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-exploring-trending-video-reactions/"><u>In 2024, Exploring Trending Video Reactions</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/in-2024-how-to-changefake-your-xiaomi-redmi-note-12r-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Xiaomi Redmi Note 12R Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-infinix-note-30-5g-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Infinix Note 30 5G</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-removing-device-from-apple-id-for-your-iphone-7-by-drfone-ios/"><u>In 2024, Removing Device From Apple ID For your iPhone 7</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/r-the-art-of-immutable-image-creation/"><u>Master the Art of Immutable Image Creation</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/modern-techniques-for-repairing-voicemod-access-and-functionality-2024-insights/"><u>Modern Techniques for Repairing Voicemod Access & Functionality - 2024 Insights</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/aster-your-youtube-thumbnail-size-and-ratio/"><u>[New] Master Your YouTube Thumbnail Size & Ratio</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-step-by-step-imovie-videos-on-your-youtube-channel/"><u>[Updated] 2024 Approved Step-by-Step IMovie Videos on Your YouTube Channel</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-prime-hash-monitoring-apps-for-social-media-giants-fb-tweetinsta/"><u>[Updated] Prime Hash Monitoring Apps for Social Media Giants (FB, Tweet/Insta)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-crafting-a-legacy-youtubers-playbook-for-success/"><u>2024 Approved Crafting a Legacy YouTuber’s Playbook for Success</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-music-on-galaxy-m14-4g-by-fonelab-android-recover-music/"><u>How to restore wiped music on Galaxy M14 4G</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-best-video-maker-with-music-and-pictures/"><u>In 2024, Best Video Maker with Music and Pictures</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/my-videos-arent-playing-on-xiaomi-redmi-note-12-5g-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Xiaomi Redmi Note 12 5G – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-xiaomi-redmi-k70-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Xiaomi Redmi K70 Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/synergy-of-software-high-quality-text-plugins-reviewed/"><u>Synergy of Software High-Quality Text Plugins Reviewed</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/understanding-atandt-mobile-network-a-guide-to-their-data-roaming-terms/"><u>Understanding AT&T Mobile Network: A Guide to Their Data Roaming Terms</u></a></li>
 </ul></div>
 

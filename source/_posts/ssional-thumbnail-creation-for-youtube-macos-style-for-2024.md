@@ -1,7 +1,7 @@
 ---
 title: "Professional Thumbnail Creation for YouTube (macOS Style) for 2024"
-date: 2024-09-04T22:15:56.959Z
-updated: 2024-09-05T22:15:56.959Z
+date: 2024-10-29T22:36:52.737Z
+updated: 2024-11-05T05:10:54.434Z
 tags:
   - ai video
   - ai youtube
@@ -52,12 +52,6 @@ The first step in creating a thumbnail is to import the final video into the Fil
 
 ![import](https://images.wondershare.com/filmora/filmoraX/Guide-Mac/3.import-media-files.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Then, use the thumbnail editor to play your video and choose the snapshot that you want to be appearing as your thumbnail.
 
 You can easily choose the frame from the video or use the preview frame button to view the frames one by one!
@@ -65,29 +59,18 @@ You can easily choose the frame from the video or use the preview frame button t
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 2. Add text, shape, and image overlays
 
 Once you’ve chosen the frame for the thumbnail, the next step would be to add text to it to catch the attention of the audience. You can also adjust the thumbnail size as per your requirement, however, the ideal size would be 1280x720 pixels with a minimum width of 640 pixels.
 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3. Add effects
 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
@@ -95,17 +78,19 @@ FilmoraX has a wide range of effects that you can apply to your videos or pictur
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4. Save the thumbnail
 
 After you are done with all the editing, the final step would be to save the youtube thumbnail by hitting the save button.
@@ -121,39 +106,25 @@ Hopefully, the above-mentioned steps have given you enough insight and clarity o
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -162,4 +133,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-become-a-streaming-sensation-on-twitter-platform/"><u>[New] Become a Streaming Sensation on Twitter Platform</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/levate-your-contents-reach-in-youtube-shorts-formats-for-2024/"><u>[New] Elevate Your Content's Reach in YouTube Shorts Formats for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-highest-quality-screen-time-movie-hits-list/"><u>[New] In 2024, Highest-Quality Screen Time Movie Hits List</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/educe-buffering-and-lag-turn-on-av1-in-youtube-settings-for-2024/"><u>[New] Reduce Buffering & Lag - Turn On AV1 in YouTube Settings for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ime-markers-for-youtube-videos-expert-tips-desktopmobile-for-2024/"><u>[New] Time Markers for YouTube Videos Expert Tips (Desktop/Mobile) for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-what-lies-unseen-in-instagram-story-watching-for-2024/"><u>[New] What Lies Unseen in Instagram Story Watching for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-essential-steps-to-curate-youtube-music-selections/"><u>[Updated] 2024 Approved Essential Steps to Curate YouTube Music Selections</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-enhance-your-social-presence-with-easy-fb-video-upload-pc-and-android-for-2024/"><u>[Updated] Enhance Your Social Presence with Easy FB Video Upload, PC & Android for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-from-good-to-great-videos-the-20-essential-shortcuts-for-success-for-2024/"><u>[Updated] From Good to Great Videos The 20 Essential Shortcuts for Success for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-maximizing-video-impact-with-youtube-cards/"><u>2024 Approved Maximizing Video Impact with YouTube Cards</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-superior-mac-hd-recorders-with-in-built-sound-capture/"><u>2024 Approved Superior Mac HD Recorders with In-Built Sound Capture</u></a></li>
+<li><a href="https://win-web.techidaily.com/imessages-loading-from-icloud-onto-your-devices-a-step-by-step-tutorial-with-fonebackup/"><u>IMessages Loading From iCloud Onto Your Devices: A Step-by-Step Tutorial with FoneBackup</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-blueprint-for-thriving-in-virtual-events-stream-success-tips/"><u>In 2024, Blueprint for Thriving In Virtual Events Stream Success Tips</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Infinix Note 30 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ring-playlist-sharing-on-youtube/"><u>Mastering Playlist Sharing on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ize-engagement-the-top-14-youtube-gaming-video-strategies/"><u>Maximize Engagement The Top 14 YouTube Gaming Video Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapps-legal-standoff-against-privacy-rule-impact/"><u>WhatsApp's Legal Standoff Against Privacy Rule Impact</u></a></li>
+</ul></div>
 

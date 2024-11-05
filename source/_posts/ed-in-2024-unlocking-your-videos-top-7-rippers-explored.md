@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Unlocking Your Videos  Top 7 Rippers Explored\""
-date: 2024-09-04T22:15:58.328Z
-updated: 2024-09-05T22:15:58.328Z
+date: 2024-11-02T16:48:50.162Z
+updated: 2024-11-04T22:29:02.060Z
 tags:
   - ai video
   - ai youtube
@@ -67,13 +67,34 @@ For macOS 10.14 or later
 
 ![start filmora screen recording](https://images.wondershare.com/filmora/images2023/features-page/filmora-recording-mode.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2:** Select the area of the screen and click on the button to start screen recording.
 
 ![start recording youtube screen](https://images.wondershare.com/filmora/assets/poster-img/features/create-screen-webcam-recording-like-no-other.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3:** Now, you can export the YouTube video directly or re-edit with this YouTube video editor.
 
 ![save ripped youtube videp](https://images.wondershare.com/filmora/images2023/features-page/edit-video-recordings-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Here are some of the main features you can use to edit YouTube videos with Filmora.
 
@@ -101,18 +122,6 @@ For macOS 10.14 or later
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. [_Savefrom.net_](https://en.savefrom.net/1-youtube-video-downloader-5/) \[Online\]
 
 Savefrom.net is a YouTube video ripper that offers YouTube video download within a few simple steps. It allows you to download unlimited videos in multiple formats such as MP3 MP4 HD full HD and SQ quality. The best thing about this YouTube video downloader is that it is free to use and also works for other social media platforms like Instagram, Facebook and tik Tok. To use this to simply download its extension on Google Chrome.
@@ -125,12 +134,6 @@ This is software that offers a quick and easy system to rip YouTube video. It is
 
 ![yt1s youtube video ripper](https://images.wondershare.com/filmora/article-images/2-youtube-video-ripper.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Try Filmora to Download YouTube Video and Edit for Free!
 
 [**Filmora YouTube Video Ripper**](https://tools.techidaily.com/wondershare/filmora/download/) helps to extract YouTube video in high quality with the outstanding built-in screen record function, it also is an expert in creating and editing videos for all YouTubers. Adding the most trendy visual effects and popular emojis to re-edit and polish your video. Then you can upload to YouTube directly and gain more views!
@@ -139,56 +142,33 @@ Try Filmora to Download YouTube Video and Edit for Free!
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4\. [_Ytb.com_](https://ytb.rip/) \[Online\]
 
 YTB is a high-quality video downloader that downloads videos without any issues. It also converts YouTube video into different file formats such as MP3 and MP4\. Whether your video is an hour long or just 5 minutes, YTB takes only a few minutes to download and convert the video. It is a superfast downloader that can be used to download videos of any length and quality including HD and Ultra 4K HD.
 
 ![ytb free youtube video ripper](https://images.wondershare.com/filmora/article-images/3-free-youtube-video-ripper.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5\. [_Ytmp3.cc_](https://ytmp3.cc/youtube-to-mp3/) \[Online\]
 
 You can download YouTube videos using YTmp3\. Basically, it has a YouTube downloader that will convert YouTube video into mp3 and mp4 format for free. It works on all devices including tablets, mobile phones, and desktops. Moreover, video is always downloaded in the highest quality. It supports lengthy videos of up to 90 minutes. All you have to do is copy the URL and paste it into the search bar, and then click “convert”. After conversion, simply download the video.
 
 ![ytmp3 video ripper](https://images.wondershare.com/filmora/article-images/4-ytmp3-video-ripper.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 6\. [_Keepvid_](https://keepv.id/12/) \[Online\]
 
 Keepvid is one of the most popular YouTube video downloaders. It has many amazing features and supports download from multiple platforms like Instagram, Facebook, Twitter, Vimeo, etc. It also works as a conversion tool and saves your video in mp3 or mp4 format. It can also download subtitles. Its built-in browser is great and easy to use. So, use this online tool if you want to rip YouTube videos for free. You can also use the premium version for additional features but the paid version is a little towards the higher side.
 
 ![keepvid youtube video ripper](https://images.wondershare.com/filmora/article-images/5-keepvid-video-ripper.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![filmora box](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
 Filmora YouTube Video Ripper & Editor
@@ -202,48 +182,38 @@ Rip video from YouTube with Filmora's built-in screen recorder function. Edit Yo
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 7\. [_Ddownr.com_](https://ddownr.com/) \[Online\]
 
 This is another YouTube video ripper that you can use for free. However, unlike other names on this list, Ddownr automatically blocks all copyrighted videos and prevents them from downloading. This is to maintain and ensure 100% legitimacy to avoid any copyright issues. You can download videos in both mp3 and mp4 format. All in all, it is a great video downloader that offers a clean and user-friendly interface.
 
 ![ddownr video ripper](https://images.wondershare.com/filmora/article-images/6-ddownr-video-ripper.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 8\. [_Ripdownloader.com_](https://ripdownloader.com/) \[Online\]
 
 Rip Downloader is an online free YouTube video downloader and converter. This versatile video downloading tool is for everyone who wants to download YouTube videos without any trouble. It allows you to download videos from 10,000 other websites as well. It is 100% free and safe. Plus, it is compatible with all devices including Windows, Mac OS and Linux. Another great thing about this YouTube downloader is that it supports all file formats and high video qualities. For quick access, you can download Google chrome extension.
 
 ![ripdownloader](https://images.wondershare.com/filmora/article-images/7-youtube-video-ripper.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 9\. [_9convert.com_](https://9convert.com/) \[Online\]
 
 9Convert is a top-rated YouTube video ripper. It is free to use and offers unlimited downloads. You can save any video from YouTube. It offers a simple process where all you have to do is copy/paste the video URL and that’s it! It supports high video qualities and multiple file formats. It is especially designed for YouTube videos only so you cannot download videos from other platforms. It is also simple to use and 100% so no subscription or sign up required!
 
 ![9convert video ripper](https://images.wondershare.com/filmora/article-images/8-9convert-video-ripper.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 10\. [_Savethevideo.com_](https://www.savethevideo.com/home) \[Online\]
 
@@ -251,12 +221,6 @@ Savethevideo.com is one of the most reputed online YouTube video downloaders and
 
 ![save the video ripper](https://images.wondershare.com/filmora/article-images/9-save-the-video-ripper.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 11\. [_Catchvideo.net_](https://catchvideo.net/) \[Online\]
 
 Catchvideo.net is an online YouTube video ripper. It offers extensions, Android share app and YouTube video joiner. Just copy past the YouTube video link and download the video. The whole process only takes a few minutes. Moreover, you can download the video in audio (mp3) and video (mp4) format. It has a simple interface and can be used by anyone. A very useful feature of this video ripper is that you can also upload and convert your own videos. So, if you want a tool to convert your personal and online videos, this is the one!
@@ -264,11 +228,12 @@ Catchvideo.net is an online YouTube video ripper. It offers extensions, Android 
 ![Catchvideo.net free YouTube video ripper](https://images.wondershare.com/filmora/article-images/10-catch-video-ripper.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Is It Illegal to Rip a YouTube Video?
 
 YouTube does not specifically state that it is illegal to download YouTube video as YouTube app itself has a download option on most videos. According to Google’s terms of service, it is unethical to rip a YouTube video to generate money. It can be downloaded for personal use though.
@@ -283,20 +248,15 @@ Download YouTube Video from Your Own Channel
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 There are various reasons why people download YouTube videos. If you want to download YouTube videos too but don’t know how, try one of the YouTube video rippers mentioned in this article. They are all free, easy, and reliable.
@@ -311,14 +271,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -327,4 +284,21 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/gnite-the-flames-strategies-for-growing-your-youtube-audience-for-2024/"><u>[New] Ignite the Flames Strategies for Growing Your YouTube Audience for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-playlist-retrieval-made-straightforward-your-compreenaside/"><u>[New] In 2024, Playlist Retrieval Made Straightforward - Your Compreenaside</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/irvana-of-movement-youtubes-top-10-yoga-creators-for-2024/"><u>[New] Nirvana of Movement – YouTube’s Top 10 Yoga Creators for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/outube-playlist-building-step-by-step-expertise-for-2024/"><u>[New] YouTube Playlist Building Step-by-Step Expertise for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-unlock-the-potential-of-youtube-videos-with-smart-tags/"><u>[Updated] 2024 Approved Unlock the Potential of YouTube Videos with Smart Tags</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-from-concept-to-creation-youtube-trailer-production-via-filmora-for-2024/"><u>[Updated] From Concept to Creation YouTube Trailer Production via Filmora for 2024</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-data-from-apple-iphone-14-pro-to-new-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>How To Transfer Data from Apple iPhone 14 Pro to New iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-zte-nubia-z60-ultra-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock ZTE Nubia Z60 Ultra Phone with Broken Screen</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-vivo-t2-5g-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Vivo T2 5G | Dr.fone</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/nvidia-card-not-compatible-with-windows-11-fix/"><u>Nvidia Card Not Compatible with Windows 11 [Fix]</u></a></li>
+<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Samsung Galaxy M14 5G | Dr.fone</u></a></li>
+<li><a href="https://win-updates.techidaily.com/resolving-execute-disallowed-in-non-executable-region-errors-on-windows/"><u>Resolving 'Execute Disallowed in Non-Executable Region' Errors on Windows</u></a></li>
+<li><a href="https://techtrends.techidaily.com/seamless-viewing-how-to-project-apple-tvplus-shows-and-movies-on-a-google-chromecast-device/"><u>Seamless Viewing: How to Project Apple TV+ Shows and Movies on a Google Chromecast Device</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-perfect-phrases-expertly-crafted-instagram-captions/"><u>The Perfect Phrases: Expertly Crafted Instagram Captions</u></a></li>
+</ul></div>
 

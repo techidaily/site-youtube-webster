@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Self-Animated Wonders  Cutting Edge Techniques for You\""
-date: 2024-08-31T18:56:40.754Z
-updated: 2024-09-01T18:56:40.754Z
+date: 2024-11-03T11:16:39.515Z
+updated: 2024-11-05T07:26:44.120Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,13 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
 
 Lynda isn’t free, but the 10-day free trial period is definitely long enough for you to watch this two-hour course.
@@ -57,15 +64,23 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
 
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **[Video Copilot](http://www.videocopilot.net/)**
 
 This site has a huge number of free After Effects tutorials. There are basic introductory lessons, and really advanced classes on creating custom cinematic FX, like explosions. There’s even a playlist on title design, which will be useful for anyone looking to create an intro sequence for their videos.
@@ -73,22 +88,23 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -97,4 +113,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/ssential-steps-to-curate-youtube-music-selections-for-2024/"><u>[New] Essential Steps to Curate YouTube Music Selections for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ay-no-to-latency-turn-on-av1-in-youtube-settings/"><u>[New] Say No to Latency Turn On AV1 in YouTube Settings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-advanced-techniques-for-high-quality-youtube-content/"><u>[Updated] 2024 Approved Advanced Techniques for High-Quality YouTube Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-30-tips-and-tricks-to-take-your-youtube-shorts-templates-to-the-next-level-for-2024/"><u>[Updated] 30 Tips & Tricks to Take Your YouTube Shorts Templates to the Next Level for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-acclaimed-cameras-for-expert-automotive-tracking-for-2024/"><u>[Updated] Acclaimed Cameras for Expert Automotive Tracking for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-become-a-pro-in-calculating-youtube-ratio-measures-for-2024/"><u>[Updated] Become a Pro in Calculating YouTube Ratio Measures for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-achieving-profitability-on-youtube-average-view-count-for-success/"><u>[Updated] In 2024, Achieving Profitability on YouTube Average View Count for Success</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-mastering-instagram-live-a-guide-to-staying-incognito/"><u>[Updated] Mastering Instagram Live A Guide to Staying Incognito</u></a></li>
+<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-poco-f5-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-ultimate-tips-for-youtube-content-creation-excellence/"><u>In 2024, Ultimate Tips for YouTube Content Creation Excellence</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-in-the-freefire-arena-with-pro-gamers-guide-for-2024/"><u>Thriving in the FreeFire Arena with Pro Gamers' Guide for 2024</u></a></li>
+</ul></div>
 

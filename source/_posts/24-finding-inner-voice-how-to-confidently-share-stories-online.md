@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Finding Inner Voice  How to Confidently Share Stories Online\""
-date: 2024-08-31T18:55:17.034Z
-updated: 2024-09-01T18:55:17.034Z
+date: 2024-10-29T23:36:54.862Z
+updated: 2024-11-05T02:00:47.561Z
 tags:
   - ai video
   - ai youtube
@@ -50,9 +50,6 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -69,9 +66,6 @@ Unlike being invited to a party, there is no obligation when it comes to YouTube
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **5\. Compose the Shot**
 
 Vlogging is a visual medium, and while the story is important, what is captured in the frame will play an impactful role in the video as well.
@@ -84,6 +78,13 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -95,13 +96,18 @@ Good preparation includes having all your gear ready for filming when you need i
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
 
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **7\. Be Expressive**
 
 Remember those teachers that drone on and on, without adding any expression or passion to what they are lecturing? While they might have been perfectly suitable as teachers, they wouldn’t make good vloggers.
@@ -113,9 +119,12 @@ Consider your audience: they are coming home from school or work, where there we
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **8\. Stay Organized**
 
 The same way you should prepare before filming, it’s also important to be organized comes the editing phase. Editing is arguably the most time-consuming part of the vlogging process, so have a system for categorizing and finding your footages.
@@ -140,28 +149,26 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -170,4 +177,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-essential-skills-androids-screen-recording-functionality/"><u>[New] In 2024, Essential Skills Android's Screen Recording Functionality</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-innovating-your-approach-a-compre-written-by-an-industry-expert-on-effective-youtube-banner-strategies-for-advertisers/"><u>[New] In 2024, Innovating Your Approach A Compre Written by an Industry Expert on Effective YouTube Banner Strategies for Advertisers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-ultimate-vlog-gear-list-17-edition-for-2024/"><u>[New] The Ultimate Vlog Gear List (#17 Edition) for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nveiling-subscriber-lists-a-youtube-guide-for-2024/"><u>[New] Unveiling Subscriber Lists A YouTube Guide for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-navigating-the-seas-of-success-utilizing-social-blade-for-youtube-data/"><u>[Updated] 2024 Approved Navigating the Seas of Success Utilizing Social Blade for YouTube Data</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-starting-off-smoothly-with-fast-forwarding-in-snapchat/"><u>[Updated] 2024 Approved Starting Off Smoothly with Fast-Forwarding in Snapchat</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-compiled-lists-best-online-stores-for-youtube-tones-and-videos/"><u>[Updated] Compiled Lists Best Online Stores for Youtube Tones and Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-how-to-unlock-youtubes-enigmentic-video-cache-for-2024/"><u>[Updated] How to Unlock YouTube’s Enigmentic Video Cache for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-gratis-design-elements-for-youtube-channel/"><u>[Updated] In 2024, Gratis Design Elements for YouTube Channel</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-building-engagement-the-role-of-youtube-shorts-template-design/"><u>2024 Approved Building Engagement The Role of YouTube Shorts Template Design</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ve-video-perfection-youtube-studio-edition-tips-and-tricks/"><u>Achieve Video Perfection YouTube Studio Edition Tips & Tricks</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/anthems-expertly-curated-dj-vids-downloads/"><u>Club Anthems Expertly Curated DJ Vids Downloads</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/how-to-open-control-panel-in-windows-11-7-8/"><u>How to Open Control Panel in Windows 11, 7, 8</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-action-seekers-dilemma-gopro-vs-yi-camera-showdown-revised/"><u>In 2024, Action Seekers' Dilemma GoPro Vs. Yi Camera Showdown, Revised</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/initial-graphical-system-unresponsive/"><u>Initial Graphical System Unresponsive</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210676426-9798885406161-like-the-days-of-the-heavens-above-the-earth/"><u>Like The Days of the Heavens above the Earth | Free Book</u></a></li>
+<li><a href="https://techtrends.techidaily.com/lost-passcode-solutions-regaining-access-to-your-secure-ipad-device/"><u>Lost Passcode Solutions: Regaining Access to Your Secure iPad Device</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-guide-updating-your-hp-deskjet-2652-printer-driver-for-win10-win8-and-win7/"><u>Step-by-Step Guide: Updating Your HP DeskJet 2652 Printer Driver for Win10, Win8, and Win7</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unraveling-instagrams-video-sideways-quandary/"><u>Unraveling Instagram's Video Sideways Quandary</u></a></li>
+</ul></div>
 

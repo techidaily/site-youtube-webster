@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Flickering Fonts  2 Innovative Text Techniques\""
-date: 2024-10-28T16:26:28.590Z
-updated: 2024-10-30T16:05:30.108Z
+date: 2024-10-30T12:15:38.997Z
+updated: 2024-11-05T00:17:22.504Z
 tags:
   - ai video
   - ai youtube
@@ -76,10 +76,16 @@ As explained before, Wondeshare Filmora makes the entire process of creating and
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
@@ -95,10 +101,10 @@ Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
@@ -128,16 +134,10 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
@@ -155,10 +155,16 @@ Generating **bounce text** effect is much simpler when you use Wondershare Filmo
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -182,18 +188,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/rom-lens-to-legacy-building-a-lasting-career-in-travel-blogging-for-2024/"><u>[New] From Lens to Legacy Building a Lasting Career in Travel Blogging for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/1715860525863-new-internal-recorder-usage-for-capturing-screens-on-mate-series-and-p-series-mate-1020-p2010/"><u>[New] Internal Recorder Usage for Capturing Screens on Mate Series & P Series (Mate 10/20; P20/10).</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/vercoming-blackout-problems-for-a-clearer-youtube-experience-for-2024/"><u>[New] Overcoming Blackout Problems for a Clearer YouTube Experience for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/hats-new-in-youtube-tv-updates-and-features-in-2024/"><u>[New] What's New in YouTube TV Updates & Features, In 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-a-comprehensive-tutorial-for-transforming-vids-into-dollars/"><u>[Updated] In 2024, A Comprehensive Tutorial for Transforming Vids Into Dollars</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-audio-perfection-achieved-expert-tips-without-a-microphone/"><u>[Updated] In 2024, Audio Perfection Achieved Expert Tips Without a Microphone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-steps-to-restore-visual-clarity-to-youtube-videos/"><u>[Updated] In 2024, Steps to Restore Visual Clarity to YouTube Videos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-valorant-image-magic-quick-professionally-crafted-portraits-for-2024/"><u>[Updated] Valorant Image Magic Quick, Professionally Crafted Portraits for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Realme GT 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/nighttime-captures-elevating-iphone-photos-for-2024/"><u>Nighttime Captures Elevating iPhone Photos for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/romance-languages-a-cultural-overview/"><u>Romance Languages: A Cultural Overview</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ltimate-guide-to-youtube-editing-in-imovie-software/"><u>The Ultimate Guide to YouTube Editing in iMovie Software</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/transform-your-videos-simple-steps-to-include-youtube-subtitlescc/"><u>Transform Your Videos Simple Steps to Include YouTube Subtitles/CC</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-a-step-by-step-approach-to-ad-revenue-in-youtube-videos/"><u>[New] 2024 Approved A Step-by-Step Approach to Ad Revenue in YouTube Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-adrevenue-on-youtube-unpacked-average-income-from-1000-viewers-engagement/"><u>[New] 2024 Approved AdRevenue on YouTube Unpacked Average Income From 1,000 Viewers' Engagement</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-elite-edits-the-best-video-editors-ranked/"><u>[New] 2024 Approved Elite Edits The Best Video Editors Ranked</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-how-to-send-gif-on-snapchat-step-by-step-guide-for-2024/"><u>[New] How to Send Gif on Snapchat [Step-by-Step Guide] for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-optimize-your-presence-mastering-snapchat-business-use-for-2024/"><u>[New] Optimize Your Presence Mastering Snapchat Business Use for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/op-10-mobile-apps-for-enhancing-youtube-shorts-videos-for-2024/"><u>[New] Top 10 Mobile Apps for Enhancing YouTube Shorts Videos for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-bend-the-light-homegrown-animated-innovations/"><u>[Updated] In 2024, Bend the Light Homegrown Animated Innovations</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-who-earns-more-in-the-video-market-dailymovement-vs-youtube/"><u>[Updated] Who Earns More in the Video Market? DailyMovement Vs YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-dominate-views-smarter-youtube-timing-strategies/"><u>2024 Approved Dominate Views Smarter Youtube Timing Strategies</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-youtube-descriptions-revamped-by-template-professionals/"><u>2024 Approved YouTube Descriptions Revamped by Template Professionals</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-your-course-through-youtube-compliance-for-2024/"><u>Charting Your Course Through YouTube Compliance for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-5-must-try-websites-for-cost-free-effects/"><u>In 2024, 5 Must-Try Websites for Cost-Free Effects</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-why-apple-account-disabled-from-your-iphone-11-pro-how-to-fix-by-drfone-ios/"><u>In 2024, Why Apple Account Disabled From your iPhone 11 Pro? How to Fix</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ring-video-rankings-on-youtube-essential-seo-techniques-unveiled-for-2024/"><u>Mastering Video Rankings on YouTube Essential SEO Techniques Unveiled for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/next-level-gaming-unleashed-detailed-analysis-of-amds-zen-5-powered-ryzen-5-9600x-and-ryzen-7-9700x-cpus/"><u>Next-Level Gaming Unleashed: Detailed Analysis of AMD's Zen 5 Powered Ryzen 5 9600X & Ryzen 7 9700X CPUs</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/nextgen-fidelity-upgrade-your-viewing-experience/"><u>NextGen Fidelity Upgrade Your Viewing Experience</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/problemlosung-bei-verschwundenen-alben-auf-google-photos-behinderte-ordner-helfen/"><u>Problemlösung Bei Verschwundenen Alben Auf Google Photos - Behinderte Ordner Helfen</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722965103279-step-by-step-update-your-lenovo-x1-carbon-for-windows-11-and-7-driver-downloads-included/"><u>Step-by-Step: Update Your Lenovo X1 Carbon for Windows 11 & 7 - Driver Downloads Included!</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-9-strategies-utilizing-chatgpt-for-efficient-novel-writing/"><u>Top 9 Strategies: Utilizing ChatGPT for Efficient Novel Writing</u></a></li>
 </ul></div>
 

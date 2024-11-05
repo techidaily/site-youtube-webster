@@ -1,7 +1,7 @@
 ---
 title: "How to Add YouTube Annotations and Cards, In 2024"
-date: 2024-10-25T16:10:02.703Z
-updated: 2024-10-30T19:44:46.882Z
+date: 2024-11-04T08:39:03.742Z
+updated: 2024-11-05T10:10:34.900Z
 tags:
   - ai video
   - ai youtube
@@ -73,10 +73,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to add YouTube annotations
@@ -90,10 +90,16 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
@@ -102,10 +108,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Apply changes
@@ -147,10 +153,10 @@ No matter what kind of annotations you are using, you should never use more than
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -174,15 +180,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-maximize-profitability-the-dos-and-donts-of-youtube-monetization/"><u>[New] In 2024, Maximize Profitability – The Do's and Don'ts of YouTube Monetization</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-stream-like-never-before-turning-on-youtubes-av1/"><u>[New] In 2024, Stream Like Never Before Turning On YouTube's AV1</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-top-10-best-flvto-alternatives-youtube-converter/"><u>[New] In 2024, Top 10 Best Flvto Alternatives YouTube Converter</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-jokes-and-puns-iphone-edition/"><u>2024 Approved Jokes and Puns IPhone Edition</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-optimize-video-search-with-these-top-7-youtube-tags-extractor-tools/"><u>In 2024, Optimize Video Search with These Top 7 Youtube Tags Extractor Tools</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-streamline-your-online-listening-experience-with-direct-capture/"><u>In 2024, Streamline Your Online Listening Experience with Direct Capture</u></a></li>
-<li><a href="https://solve-luxury.techidaily.com/losung-fur-fehlende-ordner-vom-flash-laufwerk-wiederherstellungstechniken-von-myrecover/"><u>Lösung Für Fehlende Ordner Vom Flash-Laufwerk: Wiederherstellungstechniken Von MyRecover</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/navigating-the-challenges-of-library-loading-fixing-loadlibrary-failed-and-error-code-n/"><u>Navigating the Challenges of Library Loading - Fixing 'LoadLibrary Failed' And Error Code N</u></a></li>
-<li><a href="https://win11.techidaily.com/streamline-stylus-malfunctions-with-these-tips-for-windows-tablets/"><u>Streamline Stylus Malfunctions with These Tips for Windows Tablets</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/valentines-day-vocabulary-worldwide-loving-terms/"><u>Valentine's Day Vocabulary: Worldwide Loving Terms</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-youtube-creators-guide-15-unrestricted-music-archives/"><u>[New] 2024 Approved YouTube Creators' Guide 15 Unrestricted Music Archives</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/njoy-premium-video-artwork-download-at-no-cost-today/"><u>[New] Enjoy Premium Video Artwork - Download at No Cost Today</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-growth-in-focus-building-a-foundation-of-youtube-backlinks/"><u>[Updated] 2024 Approved Growth in Focus Building a Foundation of YouTube Backlinks</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-unbelievable-charted-truths-youtubes-fact-filled-figures-2017/"><u>[Updated] 2024 Approved Unbelievable Charted Truths YouTube's Fact-Filled Figures (2017)</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-unmasking-the-giants-of-live-broadcast-twitch-vs-youtube/"><u>[Updated] In 2024, Unmasking the Giants of Live Broadcast Twitch Vs YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-what-is-the-youtube-creator-studio/"><u>[Updated] In 2024, What Is the YouTube Creator Studio?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-streamline-your-content-strategy-with-youtube-movie-maker-for-2024/"><u>[Updated] Streamline Your Content Strategy with YouTube Movie Maker for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-the-insiders-guide-to-instagrams-music-licensing-policies/"><u>[Updated] The Insider’s Guide to Instagram's Music Licensing Policies</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/becoming-a-greenscreen-specialist-in-kinemasters-vfx-realm-for-2024/"><u>Becoming a Greenscreen Specialist in KineMaster's VFX Realm for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-optimal-logitech-webcam-settings-for-professional-video-outputs/"><u>In 2024, Optimal Logitech Webcam Settings for Professional Video Outputs</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/introducing-advanced-artificial-intelligence-assistance-on-bings-search-engine/"><u>Introducing Advanced Artificial Intelligence Assistance on Bing's Search Engine</u></a></li>
+<li><a href="https://howto.techidaily.com/lava-blaze-curve-5g-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Lava Blaze Curve 5G Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-art-of-inserting-descriptive-commentary-in-youtube-videos-for-2024/"><u>The Art of Inserting Descriptive Commentary in YouTube Videos for 2024</u></a></li>
 </ul></div>
 

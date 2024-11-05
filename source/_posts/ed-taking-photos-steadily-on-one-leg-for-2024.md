@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Taking Photos Steadily on One Leg for 2024"
-date: 2024-09-04T22:15:55.862Z
-updated: 2024-09-05T22:15:55.862Z
+date: 2024-10-29T09:42:00.185Z
+updated: 2024-11-04T22:54:59.669Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,13 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 Here are 3 of our favorite DIY tripods.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -54,22 +61,24 @@ And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -88,11 +97,12 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -101,18 +111,6 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _All of your supplies plus the finished product._
 
 **Readying your legs**
@@ -135,26 +133,17 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024326/7443" target="_top" id="2024326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024326/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -163,4 +152,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-streamlabs-versus-obs-the-ultimate-showdown/"><u>[New] 2024 Approved Streamlabs Versus OBS The Ultimate Showdown</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/aptivate-audiences-quickly-shortcuts-for-youtube-trailers-with-filmora/"><u>[New] Captivate Audiences Quickly Shortcuts for YouTube Trailers with Filmora</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-quick-fixes-enhancing-your-snaps-with-snapchat-edits/"><u>[New] In 2024, Quick Fixes Enhancing Your Snaps with Snapchat Edits</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/bs-masterclass-for-beginners-stream-to-youtube-flawlessly/"><u>[New] OBS Masterclass for Beginners Stream to YouTube Flawlessly</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-navigating-and-maximizing-youtubes-livestream-features/"><u>[Updated] 2024 Approved Navigating and Maximizing YouTube's Livestream Features</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-top-10-recruiting-gems-amp-up-engagement/"><u>[Updated] 2024 Approved Top 10 Recruiting Gems Amp Up Engagement</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-guide-to-incorited-visuals-in-text-without-cost-for-2024/"><u>[Updated] Guide to Incorited Visuals in Text Without Cost for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-how-to-blur-background-of-your-youtube-video/"><u>[Updated] How to Blur Background of Your YouTube Video</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-the-artist-writes-an-ipad-guide-to-time-lapse-photography/"><u>2024 Approved The Artist' Writes An iPad Guide to Time-Lapse Photography</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-play-hevc-h-265-video-on-redmi-k70-pro-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>How to play HEVC H.265 video on Redmi K70 Pro?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-the-complete-guide-to-adding-powerful-narrations/"><u>In 2024, The Complete Guide to Adding Powerful Narrations</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-unlock-the-secrets-to-high-impact-youtube-branding/"><u>In 2024, Unlock the Secrets to High-Impact YouTube Branding</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lart-de-la-physiologie-humaine-composition-corporelle-en-francais/"><u>L'Art De La Physiologie Humaine: Composition Corporelle en Français</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/mp4-video-compression-techniques-that-preserve-quality/"><u>MP4 Video Compression Techniques That Preserve Quality</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-vn-video-editor-pro-apk-a-professional-level-video-editing-experience-in-2024/"><u>New VN Video Editor Pro Apk A Professional-Level Video Editing Experience, In 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/egic-trailer-planning-for-increased-channels-profitability-for-2024/"><u>Strategic Trailer Planning for Increased Channels' Profitability for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/windows-10-invisible-fullscreen-window/"><u>Windows 10: Invisible Fullscreen Window?</u></a></li>
+</ul></div>
 

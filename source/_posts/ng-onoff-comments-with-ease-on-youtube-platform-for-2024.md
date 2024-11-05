@@ -1,7 +1,7 @@
 ---
 title: "Turning On/Off Comments with Ease on YouTube Platform for 2024"
-date: 2024-10-25T17:32:34.763Z
-updated: 2024-10-30T21:32:48.288Z
+date: 2024-11-02T11:12:49.694Z
+updated: 2024-11-05T04:38:03.452Z
 tags:
   - ai video
   - ai youtube
@@ -96,10 +96,16 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -122,13 +128,20 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
-  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -147,13 +160,6 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -169,16 +175,10 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -202,19 +202,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-personal-growth-chronicles-for-youtube-audience/"><u>[New] In 2024, Personal Growth Chronicles for YouTube Audience</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-revolutionize-your-branding-strategy-with-access-to-a-vast-library-of-free-youtube-banners/"><u>[Updated] 2024 Approved Revolutionize Your Branding Strategy with Access to a Vast Library of Free YouTube Banners</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-rising-above-vimeo-10-next-level-editing-applications/"><u>[Updated] Rising Above Vimeo 10 Next-Level Editing Applications</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ing-news-end-credits-a-step-by-step-guide-for-2024/"><u>Crafting News End Credits A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/failed-to-play-mkv-movies-on-motorola-edge-2023-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Failed to play MKV movies on Motorola Edge 2023</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/los-diez-dias-del-mundo-el-espanol-para-cada-jornada/"><u>Los Diez Días Del Mundo: El Español Para Cada Jornada</u></a></li>
-<li><a href="https://fox-that.techidaily.com/overcoming-the-challenge-of-non-automatic-airpod-switching-amongst-apple-electronics/"><u>Overcoming the Challenge of Non-Automatic AirPod Switching Amongst Apple Electronics</u></a></li>
-<li><a href="https://win-blog.techidaily.com/solution-guide-when-you-encounter-a-dark-display-with-epic-games-launcher/"><u>Solution Guide: When You Encounter a Dark Display with Epic Games Launcher</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/streamlined-process-for-securing-new-amd-video-drives-update-today/"><u>Streamlined Process for Securing New AMD Video Drives – Update Today</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/recision-of-portioning-video-length-optimization-on-youtube-for-2024/"><u>The Precision of Portioning Video Length Optimization on YouTube for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/the-ultimate-guide-to-zoom-engagement-unlocking-communication-success/"><u>The Ultimate Guide to Zoom Engagement Unlocking Communication Success</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/unlocking-the-secrets-of-instagrams-video-capsule/"><u>Unlocking the Secrets of Instagram's Video Capsule</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/d-videos-effortlessly-with-premiere-on-youtube/"><u>Upload Videos Effortlessly with Premiere on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-essential-strategies-for-professional-grade-video-editing/"><u>[New] 2024 Approved Essential Strategies for Professional-Grade Video Editing</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-discover-the-top-4k-youtube-converters-for-quality-video-downloads/"><u>[New] Discover the Top 4K YouTube Converters for Quality Video Downloads</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-essential-tips-creating-striking-youtube-video-previews/"><u>[New] In 2024, Essential Tips Creating Striking YouTube Video Previews</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-the-in-depth-technique-for-formulating-youtube-playlists/"><u>[New] In 2024, The In-Depth Technique for Formulating YouTube Playlists</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ncovering-your-youtube-remarks-across-os-platforms-for-2024/"><u>[New] Uncovering Your YouTube Remarks Across OS Platforms for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-definitive-guide-to-ios-and-android-maker-tools/"><u>[Updated] 2024 Approved The Definitive Guide to iOS & Android Maker Tools</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-crafting-magnetic-content-with-personalized-animated-gifs/"><u>[Updated] Crafting Magnetic Content with Personalized Animated GIFs</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-free-and-paid-solutions-for-high-quality-meet-recordings-for-2024/"><u>[Updated] Free & Paid Solutions for High-Quality Meet Recordings for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-full-spectrum-physical-action-review/"><u>[Updated] In 2024, Full Spectrum Physical Action Review</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-the-best-live-streaming-apps-list-for-youtube-content-creators-iosandroid/"><u>2024 Approved The Best Live Streaming Apps List for YouTube Content Creators (iOS/Android)</u></a></li>
+<li><a href="https://win-web3.techidaily.com/1728487696597-aomei-backupper/"><u>如何高效使用AOMEI Backupper進行資料夾間的同步技巧</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/hering-the-divergent-aspects-of-youtubes-and-dailymentions-for-2024/"><u>Deciphering the Divergent Aspects of YouTubes & DailyMentions for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-delete-icloud-account-remove-your-apple-id-permanently-on-iphone-xr-by-drfone-ios/"><u>How To Delete iCloud Account Remove Your Apple ID Permanently On iPhone XR</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/transform-fb-video-files-into-mp4-directly/"><u>Transform FB Video Files Into MP4 Directly</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Art of Inserting Descriptive Commentary in YouTube Videos\""
-date: 2024-08-31T18:53:55.736Z
-updated: 2024-09-01T18:53:55.736Z
+date: 2024-10-30T11:18:15.796Z
+updated: 2024-11-05T14:59:44.256Z
 tags:
   - ai video
   - ai youtube
@@ -67,6 +67,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -77,10 +84,24 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -120,20 +141,24 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,8 +167,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/rafting-a-customized-soundscape-youtube-playlist-building-on-the-internetapps/"><u>[New] Crafting a Customized Soundscape YouTube Playlist Building on the Internet/Apps</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-exploring-sky-vistas-yuneec-breezes-high-def-adventure/"><u>[Updated] 2024 Approved Exploring Sky Vistas Yuneec Breeze's High-Def Adventure</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-how-to-clear-black-boards-in-your-youtube-videos/"><u>[Updated] 2024 Approved How to Clear Black Boards in Your YouTube Videos?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-instant-subscriber-growth-trackers/"><u>[Updated] 2024 Approved Instant Subscriber Growth Trackers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-audiences-in-motion-analyzers/"><u>[Updated] Audiences in Motion Analyzers</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-premier-5-time-lapse-camera-apps-for-2024/"><u>[Updated] Premier 5 Time-Lapse Camera Apps for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-viral-hits-top-10-video-watches-in-an-hour-for-2024/"><u>[Updated] Viral Hits Top 10 Video Watches in an Hour for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-grasping-youtube-seo-a-guide-to-keyword-discovery/"><u>2024 Approved Grasping YouTube SEO A Guide to Keyword Discovery</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-the-power-of-personalization-upgrade-your-youtube-url/"><u>2024 Approved The Power of Personalization Upgrade Your YouTube URL</u></a></li>
+<li><a href="https://win-unique.techidaily.com/effiziente-moglichkeiten-zum-schnellen-herunterfahren-ihres-computers-unter-verwendung-von-command-prompt-cmd/"><u>Effiziente Möglichkeiten Zum Schnellen Herunterfahren Ihres Computers Unter Verwendung Von Command Prompt (CMD)</u></a></li>
+<li><a href="https://driver-download.techidaily.com/free-download-and-latest-version-canon-pixma-ts3322-printer-drivers/"><u>Free Download & Latest Version - Canon PIXMA TS3322 Printer Drivers</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-the-10-best-gba-emulators-for-android/"><u>In 2024, The 10 Best GBA Emulators for Android</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-unveiling-creative-possibilities-anime-subscribe-buttons-for-your-youtube-channel-filmora/"><u>In 2024, Unveiling Creative Possibilities Anime Subscribe Buttons for Your YouTube Channel (Filmora)</u></a></li>
+<li><a href="https://fox-web3.techidaily.com/managing-hyper-v-power-settings-exploring-the-impact-of-turn-off-versus-shutdown-on-virtual-machines/"><u>Managing Hyper-V Power Settings: Exploring the Impact of Turn Off Versus Shutdown on Virtual Machines</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ring-youtube-screens-final-touches/"><u>Mastering YouTube Screens' Final Touches</u></a></li>
+<li><a href="https://win11.techidaily.com/solving-windows-11-icon-size-decline/"><u>Solving Windows 11 Icon Size Decline</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/symphony-storage-download-and-critique-melodies/"><u>Symphony Storage Download & Critique Melodies</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
