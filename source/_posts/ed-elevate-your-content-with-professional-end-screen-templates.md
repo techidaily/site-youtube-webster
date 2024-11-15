@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Elevate Your Content with Professional End Screen Templates"
-date: 2024-08-31T18:45:12.978Z
-updated: 2024-09-01T18:45:12.978Z
+date: 2024-11-11T21:23:11.112Z
+updated: 2024-11-15T20:54:41.070Z
 tags:
   - ai video
   - ai youtube
@@ -91,6 +91,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
@@ -113,6 +120,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
@@ -121,7 +135,21 @@ If you're looking for other options to design your end screen, make sure to also
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -129,14 +157,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,8 +170,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-a-comprehensive-walkthrough-of-youtube-timestamping-techniques/"><u>[New] A Comprehensive Walkthrough of YouTube Timestamping Techniques</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-high-performance-gpu-picks-for-quality-video-streaming/"><u>[Updated] 2024 Approved High-Performance GPU Picks for Quality Video Streaming</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-iphone-laughs-and-lightheartedness/"><u>[Updated] 2024 Approved IPhone Laughs & Lightheartedness</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-ultimate-guide-to-refining-your-youtube-videos-after-publishing/"><u>[Updated] 2024 Approved The Ultimate Guide to Refining Your YouTube Videos After Publishing</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-collect-premium-audio-for-video-editors/"><u>[Updated] Collect Premium Audio for Video Editors</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-captivating-captions-writing-copy-that-drives-engagement-and-views/"><u>[Updated] In 2024, Captivating Captions Writing Copy That Drives Engagement and Views</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-gamer-centric-streaming-tool-selection/"><u>[Updated] In 2024, Gamer-Centric Streaming Tool Selection</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-initial-trial-ideal-accessories-to-boost-your-gopro-footage/"><u>[Updated] Initial Trial Ideal Accessories to Boost Your GoPro Footage</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-asmr-benefits-unveiled-your-mental-gain/"><u>2024 Approved ASMR Benefits Unveiled – Your Mental Gain</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/achieve-exceptional-results-using-copilots-complimentary-gpt-4-turbo-integration/"><u>Achieve Exceptional Results Using Copilot's Complimentary GPT-4 Turbo Integration</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpts-subscription-update-current-halt-explained-plus-timeline-for-access-resumption/"><u>ChatGPT's Subscription Update: Current Halt Explained + Timeline for Access Resumption</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/te-your-channels-standing-with-these-tactics/"><u>Elevate Your Channel's Standing with These Tactics</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/y-fortnite-cover-art-creation/"><u>Speedy Fortnite Cover Art Creation</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

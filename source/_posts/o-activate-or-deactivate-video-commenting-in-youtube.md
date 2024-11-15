@@ -1,7 +1,7 @@
 ---
 title: "How To Activate or Deactivate Video Commenting in YouTube"
-date: 2024-11-04T10:15:52.232Z
-updated: 2024-11-04T21:26:57.204Z
+date: 2024-11-12T17:54:53.062Z
+updated: 2024-11-15T17:39:58.051Z
 tags:
   - ai video
   - ai youtube
@@ -95,13 +95,6 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -123,13 +116,20 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -148,10 +148,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -169,10 +169,10 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -196,24 +196,21 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-5-innovative-apps-to-design-stunning-openings/"><u>[New] 2024 Approved 5 Innovative Apps to Design Stunning Openings</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-access-youtube-tracks-without-spending-a-dime-25plus-no-cost-audio-extractors/"><u>[New] 2024 Approved Access YouTube Tracks Without Spending a Dime 25+ No-Cost Audio Extractors</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-crack-the-code-of-content-top-6-youtuber-personality-tests-revealed/"><u>[New] 2024 Approved Crack the Code of Content Top 6 YouTuber Personality Tests Revealed</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-economic-expressiveness-in-video-theming-tools/"><u>[New] 2024 Approved Economic Expressiveness in Video Theming Tools</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-elevate-views-not-video-length-expert-guide-to-yt-desc-templates/"><u>[New] 2024 Approved Elevate Views, Not Video Length Expert Guide to YT Desc Templates</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-first-steps-in-youtube-profitability-starting-a-channel-and-revenue-streams/"><u>[New] 2024 Approved First Steps in YouTube Profitability Starting a Channel & Revenue Streams</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-free-explore-youtubes-9-premium-full-length-christmas-flicks/"><u>[New] 2024 Approved Free Explore YouTube's 9 Premium Full-Length Christmas Flicks</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-how-to-view-youtube-statistics/"><u>[New] 2024 Approved How to View YouTube Statistics</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-dive-into-digital-fandom-top-6-interactive-questionnaires-to-identify-your-youtube-spirituality/"><u>[Updated] 2024 Approved Dive Into Digital Fandom Top 6 Interactive Questionnaires to Identify Your YouTube Spirituality</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-neo-theater-narratives-virtual-realms/"><u>[Updated] 2024 Approved Neo-Theater Narratives Virtual Realms</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-crafting-straightforward-stories/"><u>[Updated] Crafting Straightforward Stories</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-scaling-movies-on-a-mac-for-impeccable-instagram-shares/"><u>[Updated] In 2024, Scaling Movies on a Mac for Impeccable Instagram Shares</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-unraveling-video-platform-distinctions-a-youtube-vs-dailymention-analysis/"><u>[Updated] In 2024, Unraveling Video Platform Distinctions A YouTube Vs. DailyMention Analysis</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-exploring-9-zero-price-editors-for-youtube-content/"><u>In 2024, Exploring 9 Zero Price Editors for YouTube Content</u></a></li>
-<li><a href="https://fox-info.techidaily.com/ion-air-pro-3-review-unleashing-videography-potential/"><u>ION Air Pro 3 Review Unleashing Videography Potential</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/journey-into-the-realm-of-time-lapses-expert-tips-for-hero-10/"><u>Journey Into the Realm of Time Lapses Expert Tips for Hero 10</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-streaming-on-youtube-with-an-introductory-obs-course-for-2024/"><u>Start Streaming on Youtube with an Introductory OBS Course for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unleash-calmness-asmr-titles-to-try-out-for-2024/"><u>Unleash Calmness ASMR Titles to Try Out for 2024</u></a></li>
-<li><a href="https://techidaily.com/useful-ways-that-can-help-to-effectively-recover-deleted-files-from-infinix-smart-7-hd-by-fonelab-android-recover-data/"><u>Useful ways that can help to effectively recover deleted files from Infinix Smart 7 HD</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/trategies-for-stumbling-upon-covert-youtube-videos/"><u>[New] Strategies for Stumbling Upon Covert YouTube Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-the-rapid-reverse-how-to-flip-your-stream-sides/"><u>[Updated] In 2024, The Rapid Reverse How to Flip Your Stream-Sides</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-profit-potential-per-viewer-youtubes-financial-dynamics/"><u>[Updated] Profit Potential Per Viewer YouTube's Financial Dynamics</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-learn-snapchats-video-mirror-magic/"><u>2024 Approved Learn Snapchat's Video Mirror Magic</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-the-ultimate-review-of-wirecast-and-similar-programs/"><u>2024 Approved The Ultimate Review of WireCast & Similar Programs</u></a></li>
+<li><a href="https://common-error.techidaily.com/comprehensive-solutions-for-usb-connection-issues-on-your-windows-pc/"><u>Comprehensive Solutions for USB Connection Issues on Your Windows PC</u></a></li>
+<li><a href="https://discover-best.techidaily.com/driven-with-cookiebot-technology-optimizing-your-sites-performance/"><u>Driven with Cookiebot Technology - Optimizing Your Site's Performance</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/echoes-of-yesteryear-a-digital-compilation-of-ringtones/"><u>Echoes of Yesteryear A Digital Compilation of Ringtones</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ce-visibility-essential-youtube-seo-strategies-revealed/"><u>Enhance Visibility Essential YouTube SEO Strategies Revealed</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-a-closer-look-at-earnings-comparing-dailymotion-and-youtube-revenues/"><u>In 2024, A Closer Look at Earnings Comparing Dailymotion and YouTube Revenues</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-speedsters-top-windows-photos-viewer/"><u>In 2024, Speedster's Top Windows Photos Viewer</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-update-easy-access-to-your-shorts/"><u>In 2024, YouTube Update Easy Access to Your Shorts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/er-content-creators-colloquy/"><u>Premier Content Creators Colloquy</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-essential-guide-to-the-lenovo-ideapad-laptop-range-exploring-design-meets-usability/"><u>The Essential Guide to the Lenovo IdeaPad Laptop Range: Exploring Design Meets Usability</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-video-editing-on-chromebook-top-recommendations-for-2024/"><u>Updated Video Editing on Chromebook Top Recommendations for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/beginners-guide-to-making-money-on-youtubers/"><u>Your Beginner's Guide to Making Money on YouTubers</u></a></li>
 </ul></div>
 

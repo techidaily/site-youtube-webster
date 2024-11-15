@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Filmmaker's Guide to Selecting Excellent Lenses\""
-date: 2024-11-02T08:07:00.587Z
-updated: 2024-11-05T06:20:20.172Z
+date: 2024-11-13T18:43:03.795Z
+updated: 2024-11-15T17:50:59.942Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,13 @@ We have explained the differences between Fixed lens and Zoom lens and advantage
 
 Before we get into the recommendations here is a little background information on lenses in general:
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Beginner's Guide to Aperture and F-Stops
 
 In order to be able to select the lens you'll be using to record your YouTube videos, you first need to understand a few very basic concepts, such as aperture or f-stops.
@@ -58,10 +65,10 @@ F-stops are written like ‘f/1.8’ or ‘f/4’ on your lens. For more informa
 **F-stops** or f-numbers indicate how open the aperture is, so for example if your camera is displaying f/32 value it means that your camera is letting very little light to get through to the camera's sensor. The f-number depends on a few other parameters such as shutter speed, exposure or ISO values. Large apertures provide a shallow depth of field which creates a smooth and artistic background blur, while a small aperture enables you to keep both the background and the foreground of your shot in focus.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Types of Camera Lenses
@@ -89,10 +96,10 @@ Recording videos of vast open spaces, breathtaking vistas or beautiful city view
 YouTubers who are working on demanding projects can try to solve their troubles by using a specialist lens. Soft-focus lenses can help you take better portraits while tilt-shift lenses allow you to control the perspective. However, it is hard to imagine a scenario in which you'll need a specialist lense if you are just starting out since even experienced videographers only use special lenses when they have absolutely no better way to record a scene.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Recommended Best Camera Lenses for Shooting YouTube Videos
@@ -133,10 +140,10 @@ Recording **moving objects** from a distance requires you to have a lens that al
 ![camera lens rec02](https://images.wondershare.com/filmora/article-images/camera-lens-rec02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The Tamron's standard zoom lens offers good value at a very reasonable price. The maximum aperture is f/2.8, while the minimum aperture value this lens supports is f/32, which means that its users can easily experiment with different **depths of field.** The lens is **compatible with most Canon cameras** so if you have a camera from another manufacturer you may have to use the lens adapter in order to mount it onto your camera. Like most standard zoom lenses, Tamron SP AF model is **highly versatile** and you can use it to record **a wide range of different scenes**.
@@ -150,13 +157,6 @@ All Sony's APS-C format E mount cameras are compatible with this multi-purpose l
 If you are using a 4k camera to shoot your YouTube video, check out [best camera lens for 4k professional production.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -179,24 +179,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-best-screen-grabber-gadgets-for-youtube-channels/"><u>[New] 2024 Approved Best Screen Grabber Gadgets for YouTube Channels</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-efficiently-record-your-screen-with-io-screen-recorder/"><u>[New] 2024 Approved Efficiently Record Your Screen with IO Screen Recorder</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-expand-audiences-quickly-using-short-form-content/"><u>[New] 2024 Approved Expand Audiences Quickly Using Short Form Content</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-from-one-off-to-firm-follower-an-ethical-approach/"><u>[New] 2024 Approved From One-Off to Firm Follower An Ethical Approach</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-mastering-youtube-dimensions-a-comprehensive-guide/"><u>[New] 2024 Approved Mastering YouTube Dimensions A Comprehensive Guide</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-mastering-youtube-videos-your-comprehensive-tutorial/"><u>[New] 2024 Approved Mastering YouTube Videos Your Comprehensive Tutorial</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-expanding-your-instagram-video-footprint-practical-tips/"><u>[Updated] Expanding Your Instagram Video Footprint Practical Tips</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-iphone-voice-memo-recording-guide-for-2024/"><u>[Updated] IPhone Voice Memo Recording Guide for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-transform-photo-editing-with-top-lunapic-hacks/"><u>[Updated] Transform Photo Editing with Top LunaPic Hacks</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/boost-image-size-retain-resolution/"><u>Boost Image Size, Retain Resolution</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/critical-inquiry-checklist-for-potential-electric-vehicle-buyers/"><u>Critical Inquiry Checklist for Potential Electric Vehicle Buyers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/dive-into-immersive-role-playing-with-the-elder-scrolls-v-skyrim-reviewed-for-the-switch-platform/"><u>Dive Into Immersive Role-Playing with The Elder Scrolls V: Skyrim - Reviewed for the Switch Platform</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-digital-duplicates-to-increase-youtube-exposure/"><u>Dodge Digital Duplicates to Increase YouTube Exposure</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-that-make-a-difference-your-20-best-choices/"><u>Fonts That Make a Difference Your 20 Best Choices</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-7-cameras-to-improve-your-youtube-vlogging-experience/"><u>Ideal 7 Cameras To Improve Your YouTube Vlogging Experience</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-adaptation-video-size-to-mac-screen-proportion-for-2024/"><u>Quick Adaptation Video Size to Mac Screen Proportion for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/1-video-cameras-under-500-a-frugal-filmmakers-list/"><u>Top 11 Video Cameras Under $500 A Frugal Filmmaker's List</u></a></li>
-<li><a href="https://win-outstanding.techidaily.com/top-free-substitutes-for-windows-11-explained-your-ultimate-reference/"><u>Top Free Substitutes for Windows 11 Explained: Your Ultimate Reference</u></a></li>
-<li><a href="https://win-answers.techidaily.com/winning-the-battle-successful-minecraft-setup-for-windows-11-users/"><u>Winning the Battle: Successful Minecraft Setup for Windows 11 Users</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-arctic-athleticism-winter-olympics-spotlight-on-snowboard-cross-stars/"><u>[New] 2024 Approved Arctic Athleticism Winter Olympics Spotlight on Snowboard Cross Stars</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/aily-vlogging-ideas-what-to-talk-about-while-vlogging-in-2024/"><u>[New] Daily Vlogging Ideas What to Talk About While Vlogging, In 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-seamless-streaming-5-chrome-tools-to-secure-fb-videos/"><u>[New] In 2024, Seamless Streaming 5 Chrome Tools to Secure FB Videos</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-efficient-techniques-for-capturing-google-voice-calls/"><u>[Updated] 2024 Approved Efficient Techniques for Capturing Google Voice Calls</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-5-best-sites-for-quick-templates-on-youtube-for-2024/"><u>[Updated] 5 Best Sites for Quick Templates on YouTube for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-circular-engine-kit/"><u>[Updated] Circular Engine Kit</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-cutting-edge-strategies-for-dynamic-igtv-backgrounds-for-2024/"><u>[Updated] Cutting-Edge Strategies for Dynamic IGTV Backgrounds for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-accessible-video-ideas-the-simplest-10-concepts-everyone-can-learn-to-make/"><u>[Updated] In 2024, Accessible Video Ideas The Simplest 10 Concepts Everyone Can Learn to Make</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-essential-knowledge-for-engaging-with-asmr-videos/"><u>[Updated] In 2024, Essential Knowledge for Engaging with ASMR Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-free-mcb-theme-images-templates-and-more/"><u>[Updated] In 2024, Free MCB Theme Images, Templates & More</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-unplugged-entertainment-essential-free-apps-for-offline-playing/"><u>[Updated] Unplugged Entertainment Essential Free Apps for Offline Playing</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/90861241-2024-approved-economical-growth-methodology-subscribe-now/"><u>2024 Approved Economical Growth Methodology - Subscribe Now!</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-tech-tips-swiftly-sending-videos-as-shorts-on-digital-platforms/"><u>2024 Approved Tech Tips Swiftly Sending Videos as Shorts on Digital Platforms</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/our-youtube-live-with-these-7-powerful-live-streaming-apps-iosandroid-os-for-2024/"><u>Ace Your YouTube LIVE with These 7 Powerful Live Streaming Apps (iOS/Android OS) for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-fix-frequent-crashes-in-thunder-tier-one-gaming-on-your-computer/"><u>How to Fix Frequent Crashes in Thunder Tier One Gaming on Your Computer</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-the-ultimate-guide-to-easy-content-making-10-basic-youtube-videos/"><u>In 2024, The Ultimate Guide to Easy Content Making 10 Basic YouTube Videos</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unveiling-the-secrets-of-montage-image-assembly/"><u>In 2024, Unveiling the Secrets of Montage Image Assembly</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unmasking-the-scope-of-non-google-augmented-reality-accessories-for-2024/"><u>Unmasking the Scope of Non-Google Augmented Reality Accessories for 2024</u></a></li>
+<li><a href="https://discover-data.techidaily.com/upgrading-your-pcs-speed-m2-ssd-upgrades-without-the-need-to-reinstall-windows/"><u>Upgrading Your PC's Speed: M.2 SSD Upgrades Without the Need to Reinstall Windows</u></a></li>
 </ul></div>
 

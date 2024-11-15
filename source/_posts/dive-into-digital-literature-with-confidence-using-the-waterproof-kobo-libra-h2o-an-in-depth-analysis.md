@@ -1,7 +1,7 @@
 ---
 title: Dive Into Digital Literature with Confidence Using the Waterproof Kobo Libra H2O - An In-Depth Analysis
-date: 2024-11-04T01:16:05.877Z
-updated: 2024-11-05T14:46:04.379Z
+date: 2024-11-14T17:45:28.015Z
+updated: 2024-11-15T18:28:12.359Z
 categories:
   - BestProducts
 description: This Article Describes Dive Into Digital Literature with Confidence Using the Waterproof Kobo Libra H2O - An In-Depth Analysis
@@ -80,14 +80,14 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/YQBwL9wFHphVzIqJYlYwd0J2OYU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-2-7e358ac09a2c48fbb0f6aaec1e9381e9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Andy Zahn / Lifewire
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Story: Engaging and well written
 
@@ -101,13 +101,6 @@ Andy Zahn / Lifewire
 
  Cyberpunk’s gameplay is very much a case of sharply contrasting highs and lows.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Gameplay: Fun, but deeply flawed
 
  As with the game as a whole, Cyberpunk’s gameplay is very much a case of sharply contrasting highs and lows. It does some things very well and stumbles bafflingly in other regards. The game mostly takes place in the first person, with third-person view being an option while driving.
@@ -115,13 +108,6 @@ Andy Zahn / Lifewire
  Driving is not what I’d call a perfect experience in either third or first-person modes. Though beautifully designed and widely varied, vehicles tend to have little weight to them, and you really have to work to avoid careening about the road, running over pedestrians, and attracting the tepid attention of the police. They all also seem to be in desperate need of a new set of brakes, and to make matters worse the AI for the NPC vehicles is very simple indeed. Park your car with a bit of it sticking out into the road and a line will quickly build up as these simpletons exhibit infinite patience rather than simply go around.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/NwK7qVv8XDmr_i0b9XzULnmPZ9Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-5-664cae2e38304560a7d6fc3ce2a84335.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
 
@@ -136,6 +122,13 @@ Andy Zahn / Lifewire
  If you want to avoid conflict and don’t want to slow down for stupid drivers, your best bet is a motorcycle, and it is indeed a blast to go zipping through the streets dodging through gaps in traffic. For some reason, motorcycles control much more reliably than cars, and a cynical mind might suppose that more care was put into motorcycle control due to Cyberpunk featuring the brand of motorcycle owned by a major celebrity who plays a part in the game’s story.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/ByBdwophc_bSfdD-P0CfbqJgbwY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-7-e6be7e2c1ae24ac3a1c5dbfd4a5b595a.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
 
@@ -152,10 +145,10 @@ Andy Zahn / Lifewire
  Driving out of a garage for the first time into a canyon of towering sci-fi skyscrapers bedecked in holograms and neon is one of those awe-inspiring moments that come only fleetingly in video games.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Customization: Lots to tinker with
@@ -177,10 +170,10 @@ Andy Zahn / Lifewire
 At launch, Cyberpunk 2077 is something of a bug-riddled mess.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Bugs: Welcome to Glitch City
@@ -195,14 +188,20 @@ At launch, Cyberpunk 2077 is something of a bug-riddled mess.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/JM3cD1pX6maee1yiQYZnSgc-9pw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-4-624da4fa8225434eb59ba999a53dafd6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Andy Zahn / Lifewire
+
+<!-- affiliate ads begin -->
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Mature content: Pushing the boundaries
 
@@ -211,19 +210,6 @@ Andy Zahn / Lifewire
  The truth is that Cyberpunk is a role-playing game in the truest sense of the word. While you will never be able to completely dodge potentially offensive content, you can play the game in a way that reflects your own morality and ideals. A great example of this potential for choice is alcohol, which you will be proffered on numerous occasions throughout the game. Even though it is embedded into the story you almost always have the option to refuse, though as in real life the peer pressure is there and the choice may affect how people regard you.
 
  The high quality of storytelling is probably the main highlight of the game, next to the insane graphical fidelity.
-
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Performance: Making strong GPUs cry
 
@@ -265,9 +251,23 @@ Andy Zahn / Lifewire
 
 Andy Zahn / Lifewire
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Multiplayer: Absent for the moment
 
  At launch and for long after Cyberpunk 2077 will be a single-player game. However, CDPR has said that a few years down the road they will be launching a multiplayer mode, and a lot of people are looking forward to that. Of course, it is impossible to predict if this will be any good or if some circumstances might prevent its release, but there is a lot of potential for Cyberpunk to become a better experience when Night City goes online. With that said, CDPR really needs to fix the single-player game before they even think about launching multiplayer.
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Price: A refreshing lack of micro-transactions
 
@@ -311,20 +311,22 @@ Andy Zahn / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-how-to-maximize-video-reach-with-effective-tags-titles/"><u>[New] 2024 Approved How to Maximize Video Reach with Effective Tags, Titles</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-how-to-delete-or-deactivate-an-instagram-account-permanently-for-2024/"><u>[New] How to Delete or Deactivate An Instagram Account Permanently for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/r-beasts-financial-reach/"><u>[New] Mr. Beast's Financial Reach</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-transcribe-a-youtube-video-for-free/"><u>[Updated] 2024 Approved How to Transcribe a YouTube Video for FREE</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-launch-free-youtube-events-a-step-by-step-guide/"><u>[Updated] 2024 Approved Launch Free Youtube Events A Step-by-Step Guide</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-illuminate-your-recording-setup-how-to-prevent-a-dark-screen-on-obs/"><u>[Updated] Illuminate Your Recording Setup How to Prevent a Dark Screen on OBS</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-top-20-free-mobile-apps-for-downloading-youtube-playlists/"><u>[Updated] In 2024, Top 20 Free Mobile Apps for Downloading YouTube Playlists</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-mastering-quick-youtube-comment-removal-techniques-for-2024/"><u>[Updated] Mastering Quick YouTube Comment Removal Techniques for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-peering-into-popularity-instagram-analytics-for-you/"><u>2024 Approved Peering Into Popularity Instagram Analytics for You</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-the-analytical-approach-to-youtube-content-performance/"><u>In 2024, The Analytical Approach to YouTube Content Performance</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Motorola Moto G73 5G | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723212293479-mouse-not-responding-fix-it-fast/"><u>Mouse Not Responding? Fix It Fast!</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/spectacular-screen-showdown-sj6-vs-the-4k-innovators-of-xiaomi-for-2024/"><u>Spectacular Screen Showdown SJ6 Vs. The 4K Innovators of Xiaomi for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/speedy-system-boost-streamlined-installation-of-new-acer-drivers-in-win10/"><u>Speedy System Boost: Streamlined Installation of New Acer Drivers in Win10</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ssence-of-earnings-a-3-step-expedient-to-measure-your-youtube-profitability/"><u>The Essence of Earnings A 3-Step Expedient to Measure Your YouTube Profitability</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-tech-titans-select-top-10-video-capture-apps/"><u>[New] 2024 Approved Tech Titans Select Top 10 Video Capture Apps</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-30plus-futuristic-metaverse-musings-arvr/"><u>[New] 30+ Futuristic Metaverse Musings [AR/VR]</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ree-techniques-for-turning-youtube-watching-into-a-screenshot/"><u>[New] Free Techniques for Turning YouTube Watching Into a Screenshot</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-guide-to-top-frame-rates-in-slow-motion-video-production/"><u>[New] Guide to Top Frame Rates in Slow-Motion Video Production</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-discover-10-swift-growing-youtube-sources-for-inspiration/"><u>[New] In 2024, Discover 10 Swift-Growing YouTube Sources for Inspiration</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-blended-vocalists-one-platform-at-a-time/"><u>[Updated] 2024 Approved Blended Vocalists, One Platform at a Time</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-extract-unlimited-photographic-content-from-esteemed-4-video-channels/"><u>[Updated] In 2024, Extract Unlimited Photographic Content From Esteemed 4 Video Channels</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-no-delays-you-can-now-see-your-shorts/"><u>[Updated] In 2024, No Delays! You Can Now See Your Shorts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-youtube-on-your-iphoneipad-the-ultimate-downloading-guide/"><u>[Updated] In 2024, Youtube on Your iPhone/iPad The Ultimate Downloading Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-streamline-your-slides-with-these-4-youtube-video-inclusion-methods/"><u>[Updated] Streamline Your Slides with These 4 YouTube Video Inclusion Methods</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-subscriber-supreme-ranked-global-youtube-personalities-by-numbers/"><u>2024 Approved Subscriber Supreme Ranked Global YouTube Personalities by Numbers</u></a></li>
+<li><a href="https://blog-min.techidaily.com/8-ways-to-transfer-photos-from-vivo-v29-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>8 Ways to Transfer Photos from Vivo V29 to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/dive-deep-into-obs-advanced-techniques-for-game-capture-for-2024/"><u>Dive Deep Into OBS Advanced Techniques for Game Capture for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/get-your-favorite-travel-gear-with-a-twist-iphoneipad-cases-power-chargers-and-apple-watch-straps-now-just-20-off-dont-miss-this-limited-time-offer/"><u>Get Your Favorite Travel Gear with a Twist! IPhone/iPad Cases, Power Chargers & Apple Watch Straps Now Just 20% Off – Don't Miss This Limited-Time Offer !</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-how-to-tailor-youtube-thumbnails-for-maximum-impact/"><u>In 2024, How to Tailor YouTube Thumbnails for Maximum Impact</u></a></li>
+<li><a href="https://driver-download.techidaily.com/latest-nvidia-geforce-rtx-3080-drivers-for-windows-1087-free-download/"><u>Latest NVIDIA GeForce RTX 3080 Drivers for Windows 10/8/7 – Free Download</u></a></li>
+<li><a href="https://win-forum.techidaily.com/understanding-social-platform-leaders-facebook-twitter-instagram-and-youtube-breakdown/"><u>Understanding Social Platform Leaders: Facebook, Twitter, Instagram & Youtube Breakdown</u></a></li>
 </ul></div>
 

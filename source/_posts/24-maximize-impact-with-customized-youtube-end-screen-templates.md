@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Maximize Impact with Customized YouTube End Screen Templates"
-date: 2024-08-31T18:47:33.273Z
-updated: 2024-09-01T18:47:33.273Z
+date: 2024-11-09T21:28:41.420Z
+updated: 2024-11-15T18:12:29.432Z
 tags:
   - ai video
   - ai youtube
@@ -85,15 +85,36 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -123,20 +144,24 @@ If you're looking for other options to design your end screen, make sure to also
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,8 +170,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-identifying-high-impact-keywords-for-effective-youtube-marketing/"><u>[New] In 2024, Identifying High-Impact Keywords for Effective YouTube Marketing</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nfinite-quit-strategy-for-youtube-short-video-clips/"><u>[New] Infinite Quit Strategy for YouTube Short Video Clips</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-revolutionize-online-sessions-with-essential-zoom-transformations/"><u>[New] Revolutionize Online Sessions with Essential Zoom Transformations</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-digital-dreamland-gamers-income-evolution/"><u>[Updated] Digital Dreamland Gamers' Income Evolution</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-dish-to-screen-your-recipe-video-blueprint/"><u>[Updated] In 2024, Dish to Screen Your Recipe Video Blueprint</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-taste-titans-must-follow-culinary-creators-online/"><u>[Updated] In 2024, Taste Titans Must-Follow Culinary Creators Online</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-transforming-challenges-into-triumphs-with-these-30-tips/"><u>[Updated] Transforming Challenges Into Triumphs with These 30 Tips</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-the-numbers-game-estimating-income-from-viral-content/"><u>2024 Approved The Numbers Game Estimating Income From Viral Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/pirational-winter-bgs-to-heat-your-videos-for-2024/"><u>5 Inspirational Winter Bgs to Heat Your Videos for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/camera-apps-to-shoot-and-record-videos-on-iphone-and-andriod-phones-for-2024/"><u>Best Camera Apps to Shoot and Record Videos on iPhone and Andriod Phones for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/youtube-money-calculators-calculate-youtube-money/"><u>Free YouTube Money Calculators-Calculate YouTube Money</u></a></li>
+<li><a href="https://techidaily.com/how-to-exit-dfu-mode-on-apple-iphone-6s-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Exit DFU Mode on Apple iPhone 6s? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-stolen-apple-iphone-11-in-different-conditionsin-drfone-by-drfone-ios/"><u>How To Unlock Stolen Apple iPhone 11 In Different Conditionsin | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-nokia-c210-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Nokia C210 | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-discover-leading-fonts-boosting-your-youtube-thumbnails/"><u>In 2024, Discover Leading Fonts Boosting Your YouTube Thumbnails</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-oppo-reno-11-pro-5g-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Oppo Reno 11 Pro 5G Lock Screen Password?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-vivo-x90s-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Vivo X90S Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://review-topics.techidaily.com/infinix-bypass-tools-to-bypass-lock-screen-infinix-hot-30i-by-drfone-android-unlock-android-unlock/"><u>Infinix Bypass Tools to Bypass Lock Screen(Infinix Hot 30i)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-10-premium-luts-available-for-free-for-2024/"><u>Top 10 Premium LUTs, Available for FREE for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "\"Master the Motion  Personalized Animation Techniques\""
-date: 2024-08-31T18:46:24.636Z
-updated: 2024-09-01T18:46:24.636Z
+date: 2024-11-08T19:13:55.319Z
+updated: 2024-11-15T17:12:36.712Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,13 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
 
 Lynda isn’t free, but the 10-day free trial period is definitely long enough for you to watch this two-hour course.
@@ -57,15 +64,23 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
 
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **[Video Copilot](http://www.videocopilot.net/)**
 
 This site has a huge number of free After Effects tutorials. There are basic introductory lessons, and really advanced classes on creating custom cinematic FX, like explosions. There’s even a playlist on title design, which will be useful for anyone looking to create an intro sequence for their videos.
@@ -73,22 +88,23 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -97,4 +113,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-mastering-mobile-camera-best-android-practices-for-2024/"><u>[New] Mastering Mobile Camera Best Android Practices for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-from-dull-to-delightful-how-to-craft-standout-youtube-thumbnails/"><u>[Updated] From Dull to Delightful How To Craft Standout YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-shorts-issue-fixed-now-visible-on-youtube/"><u>[Updated] In 2024, Shorts Issue Fixed – Now Visible on YouTube</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-twitch-broadcast-excellence-the-ultimate-5-guide/"><u>[Updated] In 2024, Twitch Broadcast Excellence The Ultimate 5 Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-mastering-youtube-playlist-creation-tips-and-tricks-for-2024/"><u>[Updated] Mastering YouTube Playlist Creation Tips and Tricks for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-subscriber-glory-the-play-button-and-accolades-for-maker/"><u>[Updated] Subscriber Glory The Play Button & Accolades for Maker</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-1-facebook-playlist-top-8-videos-for-today-for-2024/"><u>[Updated] The #1 Facebook Playlist Top 8 Videos for Today for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-vimeo-unpacked-dedicated-to-video-showcase-and-sharing/"><u>[Updated] Vimeo Unpacked Dedicated to Video Showcase and Sharing</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-ideal-ios-platform-for-psp-emulation-our-top-5-list-of-2023/"><u>2024 Approved Ideal iOS Platform for PSP Emulation - Our Top 5 List of 2023</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-mastering-close-up-views-in-minecraft/"><u>2024 Approved Mastering Close-Up Views in Minecraft</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-streamlining-youtube-sharing-with-google-account-accessibility/"><u>2024 Approved Streamlining YouTube Sharing with Google Account Accessibility</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/oes-t-series-generate-revenue/"><u>How Does T-Series Generate Revenue?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/in-depth-guide-and-examination-of-the-netgear-ex37er-wi-fi-booster-with-ac750-specs/"><u>In-Depth Guide and Examination of the Netgear EX37er Wi-Fi Booster with AC750 Specs</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-8-best-multi-subtitles-translators-you-shouldnt-miss-for-2024/"><u>New 8 Best Multi-Subtitles Translators You Shouldnt Miss for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/above-the-noise-must-have-video-seo-tools-for-2024/"><u>Rise Above the Noise – Must-Have Video SEO Tools for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/soundscape-adjustments-fading-volume-with-precision-in-logic-pro-for-2024/"><u>Soundscape Adjustments Fading Volume with Precision in Logic Pro for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/king-the-secrets-of-effective-youtube-thumbnails/"><u>Unlocking the Secrets of Effective YouTube Thumbnails</u></a></li>
+</ul></div>
 

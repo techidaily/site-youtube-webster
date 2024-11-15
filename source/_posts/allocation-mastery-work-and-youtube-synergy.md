@@ -1,7 +1,7 @@
 ---
 title: "\"Time Allocation Mastery  Work & YouTube Synergy\""
-date: 2024-11-03T06:04:47.581Z
-updated: 2024-11-04T21:06:17.846Z
+date: 2024-11-12T17:52:29.831Z
+updated: 2024-11-15T16:58:27.028Z
 tags:
   - ai video
   - ai youtube
@@ -51,15 +51,22 @@ So, to save you and your viewers some of the same struggles, here are 5 tips I r
 
 I know what you’re thinking - “What?! That’s insane.” The first piece of advice I received about YouTube was to create a schedule of days to post so your viewers look forward to videos. That just doesn’t work for me. Whenever I became too busy with work, I couldn’t stick to my typical Tuesday or Thursday schedule. I think it’s best to focus on how many times you can post in a week rather than a specific day. I try to post at least once a week and that’s my goal. You can always increase as your workload gets lighter or you when you are able to do YouTube full-time.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2. Keep track of all your ideas in one notebook planner
 
 A notebook planner is essential for keeping my life organized and on track. When I first started my channel, I had a separate planner just for my YouTube videos – this didn’t work cause I never looked at it. It worked best when I kept track of my entire life, including YouTube, in one planner since I look at it every day. Then I could also see which days I wanted to post a video or see what topics worked best around specific holidays and such.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3. Check the weather forecast in advance
@@ -67,10 +74,10 @@ A notebook planner is essential for keeping my life organized and on track. When
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4. Create 3-5 videos in advance
@@ -78,10 +85,10 @@ When starting a YouTube channel, many YouTubers like myself don’t have the mon
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5. Be creative! Create audios (audio-only videos)
@@ -89,13 +96,6 @@ This week I am on PTO (paid time off) which has given me a lot more time to film
 In the event that life gets too crazy, it’s perfectly fine to do just audio. Many of us are always on the go which means it’s the perfect time to listen to great advice while driving to work, waiting on the bus, or working at the gym. Someone out there would love to hear your advice. I started to do this with my Tea Time Talk Audios and the response was great.
 
 I hope these tips can help you on your journey with YouTube while still working a full-time job.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Make a YouTube Video with Wondershare Filmora
 
@@ -128,19 +128,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-pacing-your-content-the-importance-of-regularity-in-a-successful-youtube-channel/"><u>[New] 2024 Approved Pacing Your Content The Importance of Regularity in a Successful YouTube Channel</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-smartphone-camera-accessories-vloggers-should-try-to-improve-recording/"><u>[New] 2024 Approved Smartphone Camera Accessories Vloggers Should Try to Improve Recording</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-the-mixologists-approach-to-youtube-music/"><u>[New] 2024 Approved The Mixologist's Approach to YouTube Music</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-the-secret-to-understanding-your-youtube-fans/"><u>[New] 2024 Approved The Secret to Understanding Your YouTube Fans</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-the-ultimate-playlist-in-10-seconds-youtube-shorts-explained/"><u>[New] 2024 Approved The Ultimate Playlist in 10 Seconds YouTube Shorts Explained</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-iron-out-instability-in-iphone-videography-effortlessly/"><u>[New] Iron Out Instability in iPhone Videography Effortlessly</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-pioneering-play-integrating-vr-in-recreation/"><u>2024 Approved Pioneering Play Integrating VR in Recreation</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/cing-youtube-videos-proper-lighting-methods/"><u>Enhancing YouTube Videos Proper Lighting Methods</u></a></li>
-<li><a href="https://games-able.techidaily.com/essential-gear-for-the-next-level-of-ps-vr2-gaming/"><u>Essential Gear for the Next Level of PS VR2 Gaming</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-apple-iphone-15-plus-for-parents-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 10 Telegram Spy Tools On Apple iPhone 15 Plus for Parents | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/instantaneous-facial-obscuring-technique/"><u>Instantaneous Facial Obscuring Technique</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/top-ranked-alternatives-the-ultimate-guide-to-smart-thermostats-beyond-ecobreeze-and-amazon-products/"><u>Top-Ranked Alternatives: The Ultimate Guide to Smart Thermostats Beyond EcoBreeze and Amazon Products</u></a></li>
-<li><a href="https://some-tips.techidaily.com/transformer-un-fichier-aiff-en-format-wmv-gratuitement-facile-et-rapide-avec-movavi/"><u>Transformer Un Fichier AIFF en Format WMV Gratuitement - Facile Et Rapide Avec Movavi</u></a></li>
-<li><a href="https://win-able.techidaily.com/troubleshooting-and-fixes-for-common-crashes-in-chivalry-ii/"><u>Troubleshooting and Fixes for Common Crashes in Chivalry II</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-harmonic-hub-curating-exceptional-dj-visual-downloads/"><u>[Updated] 2024 Approved Harmonic Hub Curating Exceptional DJ Visual Downloads</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-ultimate-screen-capture-review-obs-vs-fraps/"><u>[Updated] 2024 Approved Ultimate Screen Capture Review OBS vs Fraps</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-comparing-360-degree-captures-and-full-immersion-media/"><u>[Updated] Comparing 360-Degree Captures and Full Immersion Media</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-how-to-edit-videos-with-vimeo-create/"><u>[Updated] How to Edit Videos with Vimeo Create?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-unleash-your-creative-vision-with-youtubes-filmmaking-courses/"><u>[Updated] In 2024, Unleash Your Creative Vision with YouTube's Filmmaking Courses</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ral-exercise-routines-to-keep-your-channel-thriving/"><u>10 Viral Exercise Routines to Keep Your Channel Thriving</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/advanced-tech-insights-from-tom-a-trusted-source-for-hardware-enthusiasts/"><u>Advanced Tech Insights From Tom: A Trusted Source for Hardware Enthusiasts</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-samsung-galaxy-s24-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Samsung Galaxy S24 Lock Screen Password?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-maximize-engagement-with-proper-youtube-video-dimensions/"><u>In 2024, Maximize Engagement with Proper YouTube Video Dimensions</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/lost-track-of-your-latest-excel-spreadsheets-what-happened/"><u>Lost Track of Your Latest Excel Spreadsheets – What Happened?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ating-backwards-youtubes-way-to-rearrange-watch-queue/"><u>Navigating Backwards YouTube’s Way to Rearrange Watch Queue</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/social-media-strategists-guide-top-10-ig-video-editing-apps/"><u>Social Media Strategists' Guide Top 10 IG Video Editing Apps</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ltimate-manual-for-youtube-playlist-reordering-for-2024/"><u>The Ultimate Manual for YouTube Playlist Reordering for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-the-secrets-of-docoolers-12mp-usb-device-does-it-deliver-exceptional-quality/"><u>Unlocking the Secrets of Docooler's 12MP USB Device - Does It Deliver Exceptional Quality?</u></a></li>
 </ul></div>
 

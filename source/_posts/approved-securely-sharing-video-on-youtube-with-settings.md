@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Securely Sharing Video on YouTube with Settings\""
-date: 2024-08-31T18:47:53.809Z
-updated: 2024-09-01T18:47:53.809Z
+date: 2024-11-09T16:35:23.358Z
+updated: 2024-11-15T18:27:18.708Z
 tags:
   - ai video
   - ai youtube
@@ -70,6 +70,13 @@ thumbnail: https://thmb.techidaily.com/1f3c8cd99c8239124d3f11907b2c70b41c033994f
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
@@ -78,10 +85,6 @@ thumbnail: https://thmb.techidaily.com/1f3c8cd99c8239124d3f11907b2c70b41c033994f
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ## Part 3: Sharing Private Videos
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
@@ -89,39 +92,45 @@ thumbnail: https://thmb.techidaily.com/1f3c8cd99c8239124d3f11907b2c70b41c033994f
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 <!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Conclusion
 
  And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -130,4 +139,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-ideal-indoor-delights-mastering-mobile-lassitude/"><u>[New] Ideal Indoor Delights Mastering Mobile Lassitude</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-a-comparative-analysis-androids-finest-video-downloaders/"><u>[New] In 2024, A Comparative Analysis Android's Finest Video Downloaders</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-are-there-legal-constraints-in-capturing-online-video-screenshots/"><u>[New] In 2024, Are There Legal Constraints in Capturing Online Video Screenshots?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-richest-rewards-for-creators/"><u>[New] In 2024, Richest Rewards for Creators</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-innovative-ways-to-record-and-tweak-videos-using-the-adobe-connect-platform/"><u>[New] Innovative Ways to Record & Tweak Videos Using the Adobe Connect Platform</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-professional-tips-for-youtube-and-twitch-streamers-using-obs-effectively-for-2024/"><u>[New] Professional Tips for YouTube & Twitch Streamers Using OBS Effectively for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ecure-and-simple-grab-your-desired-youtube-cover-at-no-charge/"><u>[New] Secure & Simple Grab Your Desired YouTube Cover at No Charge</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/tructuring-complex-topics-in-youtube-content-a-chapter-by-chapter-approach/"><u>[New] Structuring Complex Topics in YouTube Content A Chapter by Chapter Approach</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/op-8-youtube-thumbnail-secrets-for-high-traffic-videos-for-2024/"><u>[New] Top 8 YouTube Thumbnail Secrets for High Traffic Videos for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rick-automated-audiences-into-authentic-engagement/"><u>[New] Trick Automated Audiences Into Authentic Engagement</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-advanced-guide-to-documenting-online-sport-spectacles/"><u>[Updated] 2024 Approved Advanced Guide to Documenting Online Sport Spectacles</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-roundabout-viewpoint-versus-threefold-imaging/"><u>[Updated] Roundabout Viewpoint Versus Threefold Imaging</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-tapping-into-youtubes-affiliate-income-streams-for-2024/"><u>[Updated] Tapping Into YouTube's Affiliate Income Streams for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-dji-flight-setups-starter-package-advanced-configs-4k-professional-edition/"><u>2024 Approved DJI Flight Setups Starter Package, Advanced Configs, 4K Professional Edition</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/prehensive-guide-to-earnings-from-youtube-short-videos-for-2024/"><u>A Comprehensive Guide to Earnings From YouTube Short Videos for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-perfectly-timed-instagram-content-our-list-of-the-top-8-schedulers/"><u>In 2024, Perfectly Timed Instagram Content - Our List of the Top 8 Schedulers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/up-your-game-mastering-effective-video-title-and-tag-techniques-for-2024/"><u>Step Up Your Game Mastering Effective Video Title & Tag Techniques for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-your-gionee-f3-pro-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Gionee F3 Pro Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/king-the-best-youtube-music-reactions-2023-for-2024/"><u>Unpacking the Best YouTube Music Reactions, 2023 for 2024</u></a></li>
+</ul></div>
 

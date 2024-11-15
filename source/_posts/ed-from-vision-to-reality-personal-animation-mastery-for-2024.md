@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From Vision to Reality  Personal Animation Mastery for 2024\""
-date: 2024-11-01T11:41:40.128Z
-updated: 2024-11-05T11:12:50.812Z
+date: 2024-11-10T19:26:34.446Z
+updated: 2024-11-15T16:22:44.125Z
 tags:
   - ai video
   - ai youtube
@@ -56,10 +56,10 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -69,10 +69,10 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -80,10 +80,10 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -93,10 +93,10 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -120,22 +120,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-navigating-to-the-shadows-of-youtube-videos/"><u>[New] 2024 Approved Navigating to the Shadows of YouTube Videos</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-navigating-youtube-membership-options-wisely/"><u>[New] 2024 Approved Navigating YouTube Membership Options Wisely</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-optimizing-video-visibility-with-strategic-tag-selection/"><u>[New] 2024 Approved Optimizing Video Visibility with Strategic Tag Selection</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-pro-streamers-compendium-essential-livestream-software-and-hardware-for-success/"><u>[New] 2024 Approved Pro Streamer's Compendium Essential Livestream Software and Hardware for Success</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-scripting-your-storys-visual-heartbeat-at-home/"><u>[New] 2024 Approved Scripting Your Story's Visual Heartbeat at Home</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-the-unspoken-rules-for-asmr-enthusiasts/"><u>[New] 2024 Approved The Unspoken Rules for ASMR Enthusiasts</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-the-wayfinders-guide-your-path-to-youtube-video-mastery-hub/"><u>[New] 2024 Approved The Wayfinder’s Guide Your Path to YouTube Video Mastery Hub</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-top-10-vr-videos-on-youtube-to-have-immersive-experience/"><u>[New] 2024 Approved Top 10 VR Videos on YouTube to Have Immersive Experience</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-5-best-gba-emulators-you-can-find-on-pc/"><u>[New] 5 Best GBA Emulators You Can Find on PC</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-best-mac-capturing-utilities-ranked-for-2024/"><u>[New] Best Mac Capturing Utilities Ranked for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-unveiling-gestures-in-tech-landscape-for-2024/"><u>[New] Unveiling Gestures in Tech Landscape for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-engaging-scriptwriting-techniques-for-higher-video-rankings/"><u>[Updated] 2024 Approved Engaging Scriptwriting Techniques for Higher Video Rankings</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-skyrocket-your-streaming-status-three-winning-techniques-for-newbies/"><u>2024 Approved Skyrocket Your Streaming Status Three Winning Techniques for Newbies</u></a></li>
-<li><a href="https://common-error.techidaily.com/diagnosing-and-fixing-a-malfunctioning-lenovo-keyboard-expert-tips-and-tricks/"><u>Diagnosing and Fixing a Malfunctioning Lenovo Keyboard: Expert Tips & Tricks</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-realme-12-proplus-5g-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Realme 12 Pro+ 5G Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-oppo-a78-5g-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Oppo A78 5G Devices | Dr.fone</u></a></li>
-<li><a href="https://win-exclusive.techidaily.com/masterful-techniques-for-assembling-engaging-picture-slideshows/"><u>Masterful Techniques for Assembling Engaging Picture Slideshows</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/p-formula-how-to-check-youtube-income/"><u>[3-Step Formula] How To Check YouTube Income</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-4k-lenses-compatible-with-smartphones/"><u>[New] 2024 Approved 4K Lenses Compatible with Smartphones</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-hero-session-x-vs-polaroid-cube-the-ultimate-editing-showdown/"><u>[New] Hero Session X Vs. Polaroid Cube The Ultimate Editing Showdown</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-top-3-beyond-youtube-innovative-videostreaming-communities/"><u>[New] In 2024, Top 3 Beyond Youtube Innovative Videostreaming Communities</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-diy-guide-zero-cost-youtube-intros-and-template-usage/"><u>[Updated] 2024 Approved DIY Guide Zero Cost YouTube Intros & Template Usage</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-navigate-to-noteworthy-youtube-commentaries/"><u>[Updated] In 2024, Navigate to Noteworthy YouTube Commentaries</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-pioneering-strategies-to-escalate-your-channels-popularity/"><u>[Updated] In 2024, Pioneering Strategies to Escalate Your Channel's Popularity</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-targeted-approach-carving-out-your-space-on-youtube/"><u>[Updated] In 2024, Targeted Approach Carving Out Your Space on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-navigating-multi-platform-engagement-for-content-creators-for-2024/"><u>[Updated] Navigating Multi-Platform Engagement for Content Creators for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/acoustic-indexing-sound-and-vocal-files/"><u>Acoustic Indexing Sound and Vocal Files</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/re-your-audience-the-smartphone-guide-to-youtube-thumbnails-for-2024/"><u>Capture Your Audience The Smartphone Guide to YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/uch-cash-can-you-score-for-watching-a-million-videos/"><u>How Much Cash Can You Score for Watching A Million Videos?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Sony Xperia 5 V | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-proven-pathways-for-cutting-edge-obs-studio-edits/"><u>In 2024, Proven Pathways for Cutting-Edge OBS Studio Edits</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/ultimate-guide-to-ios-photography-apps-x-8-for-2024/"><u>Ultimate Guide to iOS Photography Apps (X, 8) for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unveiling-the-best-features-of-the-compact-and-economical-propella-absolutely-here-are-five-new-best-seo-titles/"><u>Unveiling the Best Features of the Compact and Economical Propella Absolutely, Here Are Five New Best SEO Titles:</u></a></li>
 </ul></div>
 

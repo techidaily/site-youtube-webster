@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Quick Guide to Softening YouTube Videos' Surroundings"
-date: 2024-08-31T18:48:51.510Z
-updated: 2024-09-01T18:48:51.510Z
+date: 2024-11-12T17:13:20.943Z
+updated: 2024-11-15T20:48:07.706Z
 tags:
   - ai video
   - ai youtube
@@ -66,9 +66,6 @@ If you need to blur the video background after shooting, you can use some video 
 
 Filmora is one of the most widely used video editing software among YouTubers. Its user-friendly interface and tutorial guide enables green-hands to start video editing quickly. Besides, you can find many free filters, effects, and elements pre-programmed, so you can use them directly without looking for presets and templates somewhere else.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ### 1\. Add Bokeh Filter to Video in Filmora
 
 There are about 20 bokeh effects available in filters and overlays. You can find them easily by typing bokeh in the search bar in Effects.
@@ -77,14 +74,15 @@ Note: you should select **Included** to see all bokeh effects pre-programmed in 
 
 ![ Filmora Bokeh effect ](https://images.wondershare.com/filmora/article-images/filmora9-bokeh-effect.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 Double click the bokeh effect to preview the result, and if you find the bokeh effect fits the video, just drop it to the track above the video. And the bokeh filter or overlay will be applied to the video automatically.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 2\. Use Tilt-Shift Circle/Linear Effect to Blur Video Background
 
 Filmora features two tilt effects, tilt-shift circle and tilt-shift linear, which allows you to highlight people in the video, blur, and conceal the video background.
@@ -94,38 +92,59 @@ Go to the **Effects** tab and then switch to the **Utility** menu under **Includ
 ![ Filmora Tilt-Shift effects ](https://images.wondershare.com/filmora/article-images/tilt-shift-effects.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Here, I will select the **Tilt-Shift Circle** effect and drop it to the track above the video. Now, you can adjust the size, position, and intensity of the tilt-shift circle effect
 
 ![ Filmora Tilt-Shift Circle effect](https://images.wondershare.com/filmora/article-images/apply-tilt-shift-circle-effect.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You see, the video background is blurred, and the people are highlighted. Now it's your turn to download the Filmora video editor and try it yourself.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,4 +153,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-in-depth-guide-to-mobilepcmac-movie-capture/"><u>[New] 2024 Approved In-Depth Guide to Mobile/PC/Mac Movie Capture</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-the-ultimate-voice-guided-powerpoint-handbook/"><u>[New] 2024 Approved The Ultimate Voice-Guided PowerPoint Handbook</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-identifying-high-impact-keywords-for-effective-youtube-marketing/"><u>[New] In 2024, Identifying High-Impact Keywords for Effective YouTube Marketing</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-unparalleled-production-choosing-the-top-webcam-for-podcasts/"><u>[New] In 2024, Unparalleled Production Choosing the Top Webcam for Podcasts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nfinite-quit-strategy-for-youtube-short-video-clips/"><u>[New] Infinite Quit Strategy for YouTube Short Video Clips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-dish-to-screen-your-recipe-video-blueprint/"><u>[Updated] 2024 Approved Dish to Screen Your Recipe Video Blueprint</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-dish-to-screen-your-recipe-video-blueprint/"><u>[Updated] In 2024, Dish to Screen Your Recipe Video Blueprint</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-taste-titans-must-follow-culinary-creators-online/"><u>[Updated] In 2024, Taste Titans Must-Follow Culinary Creators Online</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-streamlined-techniques-blur-background-on-chrome-os-and-ios/"><u>[Updated] Streamlined Techniques Blur Background on Chrome OS & iOS</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-elevate-your-content-game-youtube-and-facebook-sync/"><u>2024 Approved Elevate Your Content Game YouTube & Facebook Sync</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-the-numbers-game-estimating-income-from-viral-content/"><u>2024 Approved The Numbers Game Estimating Income From Viral Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-unleash-your-brands-potential-with-expert-naming-guide/"><u>2024 Approved Unleash Your Brand's Potential with Expert Naming Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/camera-apps-to-shoot-and-record-videos-on-iphone-and-andriod-phones-for-2024/"><u>Best Camera Apps to Shoot and Record Videos on iPhone and Andriod Phones for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-the-ergodriven-topo-mat-a-must-have-for-healthy-productive-workspaces/"><u>Evaluating the ErgoDriven Topo Mat: A Must-Have for Healthy, Productive Workspaces</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/youtube-money-calculators-calculate-youtube-money/"><u>Free YouTube Money Calculators-Calculate YouTube Money</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-oppo-reno-10-proplus-5g-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Oppo Reno 10 Pro+ 5G Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-innovative-templates-for-zero-cost-youtube-intros/"><u>In 2024, Innovative Templates for Zero-Cost YouTube Intros</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/reset-itunes-backup-password-of-apple-iphone-se-prevention-and-solution-by-drfone-ios/"><u>Reset iTunes Backup Password Of Apple iPhone SE Prevention & Solution</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-review-discover-the-benefits-of-owning-a-netatmo-weather-station-for-connected-devices-enthusiasts/"><u>Top Review: Discover the Benefits of Owning a Netatmo Weather Station for Connected Devices Enthusiasts</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  One Arm Wonders  Keeping Photos Steady\""
-date: 2024-08-31T18:48:46.409Z
-updated: 2024-09-01T18:48:46.409Z
+date: 2024-11-09T17:16:35.299Z
+updated: 2024-11-15T18:20:13.510Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,19 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
@@ -59,8 +72,12 @@ Now you can set your smartphone upon any stable surface, like a table or a stack
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -78,9 +95,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -90,8 +104,18 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 _All of your supplies plus the finished product._
 
 **Readying your legs**
@@ -115,23 +139,23 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -140,4 +164,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-elevate-video-popularity-with-strategic-hashtags/"><u>[New] In 2024, Elevate Video Popularity with Strategic #Hashtags</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-proven-techniques-to-amplify-your-youtube-presence/"><u>[New] In 2024, Proven Techniques to Amplify Your YouTube Presence</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/astering-the-monetized-space-a-buyers-primer/"><u>[New] Mastering the Monetized Space A Buyer's Primer</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-curating-a-must-see-list-of-youtubes-top-makeup-talent/"><u>[Updated] 2024 Approved Curating a Must-See List of YouTube's Top Makeup Talent</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-flutter-free-video-conversion-the-best-alternatives-for-youtube-upload/"><u>[Updated] Flutter Free Video Conversion The Best Alternatives for YouTube Upload</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-compreran-exploration-of-giroptics-panorama/"><u>[Updated] In 2024, Compreran Exploration of Giroptic's Panorama</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-mastering-the-art-of-tiktok-closing-scenes/"><u>[Updated] In 2024, Mastering the Art of TikTok Closing Scenes</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-quick-and-painless-podcast-go-live-technique/"><u>[Updated] In 2024, The Quick and Painless Podcast Go Live Technique</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-unveiling-high-definition-with-lgs-31mu97-b-digital-cinema-screen/"><u>[Updated] In 2024, Unveiling High Definition with LG's 31MU97-B Digital Cinema Screen</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-unlock-the-potential-of-your-video-platform-growth-for-2024/"><u>[Updated] Unlock the Potential of Your Video Platform Growth for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-transformative-recording-techniques-audacity-tips-and-tricks-on-a-mac/"><u>2024 Approved Transformative Recording Techniques Audacity Tips and Tricks on a Mac</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/does-pokegoplusplus-still-work-on-apple-iphone-13ipad-drfone-by-drfone-virtual-ios/"><u>Does PokeGo++ still work on Apple iPhone 13/iPad? | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-delete-photos-from-icloud-while-keeping-them-on-your-iphone/"><u>How to Delete Photos From iCloud (While Keeping Them on Your iPhone)</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-jailbreak-icloud-locked-apple-iphone-12-mini-by-drfone-ios/"><u>How to jailbreak iCloud locked Apple iPhone 12 mini</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-pgsharp-legal-when-you-are-playing-pokemon-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Is pgsharp legal when you are playing pokemon On Poco X5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/the-adventure-companion-unveiling-panasonic-hx-a1-actioncam-for-2024/"><u>The Adventure Companion Unveiling Panasonic HX-A1 ActionCam for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/mall-screen-big-impact-effortless-businesspersonal-youtube-channel-setup/"><u>The Small Screen, Big Impact Effortless Business/Personal YouTube Channel Setup</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ear-of-gaming-earnings-revolutions-for-2024/"><u>The Year of Gaming Earnings Revolutions for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/king-high-impact-content-masterful-strategies-for-more-views/"><u>Unlocking High-Impact Content Masterful Strategies for More Views</u></a></li>
+</ul></div>
 

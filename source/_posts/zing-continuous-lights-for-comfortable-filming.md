@@ -1,7 +1,7 @@
 ---
 title: "Utilizing Continuous Lights for Comfortable Filming"
-date: 2024-08-31T18:47:41.032Z
-updated: 2024-09-01T18:47:41.032Z
+date: 2024-11-08T17:13:19.657Z
+updated: 2024-11-15T18:01:43.154Z
 tags:
   - ai video
   - ai youtube
@@ -44,11 +44,28 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Lightning Tips for Aspiring YouTube Videographers
 
 Becoming the master of light will take some time and practice, so it is crucial to remain curious and anxious to learn new tricks throughout that process if you want to continually become better. These tips will help you make the first steps on that journey.
@@ -76,22 +93,18 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
@@ -99,22 +112,23 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,4 +137,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-bulk-buy-subscribers-cost-effective-growth-strategy/"><u>[New] 2024 Approved Bulk Buy Subscribers Cost-Effective Growth Strategy</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rafting-youtube-trailers-a-filmora-guide/"><u>[New] Crafting YouTube Trailers A Filmora Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/levating-your-channels-identity-with-titles/"><u>[New] Elevating Your Channel's Identity with Titles</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-master-the-art-of-tagging-a-compreited-guide-to-video-seo/"><u>[New] In 2024, Master the Art of Tagging A Compreited Guide to Video SEO</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-optimize-your-video-library-youtubes-to-dailymotion-directly/"><u>[New] In 2024, Optimize Your Video Library YouTubes to Dailymotion Directly</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ioneering-profitability-your-videos-vs-competitors-success-stories-for-2024/"><u>[New] Pioneering Profitability Your Videos Vs. Competitors' Success Stories for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-screensnap-secrets-the-ultimate-guide-to-record-your-world-for-2024/"><u>[New] ScreenSnap Secrets The Ultimate Guide to Record Your World for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-how-to-automatically-resize-videos-for-instagram-on-mac/"><u>[Updated] How to Automatically Resize Videos for Instagram on Mac?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-transform-flv-into-youtube-hits-with-these-top-alternatives/"><u>[Updated] In 2024, Transform FLV Into YouTube Hits with These Top Alternatives</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-ultimate-android-screen-recorder-options-list/"><u>[Updated] In 2024, Ultimate Android Screen Recorder Options List</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-inside-spaces-weaving-in-the-essence-of-daylight/"><u>[Updated] Inside Spaces Weaving in the Essence of Daylight</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-optimize-youtube-creations-a-guide-to-high-quality-visuals/"><u>[Updated] Optimize YouTube Creations A Guide to High-Quality Visuals</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-gps-on-uber-for-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, How to share/fake gps on Uber for Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-masterclasses-in-applying-online-vhs-filters-and-graphics/"><u>In 2024, Masterclasses in Applying Online VHS Filters and Graphics</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/quick-fix-guide-solving-astro-a50-microphone-issues/"><u>Quick Fix Guide: Solving Astro A50 Microphone Issues</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/be-comment-finder-you-should-try/"><u>YouTube Comment Finder You Should Try</u></a></li>
+</ul></div>
 

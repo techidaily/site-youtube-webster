@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Professional Filmmaking Made Easy with Right Lenses"
-date: 2024-10-29T12:35:38.483Z
-updated: 2024-11-04T22:16:00.787Z
+date: 2024-11-13T16:21:51.896Z
+updated: 2024-11-15T19:56:54.265Z
 tags:
   - ai video
   - ai youtube
@@ -61,6 +61,13 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -82,6 +89,19 @@ Being further away from your camera, however, means that you’ll have to use a 
 As telephoto lenses are even more zoomed in, you’ll need to be even further away from your camera to fit yourself inside your camera frame. Why would any vlogger ever need to be that far away from their camera? One word… teleprompter. If you want or need to stick to a script, you’ll have to be far away enough from your camera that it doesn’t appear like your eyes are scanning left to right. You then close in the distance with a telephoto lens.
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
+
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Crop Factor
 
@@ -106,33 +126,39 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
 
@@ -148,13 +174,6 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
-<!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -168,13 +187,6 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -197,16 +209,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/0-best-youtube-thumbnail-fonts-to-make-your-video-stunning/"><u>[New] 20 Best YouTube Thumbnail Fonts to Make Your Video Stunning</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-mastery-of-live-sharing-youtube-edition/"><u>[New] 2024 Approved Mastery of Live Sharing YouTube Edition</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-comedy-youtube-video-ideas-that-funny-people-can-try-for-2024/"><u>[New] 7 Comedy YouTube Video Ideas That Funny People Can Try for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-lift-mood-and-performance-20-fitness-playlists-ranked-right/"><u>[New] Lift Mood & Performance 20 Fitness Playlists Ranked Right</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/7-insider-tips-to-make-money-quickly-on-youtube-shorts-for-2024/"><u>7 Insider Tips to Make Money Quickly on YouTube Shorts for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-10-audio-boosters-for-os-x-ios-android-for-2024/"><u>Elite 10 Audio Boosters for OS X, iOS, Android for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-mastering-hero-10-ultimate-guide-for-l-slow-cinematography/"><u>In 2024, Mastering Hero 10 Ultimate Guide for L-Slow Cinematography</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/is-it-possible-to-sideload-third-party-applications-onto-your-iphone-without-unlocking-the-device/"><u>Is It Possible to Sideload Third-Party Applications Onto Your iPhone Without Unlocking the Device?</u></a></li>
-<li><a href="https://win-dash.techidaily.com/latest-hdmi-driver-updates-for-usb-devices-download-now/"><u>Latest HDMI Driver Updates for USB Devices - Download Now!</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/lock-your-itel-s23-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Itel S23 Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-snippet-analysis-at-a-glance-for-2024/"><u>Micro Snippet Analysis at a Glance for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-elite-recording-tools-for-gamers/"><u>[New] In 2024, Elite Recording Tools for Gamers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-sharing-youtube-content-seamlessly-in-instagram-stories/"><u>[New] In 2024, Sharing YouTube Content Seamlessly in Instagram Stories</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-elite-club-of-youtubes-favorite-shorter-videos/"><u>[Updated] 2024 Approved The Elite Club of YouTube's Favorite Shorter Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-navigating-the-necessary-youtube-viewer-threshold/"><u>[Updated] Navigating the Necessary Youtube Viewer Threshold</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-surge-to-subscriber-success-with-strategic-tactics-for-2024/"><u>[Updated] Surge to Subscriber Success with Strategic Tactics for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-ending-your-insta-saga-a-comprehensive-guide-to-deactivation/"><u>2024 Approved Ending Your Insta Saga A Comprehensive Guide to Deactivation</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-revenue-war-diary-dailymotion-vs-youtube-monetization-strategies/"><u>2024 Approved Revenue War Diary Dailymotion vs YouTube Monetization Strategies</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-start-with-smart-edits-10-tips-for-new-photoshop-users/"><u>2024 Approved Start with Smart Edits 10 Tips for New Photoshop Users</u></a></li>
+<li><a href="https://common-error.techidaily.com/battleye-service-installed-successfully-troubleshooting-guide-updated/"><u>BattlEye Service Installed Successfully - Troubleshooting Guide Updated</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-income-through-effective-video-marketing-for-2024/"><u>Boosting Income Through Effective Video Marketing for 2024</u></a></li>
+<li><a href="https://win-great.techidaily.com/easy-to-use-flashtastic-video-converter-effortless-conversion-from-swf-flv-to-f4v-streaming-files/"><u>Easy-to-Use Flashtastic Video Converter - Effortless Conversion From SWF, FLV to F4V Streaming Files</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-8-safe-and-effective-methods-to-unlock-your-iphone-8-plus-without-a-passcode-drfone-by-drfone-ios/"><u>In 2024, 8 Safe and Effective Methods to Unlock Your iPhone 8 Plus Without a Passcode | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-direct-from-google-meet-securely-live-stream-on-youtube/"><u>In 2024, Direct From Google Meet Securely Live Stream on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-easy-path-to-popularity-two-tactics-for-youtube-fame/"><u>In 2024, Easy Path to Popularity Two Tactics for YouTube Fame</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Oppo A1 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ng-youtube-influencers-the-elite-top-ten-list-for-2024/"><u>Leading YouTube Influencers The Elite Top Ten List for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/simple-steps-install-and-update-your-asus-bluetooth-drivers-with-our-guide/"><u>Simple Steps: Install and Update Your ASUS Bluetooth Drivers with Our Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/e-gold-on-youtube-peak-hours-guide-for-2024/"><u>Strike Gold on YouTube Peak Hours Guide for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unstuck-from-contact-issues-revamp-iphones-messaging-functionality-using-our-top-3-fixes/"><u>Unstuck From Contact Issues? Revamp iPhone's Messaging Functionality Using Our Top 3 Fixes</u></a></li>
 </ul></div>
 
