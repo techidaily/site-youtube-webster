@@ -1,7 +1,7 @@
 ---
 title: "[New] Mastering the Art of YouTube Thumbnails on macOS for 2024"
-date: 2024-11-11T19:22:43.255Z
-updated: 2024-11-15T21:15:01.768Z
+date: 2024-11-22T00:08:56.326Z
+updated: 2024-11-24T17:57:44.343Z
 tags:
   - ai video
   - ai youtube
@@ -47,9 +47,17 @@ thumbnails are a significant factor in determining the number of views a Youtube
 
 If you don’t create a thumbnail then youtube will generate one by itself which may not be so enticing for viewers. The purpose of the thumbnail is to make your videos stand out among the rest so you need to pay attention to it!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to make Youtube Thumbnails on Mac
 
 You can easily create interesting thumbnails for youtube videos using a thumbnail maker like[FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) . Here is a step by step guide:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1. Preview the video and choose the still snapshot
 
@@ -64,10 +72,7 @@ You can easily choose the frame from the video or use the preview frame button t
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2. Add text, shape, and image overlays
@@ -76,18 +81,15 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3. Add effects
 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
 
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
 
@@ -103,20 +105,10 @@ Hopefully, the above-mentioned steps have given you enough insight and clarity o
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -140,20 +132,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-unraveling-the-mystery-of-individual-tiktok-tags/"><u>[New] 2024 Approved Unraveling the Mystery of Individual TikTok Tags</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/harting-the-future-the-next-gen-youtube-festivals-for-2024/"><u>[New] Charting the Future The Next Gen Youtube Festivals for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/levate-video-production-the-audio-edition-on-youtube/"><u>[New] Elevate Video Production The Audio Edition on YouTube</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-comprehensively-understanding-youtubes-aspect-ratio-ecosystem/"><u>[New] In 2024, Comprehensively Understanding YouTube's Aspect Ratio Ecosystem</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-adjust-privacy-settings-for-secure-online-viewing/"><u>[Updated] In 2024, Adjust Privacy Settings for Secure Online Viewing</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-crafting-captivating-youtube-presence-the-ultimate-guide-to-making-thumbnails-on-phones/"><u>2024 Approved Crafting Captivating YouTube Presence The Ultimate Guide to Making Thumbnails on Phones</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-easy-ways-to-copy-contacts-from-honor-play-7t-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Easy Ways to Copy Contacts from Honor Play 7T to iPhone 14 and 15 | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/ai-powered-detective-duty-step-into-4-virtual-investigations/"><u>AI-Powered Detective Duty: Step Into 4 Virtual Investigations</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211146846-9781638448662-bunsology-body/"><u>Bunsology Body | Free Book</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/exceptional-cooling-results-how-eks-all-in-one-cpu-cooler-outperforms-stock-in-managing-13900ks-heat/"><u>Exceptional Cooling Results: How EK's All-in-One CPU Cooler Outperforms Stock in Managing 13900KS Heat</u></a></li>
-<li><a href="https://common-error.techidaily.com/fixing-ctrlplusaltplusdel-issues-proven-solutions-and-tips/"><u>Fixing Ctrl+Alt+Del Issues: Proven Solutions and Tips</u></a></li>
-<li><a href="https://win-superb.techidaily.com/how-a-ddos-cyberattack-disrupted-microsoft-365-services-insights-from-zdnet/"><u>How a DDoS Cyberattack Disrupted Microsoft 365 Services: Insights From ZDNet</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-savory-screens-culinary-content-creation/"><u>In 2024, Savory Screens Culinary Content Creation</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/h-sync-add-youtube-soundtracks-to-imovie-easily/"><u>Smooth Sync Add YouTube Soundtracks to iMovie Easily</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/troubleshooting-cellular-connectivity-problems-after-ios-1721-upgrade-insights-by-zdnet/"><u>Troubleshooting Cellular Connectivity Problems After iOS 17.2.1 Upgrade | Insights by ZDNET</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/azzle-and-stand-out-50-free-youtube-branding-pieces-for-2024/"><u>[New] Dazzle and Stand Out 50 FREE YouTube Branding Pieces for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-how-to-use-whiteboard-in-zoom-meeting-for-2024/"><u>[New] How to Use Whiteboard in Zoom Meeting for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ove-in-full-view-discovering-youtube-and-vimeos-top-7-wedding-movies-for-2024/"><u>[New] Love in Full View Discovering Youtube & Vimeo's Top 7 Wedding Movies for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/illions-watch-but-how-much-do-they-earn/"><u>[New] Millions Watch, But How Much Do They Earn?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ust-have-gear-for-kickstarting-your-youtube-journey-for-2024/"><u>[New] Must-Have Gear for Kickstarting Your YouTube Journey for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-first-steps-into-filmmaking-the-ultimate-guide-for-making-your-first-10-youtube-videos/"><u>[Updated] 2024 Approved First Steps Into Filmmaking The Ultimate Guide for Making Your First 10 YouTube Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-a-comprehensive-tutorial-for-transforming-vids-into-dollars/"><u>[Updated] In 2024, A Comprehensive Tutorial for Transforming Vids Into Dollars</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-audio-perfection-achieved-expert-tips-without-a-microphone/"><u>[Updated] In 2024, Audio Perfection Achieved Expert Tips Without a Microphone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-master-the-art-of-repeating-iphones-videos/"><u>[Updated] In 2024, Master the Art of Repeating iPhones Videos</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-incorporating-seconds-and-minutes-on-youtube-clips/"><u>2024 Approved Incorporating Seconds and Minutes on YouTube Clips</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-notch-free-editors-to-enhance-your-youtube-content-efficiency-for-2024/"><u>8 Top-Notch Free Editors to Enhance Your YouTube Content Efficiency for 2024</u></a></li>
+<li><a href="https://win-docs.techidaily.com/1728466865433-usb/"><u>如何使用最佳免费软件从USB重建操作系统图像</u></a></li>
+<li><a href="https://win-able.techidaily.com/game-on-with-no-delay-fixing-input-lag-for-a-smoother-valorant-experience-2024-edition/"><u>Game On with No Delay: Fixing Input Lag for a Smoother Valorant Experience, 2024 Edition</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-combat-excessive-gpu-utilization-by-windows-dwm-a-guide-for-win10win11-users/"><u>How to Combat Excessive GPU Utilization by Windows' DWM: A Guide for Win10/Win11 Users</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-xiaomi-civi-3frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Xiaomi Civi 3FRP Lock</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/pioneer-productivity-mass-folder-creation-on-modern-windows-systems/"><u>Pioneer Productivity: Mass Folder Creation on Modern Windows Systems</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/resolving-recurring-issues-of-crashing-apps-on-your-iphone-effectively/"><u>Resolving Recurring Issues of Crashing Apps on Your iPhone Effectively</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ling-allure-comprehensive-beauty-how-tos-on-youtube-for-2024/"><u>Unveiling Allure Comprehensive Beauty How-Tos on Youtube for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on OnePlus Nord CE 3 Lite 5G | Dr.fone</u></a></li>
 </ul></div>
 

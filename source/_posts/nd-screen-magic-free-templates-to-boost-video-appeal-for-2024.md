@@ -1,7 +1,7 @@
 ---
 title: "\"[New] End-Screen Magic  Free Templates to Boost Video Appeal for 2024\""
-date: 2024-08-27T14:17:42.725Z
-updated: 2024-08-28T14:17:42.725Z
+date: 2024-11-23T16:06:06.094Z
+updated: 2024-11-25T05:07:47.179Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,10 @@ YouTube end screens are a great way to get your viewers who have watched your Yo
 2. [Give you a step-by-step tutorial on how to build your own outro for free](#diyoutro)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Free End Screen Templates Download
 
@@ -75,15 +79,31 @@ Here are some of our favorite ones.
 
 ![SoapyEdits-youtube-end-screen-template-1](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here’s one for the Minecraft fans:
 
 ![SoapyEdits YouTube end screen template Minecraft ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
@@ -104,6 +124,10 @@ Another way to get your YouTube end screens for free, of course, is to make them
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 6\. Stretch your image to the ends of your canvas.
 
@@ -129,14 +153,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,8 +166,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-virtual-diary-dos-and-donts-for-consistent-content/"><u>[New] In 2024, Virtual Diary Dos & Don'ts for Consistent Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-effortless-rearrangement-of-your-personalized-lists/"><u>[Updated] 2024 Approved Effortless Rearrangement of Your Personalized Lists</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-zero-cost-techniques-for-video-and-text-combination/"><u>[Updated] 2024 Approved Zero-Cost Techniques for Video and Text Combination</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-efficient-guide-image-conversion-to-professional-youtube-thumbnails/"><u>[Updated] Efficient Guide Image Conversion to Professional YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-effortless-audio-blending-into-youtube-clips-using-editors/"><u>[Updated] Effortless Audio Blending Into YouTube Clips Using Editors</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-enhancing-visibility-groundbreaking-techniques-for-health-campaigns/"><u>[Updated] In 2024, Enhancing Visibility Groundbreaking Techniques for Health Campaigns</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-mac-users-mastering-mp3-conversion-from-youtube/"><u>[Updated] In 2024, Mac Users Mastering MP3 Conversion From YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-youtube-earnings-unveiled-average-adsense-payments-per-thousand-views-for-2024/"><u>[Updated] Youtube Earnings Unveiled Average AdSense Payments Per Thousand Views for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-broadcasters-dilemma-opt-for-wirecast-or-obs/"><u>2024 Approved Broadcaster's Dilemma Opt for Wirecast or OBS?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-worlds-premier-content-creators-ranked-by-subscriber-count/"><u>2024 Approved World's Premier Content Creators Ranked By Subscriber Count</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-properly-access-a-prx-file-identifying-suitable-programs-for-execution/"><u>How To Properly Access a PRX File: Identifying Suitable Programs for Execution</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-integrating-obs-in-daily-skype-monitoring/"><u>In 2024, Integrating OBS in Daily Skype Monitoring</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mastering-creative-thinking-generating-concepts-with-mindmaps-and-chatgpt/"><u>Mastering Creative Thinking: Generating Concepts with Mindmaps & ChatGPT</u></a></li>
+<li><a href="https://android-frp.techidaily.com/resolved-overcome-the-infamous-black-screen-in-star-wars-battlefront-ii/"><u>Resolved: Overcome the Infamous 'Black Screen' In Star Wars Battlefront II</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshoot-and-improve-your-pcs-frame-rate-for-seamless-gaming-sessions/"><u>Troubleshoot and Improve Your PC's Frame Rate for Seamless Gaming Sessions</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

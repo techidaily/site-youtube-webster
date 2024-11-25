@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, The Ultimate Guide to YouTube Thumbnail Crafting"
-date: 2024-11-12T18:44:44.793Z
-updated: 2024-11-15T20:58:13.392Z
+date: 2024-11-24T01:04:03.750Z
+updated: 2024-11-25T02:25:30.593Z
 tags:
   - ai video
   - ai youtube
@@ -71,13 +71,25 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
 ![ai-portrait-thumbnail-step10](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step10.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 11:** Now it is time to add a title into your thumbnail to highlight what the video is all about. Go to the Titles, and select lower thirds. You can also select any of the titles types which best suits your needs. Drop the title into the timeline above the footage and adjust it accordingly. Now double click on the header to edit and rename it.
 
@@ -95,7 +107,15 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -118,29 +138,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-for-experts-only-top-5-best-drones-to-buy/"><u>[New] 2024 Approved For Experts Only – Top 5 Best Drones to Buy</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-latest-youtube-monetization-policy-and-requirements/"><u>[New] In 2024, Latest YouTube Monetization Policy and Requirements</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/iral-verve-top-10-music-to-match-your-freshest-yt-shorts/"><u>[New] Viral Verve Top 10 Music to Match Your Freshest YT Shorts</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-digital-dominance-top-youtube-watch-count-chronicles/"><u>[Updated] In 2024, Digital Dominance Top YouTube Watch Count Chronicles</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-learn-quickly-youtube-audio-to-high-quality-mp3-on-mac-os/"><u>[Updated] In 2024, Learn Quickly YouTube Audio to High-Quality MP3 on Mac OS</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-rush-and-reaction-sochis-speed-showdown/"><u>[Updated] Rush & Reaction Sochi's Speed Showdown</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-the-power-of-pausing-incorporating-effective-chapters-in-your-youtube-series/"><u>2024 Approved The Power of Pausing Incorporating Effective Chapters in Your YouTube Series</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ntic-audience-growth-practical-advice-for-content-creators/"><u>Authentic Audience Growth Practical Advice for Content Creators</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/te-views-premium-hashtags-to-spark-virality-in-video-snippets-for-2024/"><u>Elevate Views Premium Hashtags to Spark Virality in Video Snippets for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/experience-enhanced-graphics-performance-access-and-install-the-most-recent-drivers-for-geforce-gtx-1660-super/"><u>Experience Enhanced Graphics Performance: Access and Install the Most Recent Drivers for GeForce GTX 1660 Super</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/e-essentials-making-your-youtube-openers-stand-out-for-2024/"><u>IMovie Essentials Making Your YouTube Openers Stand Out for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-guide-turning-insta-vids-to-mp3-tracks/"><u>In 2024, Guide Turning Insta Vids to MP3 Tracks</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-latest-smartphones-and-their-fit-with-gear-vr-technology/"><u>In 2024, Latest Smartphones and Their Fit With Gear VR Technology</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/1723862809902-mega-savings-on-samsungs-new-49-oled-ultrawide-display-enjoy-an-unbelievable-600-discount/"><u>Mega Savings on Samsung’s New 49 OLED UltraWide Display: Enjoy an Unbelievable $600 Discount!</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/softening-the-edges-a-guide-to-dimmed-audio-in-logic-pro/"><u>Softening the Edges A Guide to Dimmed Audio in Logic Pro</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/trasforma-i-tuoi-file-wmv-nel-formato-3gp-gratuitamente-online-con-il-servizio-di-conversione-rapido-di-convertitore-wmv/"><u>Trasforma I Tuoi File WMV Nel Formato 3GP Gratuitamente Online Con Il Servizio Di Conversione Rapido Di Convertitore WMV</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/troubleshooting-android-notification-issues-uncover-the-reasons-behind-your-missed-alerts/"><u>Troubleshooting Android Notification Issues: Uncover the Reasons Behind Your Missed Alerts</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-fix-fixed-no-more-obs-camera-issues/"><u>[New] 2024 Approved Fix Fixed No More OBS Camera Issues</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-enhancing-storytelling-with-jump-cuts-technique/"><u>[Updated] In 2024, Enhancing Storytelling with Jump Cuts Technique</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-scaling-up-on-youtube-a-roadmap-for-million-sub-club/"><u>[Updated] In 2024, Scaling Up on YouTube A Roadmap for Million-Sub Club</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-navigating-popular-comment-pathways/"><u>[Updated] Navigating Popular Comment Pathways</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-classic-collection-finding-yesteryears-social-media-gems/"><u>2024 Approved Classic Collection Finding Yesteryear's Social Media Gems</u></a></li>
+<li><a href="https://extra-information.techidaily.com/charting-the-financial-landscape-of-youtube-marketing/"><u>Charting the Financial Landscape of YouTube Marketing</u></a></li>
+<li><a href="https://windows11.techidaily.com/enhance-user-experience-add-portable-software-to-windows/"><u>Enhance User Experience: Add Portable Software to Windows</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/evaluating-superiority-gopros-max-and-hero-11-face-off/"><u>Evaluating Superiority GoPro's Max and Hero 11 Face-Off</u></a></li>
+<li><a href="https://program-issues.techidaily.com/improved-visuals-fix-unclear-screenshots-in-outriders-edition/"><u>Improved Visuals Fix Unclear Screenshots in Outriders Edition</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-how-to-stream-to-youtube-facebook-twitch-and-over-30-platforms/"><u>In 2024, How to Stream to YouTube, Facebook, Twitch and Over 30 Platforms?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-pro-list-best-free-video-subtitles-and-downloader/"><u>In 2024, Pro List Best Free Video Subtitles & Downloader</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-top-notch-solutions-for-disabled-apple-id-from-apple-iphone-15-pro-max-making-it-possible-by-drfone-ios/"><u>In 2024, Top-Notch Solutions for Disabled Apple ID From Apple iPhone 15 Pro Max Making It Possible</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/navigating-snapchats-zoom-for-crisp-visuals/"><u>Navigating Snapchat's Zoom for Crisp Visuals</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/e-coverage-awaits-crafting-your-own-custom-youtube-shorts-images-for-2024/"><u>Unique Coverage Awaits Crafting Your Own Custom YouTube Shorts Images for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

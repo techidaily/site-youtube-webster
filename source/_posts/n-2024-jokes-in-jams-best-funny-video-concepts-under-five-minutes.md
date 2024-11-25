@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Jokes in Jams  Best Funny Video Concepts Under Five Minutes\""
-date: 2024-08-27T14:18:56.396Z
-updated: 2024-08-28T14:18:56.396Z
+date: 2024-11-22T05:18:24.922Z
+updated: 2024-11-24T19:59:54.759Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,10 @@ YouTube is a well-known brand for videos globally. This time, it comes with its 
 
 That sounds great, doesn’t it? Let’s move ahead to get a good grab over some funny, engaging, and eye-catching ideas to have YouTube Shorts videos here. No need for a lengthy tutorial to become the real YouTube Shorts champion with the following tips. Let’s roll on, guys!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Top 10 Funny YouTube Shorts Video Ideas
 
 Your wait gets over here. Yes, you heard it right. If you are eager to explore the world of YouTube Shorts Channel and some funny ideas, take a big leap towards your journey.
@@ -42,6 +46,10 @@ Yeah! The first idea looks so catchy. Everyone holds some dreams. And if you hav
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Also, you can discuss different sorts of dreams that the human genre has been dreaming of for years. You can even add a flavor of future dreams that will open up the space of excellent speculation one can think of.
 
 #### Idea 2: Story Timeline Series
@@ -50,6 +58,10 @@ Who doesn’t love the stories? Everyone is somewhat fond of listening to differ
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 So, pen down some compelling stories that do not need long writing work. But, like a comic strip, you need to create and join such a series under YouTube Shorts ideas.
 
 #### Idea 3: Picture Story
@@ -57,6 +69,10 @@ So, pen down some compelling stories that do not need long writing work. But, li
 Pictures are a unique way to express feelings, especially when those funny pictures come with background voices, music, etc., it will create a different audio/visual effect.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Using different online software, you can enhance the pictures or modify the background voice. Such a combination under YouTube Shorts Video ideas brings a different aura to your channel.
 
@@ -99,6 +115,10 @@ Just give it a try and dance with the music you create with all the worldwide li
 Kids love cartoons, but the hidden fact is that everyone enjoys watching cartoon or cartoon characters to a certain extent. Then why not try mimicking some cartoon characters. If you are a fun-loving person, and in your life, you mimic any person’s character, then try mimicking cartoon characters under YouTube Short Video ideas.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Mixing some comedy flavor to life will add more fun and enjoyment to all those seeking funny moments to reflect their days. Come on; show up your humor with this unique style.
 
@@ -172,14 +192,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -188,8 +205,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-streamlining-short-film-previews-for-channels/"><u>[New] In 2024, Streamlining Short Film Previews for Channels</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-the-art-of-youtube-thumbnails-for-mac-professionals/"><u>[New] In 2024, The Art of YouTube Thumbnails for Mac Professionals</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-2023s-must-watch-alternatives-to-top-films/"><u>[Updated] 2024 Approved 2023'S Must-Watch Alternatives to Top Films</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-crafting-memes-in-the-virtual-frontier/"><u>[Updated] 2024 Approved Crafting Memes in the Virtual Frontier</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-guide-to-structuring-youtube-content-with-separate-chapters/"><u>[Updated] 2024 Approved Guide to Structuring YouTube Content with Separate Chapters</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-playlist-perfection-weaving-youtube-videos-into-webpages/"><u>[Updated] 2024 Approved Playlist Perfection Weaving YouTube Videos Into Webpages</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-seamless-blend-of-text-and-video-without-payment/"><u>[Updated] In 2024, Seamless Blend of Text & Video Without Payment</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-seeking-outstanding-user-contributions/"><u>[Updated] In 2024, Seeking Outstanding User Contributions</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-synthesizing-elements-crafting-a-captivating-youtube-video-start/"><u>[Updated] In 2024, Synthesizing Elements Crafting a Captivating YouTube Video Start</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-ultimate-list-of-10-online-free-jpg-to-gif-conversion-programs-for-2024/"><u>[Updated] Ultimate List of 10 Online, Free JPG to GIF Conversion Programs for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-budget-friendly-high-resolution-cameras/"><u>2024 Approved Budget-Friendly High-Resolution Cameras</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-optimized-tag-management-the-best-7-free-online-extractor-tools-for-youtube/"><u>2024 Approved Optimized Tag Management The Best 7 Free Online Extractor Tools for YouTube</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-guide-to-various-video-recording-devices/"><u>In 2024, Guide to Various Video Recording Devices</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-master-non-youtube-editors-the-top-5-list-you-need/"><u>In 2024, Master Non-Youtube Editors The Top 5 List You Need</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/39239419-in-2024-mastering-the-download-of-your-youtube-playlist-today/"><u>In 2024, Mastering the Download of Your YouTube Playlist Today!</u></a></li>
+<li><a href="https://driver-install.techidaily.com/reinstall-graphics-driver-on-windows-11711/"><u>Reinstall Graphics Driver on Windows 11/7/11</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/understanding-patch-tuesday-a-detailed-insight/"><u>Understanding Patch Tuesday: A Detailed Insight</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

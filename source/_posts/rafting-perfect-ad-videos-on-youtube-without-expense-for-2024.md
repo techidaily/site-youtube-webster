@@ -1,7 +1,7 @@
 ---
 title: "[New] Crafting Perfect Ad Videos on YouTube Without Expense for 2024"
-date: 2024-11-11T18:01:09.140Z
-updated: 2024-11-15T21:14:44.525Z
+date: 2024-11-18T04:37:36.009Z
+updated: 2024-11-24T18:25:27.120Z
 tags:
   - ai video
   - ai youtube
@@ -82,10 +82,7 @@ Because YouTube Video Builder is in its Beta phase, at the time of this writing 
 Once your request is approved, you can then use the same Google account to sign in to the **YouTube Video Builder** portal, and start preparing your video advertisements. Here, it is important to understand that the Google account that you use to send an access request and prepare the videos must be the same ID that has your active and functional YouTube Channel.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to Make Video Ads for Free with YouTube Video Builder?
@@ -99,26 +96,20 @@ After signing in to your **YouTube Video Builder** account, on the main interfac
 ![ YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-layout.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Next, from the **Color & Logo** section, choose the base (background) and text colors using their corresponding tools from under the **Brand colors** section.
 
 ![Create video with YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-color-logo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 After this, insert an image of your brand logo in the block under the **Logos** category.
 
 ![Create video with YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-insert-brand-logo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Step 2: Add the Ingredients
 
@@ -140,13 +131,6 @@ Alternatively, you can leave the default one selected. When on the **Select Musi
 
 ![Create video with YouTube Video Builder with music ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-music-for-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Finally, click **Create video**, and wait while **YouTube Video Builder** takes you to the **Preview, Save, Share** section, and generates your video.
 
 ![ YouTube Video Builder Video create video  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-create-video.jpg)
@@ -157,26 +141,21 @@ After the video is generated, play to preview the film. If everything looks good
 
 ![ YouTube Video Builder Video Preview and Save  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-save-preview-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 On the next page, click **Copy** to copy the video link, and share it with your friends, colleagues, and family members for their feedback.
 
 ![ YouTube Video Builder Video Copy Link  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-copy-link.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Next, scroll down to get to the **Create Campaign** section of the navigation bar, and from the left screen, click **Create campaign** to begin a campaign to promote your brand and/or product(s).
 
 ![ YouTube Video Builder Video Create Campaign ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-create-campaign.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Part 5: Tips for Making Good Video Ads with YouTube Video Builder
 
@@ -195,6 +174,10 @@ The whole point here is to prepare your video adverts with the least investment 
 The bitter truth is, producing videos, especially for brand promotions requires expert creators, expensive tools, and a good amount of work experience. Although all these can be managed if you have some spare funds, **YouTube Video Builder** helps you create advertising videos of up to 15 seconds with ease and for free. All you need is access to **YouTube Video Builder**, your own YouTube Channel, your brand logo, and high-definition photos of your product(s).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -217,21 +200,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-how-to-create-and-change-an-igtv-cover-photo-thumbnail/"><u>[New] 2024 Approved How to Create and Change an IGTV Cover Photo (Thumbnail)?</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/est-websites-for-downloading-youtube-intro-templates-for-2024/"><u>[New] Best Websites for Downloading YouTube Intro Templates for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-mastering-unlimited-data-keep-essential-lists/"><u>[New] Mastering Unlimited Data Keep Essential Lists</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/hriving-as-an-online-gaming-content-creator-for-2024/"><u>[New] Thriving as an Online Gaming Content Creator for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/hriving-thumbnails-the-20-most-recommended-youtube-fonts/"><u>[New] Thriving Thumbnails The 20 Most Recommended YouTube Fonts</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-secure-steps-for-skyrocketing-video-engagement-a-million-wins-strategy/"><u>[Updated] 2024 Approved Secure Steps for Skyrocketing Video Engagement A Million Wins Strategy</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-finding-the-best-replacement-for-magixs-acid-pro/"><u>[Updated] Finding the Best Replacement for Magix's ACID Pro</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-stylish-profiles-easy-downloads/"><u>[Updated] In 2024, Stylish Profiles, Easy Downloads</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-srt-conversion-compendium-for-media-professionals-for-2024/"><u>[Updated] SRT Conversion Compendium for Media Professionals for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-unveiling-the-top-5-non-youtube-editing-choices/"><u>[Updated] Unveiling the Top 5 Non-YouTube Editing Choices</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-accelerating-engagement-with-optimized-youtube-video-speeds/"><u>2024 Approved Accelerating Engagement with Optimized YouTube Video Speeds</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-essential-ios-video-editor-apps-top-10-best-to-know/"><u>2024 Approved Essential iOS Video Editor Apps Top 10 Best to Know</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/channel-upgrade-the-beginners-roadmap-to-video-mastery-for-2024/"><u>Channel Upgrade The Beginner's Roadmap to Video Mastery for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ts-choice-11-premium-video-extractors/"><u>Expert's Choice 11 Premium Video Extractors</u></a></li>
-<li><a href="https://win-luxury.techidaily.com/how-to-rearrange-and-float-toolbars-on-top-within-flipbuilder-templates-for-enhanced-user-experience/"><u>How to Rearrange and Float Toolbars on Top Within FlipBuilder Templates for Enhanced User Experience</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/troubleshooting-steps-to-fix-ralink-rt3290-drivers-in-windows-1087/"><u>Troubleshooting Steps to Fix Ralink RT3290 Drivers in Windows 10/8/7</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-5-ways-to-transfer-files-to-your-computer/"><u>[New] 5 Ways To Transfer Files To Your Computer</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ash-rides-high-with-well-crafted-youtube-shorts/"><u>[New] Cash Rides High with Well-Crafted YouTube Shorts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-the-real-score-of-youtube-video-success-beyond-basic-view-counts/"><u>[New] In 2024, The Real Score of YouTube Video Success Beyond Basic View Counts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-exploring-new-worlds-top-10-sci-fi-metaverse-movie-adventures/"><u>[Updated] Exploring New Worlds Top 10 Sci-Fi Metaverse Movie Adventures</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-frame-by-frame-building-a-filmmaking-foundation-on-youtube-for-2024/"><u>[Updated] Frame by Frame Building a Filmmaking Foundation on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-giggle-galore-curating-the-funniest-10-short-form-web-series-ideas/"><u>2024 Approved Giggle Galore Curating the Funniest 10 Short-Form Web Series Ideas</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/dont-miss-out-discover-why-you-need-a-3d-printer-on-black-friday-reason-1-5/"><u>Don't Miss Out! Discover Why You Need a 3D Printer on Black Friday (Reason #1-#5)</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Oppo A58 4G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/navigating-facebooks-automatic-video-features/"><u>Navigating Facebook's Automatic Video Features</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ltimate-guide-to-multi-video-watching-on-youtube-for-2024/"><u>The Ultimate Guide to Multi-Video Watching on YouTube for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/win11s-personalized-audio-settings-key-combinations-explained/"><u>Win11's Personalized Audio Settings: Key Combinations Explained</u></a></li>
 </ul></div>
 

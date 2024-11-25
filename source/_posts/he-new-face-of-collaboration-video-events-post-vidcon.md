@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The New Face of Collaboration  Video Events Post-VidCon\""
-date: 2024-11-13T17:06:05.762Z
-updated: 2024-11-15T21:28:16.036Z
+date: 2024-11-21T16:16:08.852Z
+updated: 2024-11-24T16:52:53.708Z
 tags:
   - ai video
   - ai youtube
@@ -42,6 +42,10 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 1. **[VidCon](http://vidcon.com/)**
 
 **VidCon US:** June (Anaheim, California)
@@ -51,6 +55,10 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 **VidCon Australia:** August/September
 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
 
@@ -114,6 +122,10 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
 In 2017, 30,000 people attended Beautycon festivals internationally.
@@ -137,6 +149,10 @@ The final type of pass, the **Two-Day Beauty Insider** ($1999) pass, has everyth
 These events are customized to the wherever festival is visiting, so you’re always sure to see the big and rising YouTube stars from your region. Generally, these events include performances and activities as well as a Meet & Greet.
 
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
 
@@ -188,6 +204,10 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -233,31 +253,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-unsealing-the-secret-permanently-ditch-youtube-shorts/"><u>[New] 2024 Approved Unsealing the Secret Permanently Ditch YouTube Shorts</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/aptivate-viewers-designing-engaging-youtube-trailers-with-filmora/"><u>[New] Captivate Viewers Designing Engaging YouTube Trailers with Filmora</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/rafting-compelling-combinations-a-guide-to-creating-your-own-youtube-playlists-for-2024/"><u>[New] Crafting Compelling Combinations A Guide to Creating Your Own YouTube Playlists for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-essential-video-editing-apps-for-youtube-creators/"><u>[New] In 2024, Essential Video Editing Apps for YouTube Creators</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-master-your-clips-on-mac-explore-our-top-5-snippers/"><u>[Updated] Master Your Clips on Mac Explore Our Top 5 Snippers</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-clear-video-logger-for-windows-10-systems/"><u>2024 Approved Clear Video Logger for Windows 10 Systems</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-ultimate-guide-to-weaving-gopro-footage-into-circular-films/"><u>2024 Approved Ultimate Guide to Weaving GoPro Footage Into Circular Films</u></a></li>
-<li><a href="https://games-able.techidaily.com/essential-tips-for-playing-steam-on-iphones-and-tablets/"><u>Essential Tips for Playing Steam on iPhones and Tablets</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/from-idea-to-airwaves-crafting-compelling-podcast-scripts-for-2024/"><u>From Idea to Airwaves Crafting Compelling Podcast Scripts for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-enable-stylus-and-touch-gestures-when-they-appear-disabled-on-the-monitor/"><u>How to Enable Stylus and Touch Gestures When They Appear Disabled on the Monitor</u></a></li>
-<li><a href="https://driver-download.techidaily.com/latest-pl2303-chipset-drivers-for-windows-pcs-download-and-update-instructions/"><u>Latest PL2303 Chipset Drivers for Windows PCs: Download & Update Instructions</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/safeguard-your-iphone-from-threats-using-these-6-superior-antivirus-applications/"><u>Safeguard Your iPhone From Threats Using These 6 Superior Antivirus Applications</u></a></li>
-<li><a href="https://win-answers.techidaily.com/steps-for-restoring-snap-camera-functionality-when-no-camera-prompt-appears/"><u>Steps for Restoring Snap Camera Functionality When 'No Camera' Prompt Appears</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-the-path-to-millions-of-views-on-youtube-videos/"><u>[New] The Path to Millions of Views on YouTube Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-navigating-numbers-expert-stock-channels-summary/"><u>[Updated] 2024 Approved Navigating Numbers Expert Stock Channels Summary</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-mastering-youtube-metrics-for-effective-content-strategy/"><u>[Updated] In 2024, Mastering YouTube Metrics for Effective Content Strategy</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-prime-streamer-gear-essential-livestream-tools-unveiled/"><u>[Updated] Prime Streamer Gear Essential Livestream Tools Unveiled</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unpacking-the-essence-of-digital-tales/"><u>[Updated] Unpacking the Essence of Digital Tales</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-vanished-vids-rediscovered-the-ultimate-guide-to-old-youtube-videos-for-2024/"><u>[Updated] Vanished Vids Rediscovered The Ultimate Guide to Old YouTube Videos for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-iphone-and-ios-a-beginners-approach-to-vr-videos/"><u>2024 Approved IPhone & IOS A Beginner's Approach to VR Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-unleashing-creativity-converting-youtube-videos-into-captivating-gifs/"><u>2024 Approved Unleashing Creativity Converting YouTube Videos Into Captivating GIFs</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/latest-release-unveiling-apples-most-recent-macbook-models/"><u>Latest Release: Unveiling Apple's Most Recent MacBook Models</u></a></li>
+<li><a href="https://os-tips.techidaily.com/resolving-common-issues-with-the-cash-app-a-step-by-step-guide-for-quick-recovery/"><u>Resolving Common Issues with the Cash App: A Step-by-Step Guide for Quick Recovery</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/transforming-your-profile-video-allure/"><u>Transforming Your Profile Video Allure</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-steps-to-stop-nioh-2-from-crashing-on-pc-and-console/"><u>Troubleshooting Steps to Stop Nioh 2 From Crashing on PC and Console</u></a></li>
+<li><a href="https://android-frp.techidaily.com/ultimate-guide-on-oppo-a38-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Oppo A38 FRP Bypass</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

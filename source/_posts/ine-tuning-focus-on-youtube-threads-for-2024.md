@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Fine-Tuning Focus on YouTube Threads for 2024\""
-date: 2024-11-09T20:47:05.629Z
-updated: 2024-11-15T20:07:47.191Z
+date: 2024-11-18T17:41:03.498Z
+updated: 2024-11-24T20:49:09.357Z
 tags:
   - ai video
   - ai youtube
@@ -64,7 +64,15 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 ![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can combine these additional filters to narrow your comments search for YouTube.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
@@ -77,13 +85,6 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 5. Now type your keywords, press Enter, and YCS will show all comments having the keyword you typed.
 
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
 
@@ -112,10 +113,7 @@ This mode allows you to enter special commands to carry out an advanced search. 
 3. ‘:creator’ to get comments made by the creator
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
@@ -125,16 +123,7 @@ Did you post a comment on your favorite celebrity’s video? Do you think it may
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
 <!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### How to Use the Comment History feature to Search Comments?
@@ -150,10 +139,7 @@ You can see all the comments you have posted in the Comment History in a few qui
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
@@ -200,22 +186,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-balanced-flights-7-leading-gimbals-reviewed-for-2024/"><u>[New] Balanced Flights 7 Leading Gimbals Reviewed for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-effortless-glamour-examples-for-2024/"><u>[New] Effortless Glamour Examples for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/xpressive-youtube-aesthetics-at-no-cost/"><u>[New] Expressive YouTube Aesthetics at No Cost</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-decipher-youtubes-mysteries-with-advanced-insights-from-social-blade/"><u>[New] In 2024, Decipher YouTube's Mysteries with Advanced Insights From Social Blade</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-navigating-youtubes-subtitle-system-download-with-ease-using-3-methods/"><u>[New] Navigating YouTube's Subtitle System Download with Ease Using 3 Methods</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/uash-unwanted-youtube-suggested-videos-for-2024/"><u>[New] Quash Unwanted YouTube Suggested Videos for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/eversing-the-consequences-of-a-youtube-ban-for-2024/"><u>[New] Reversing the Consequences of a YouTube Ban for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/eo-explosion-leading-tech-for-your-videos/"><u>[New] SEO Explosion Leading Tech for Your Videos</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ailoring-your-youtube-videos-with-customized-text-and-link-embeddings/"><u>[New] Tailoring Your YouTube Videos with Customized Text & Link Embeddings</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-chart-a-course-to-6-figure-growth-with-powerful-tags/"><u>[Updated] 2024 Approved Chart a Course to 6-Figure Growth with Powerful #Tags</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-looms-labyrinth-navigating-screen-record-art/"><u>[Updated] Loom's Labyrinth Navigating Screen Record Art</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ing-your-course-in-the-world-of-youtube-tracking-success-and-monetary-value-for-2024/"><u>Charting Your Course in the World of YouTube Tracking Success & Monetary Value for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/how-to-get-the-newest-driver-updates-for-the-hp-officejet-pro-8720-printer-on-a-windows-operating-system/"><u>How to Get the Newest Driver Updates for the HP OfficeJet Pro 8720 Printer on a Windows Operating System</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ng-websites-for-extracting-youtube-intros-for-2024/"><u>Leading Websites for Extracting YouTube Intros for 2024</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-make-your-own-movies-a-guide-to-creating-professional-looking-dvds/"><u>New 2024 Approved Make Your Own Movies A Guide to Creating Professional-Looking DVDs</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/step-by-step-solution-to-fixing-compatibility-challenges-with-hp-laserjet-p2035-drivers-on-pcs/"><u>Step-by-Step Solution to Fixing Compatibility Challenges with HP LaserJet P2035 Drivers on PCs</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/unveiling-the-most-sought-after-game-systems/"><u>Unveiling the Most Sought-After Game Systems</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ffordable-gear-for-aspiring-content-creators-for-2024/"><u>[New] Affordable Gear for Aspiring Content Creators for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-instagrams-creative-toolkit-applying-effects-on-existing-content/"><u>[New] In 2024, Instagram's Creative Toolkit Applying Effects on Existing Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ubscribers-count-in-real-time-for-2024/"><u>[New] Subscribers Count in Real-Time for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-constructive-communication-leads-to-more-subscribers/"><u>[Updated] Constructive Communication Leads to More Subscribers</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-echoes-of-antiquity-tracing-the-footsteps-of-ancient-scribes/"><u>[Updated] In 2024, Echoes of Antiquity Tracing the Footsteps of Ancient Scribes</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-the-visual-markers-guide-customizing-instagram-photo-watermarks/"><u>2024 Approved The Visual Marker's Guide Customizing Instagram Photo Watermarks</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/breakthrough-tactics-for-efficient-home-podcasting-for-2024/"><u>Breakthrough Tactics for Efficient Home Podcasting for 2024</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/enhance-your-sites-user-experience-using-cookiebot-solutions/"><u>Enhance Your Site's User Experience Using Cookiebot Solutions</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/dbreaking-insights-into-asmr-recordings-for-2024/"><u>Groundbreaking Insights Into ASMR Recordings for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-lava-blaze-2-pro-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Lava Blaze 2 Pro Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-mastering-snapchat-sharing-with-twitter-videos/"><u>In 2024, Mastering Snapchat Sharing with Twitter Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-the-art-of-saving-just-a-bit-from-youtube-videos/"><u>In 2024, The Art of Saving Just a Bit From YouTube Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ring-the-art-of-youtube-intros-tips-and-tricks/"><u>Mastering the Art of YouTube Intros (Tips & Tricks)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unveil-8-reliable-video-promotion-services/"><u>Unveil 8 Reliable Video Promotion Services</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Elevating Positivity in a Constructive Space"
-date: 2024-11-14T19:35:36.031Z
-updated: 2024-11-15T18:27:52.248Z
+date: 2024-11-18T04:43:27.164Z
+updated: 2024-11-25T03:12:34.508Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/4b4c42d86cbc7f5900b95e8b4af00dbe97e236701
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,6 +58,10 @@ thumbnail: https://thmb.techidaily.com/4b4c42d86cbc7f5900b95e8b4af00dbe97e236701
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -75,31 +83,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/emystifying-the-world-of-youtube-and-its-keywords-for-2024/"><u>[New] Demystifying the World of YouTube and Its Keywords for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-the-best-soundtracks-at-your-fingertips-for-online-creators/"><u>[New] In 2024, The Best Soundtracks at Your Fingertips for Online Creators</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-video-color-correction-for-youtube-beauty/"><u>[New] Video Color Correction for YouTube Beauty</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-mastering-video-production-with-chroma-key-techniques/"><u>[Updated] 2024 Approved Mastering Video Production with Chroma Key Techniques</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-best-7-dslr-vlogging-cameras-for-2024/"><u>[Updated] Best 7 DSLR Vlogging Cameras for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-starter-guide-8-easy-youtube-money-makers-for-2024/"><u>[Updated] Starter Guide 8 Easy YouTube Money-Makers for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-innovative-ideas-for-images-with-professional-color-palette/"><u>2024 Approved Innovative Ideas for Images with Professional Color Palette</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-top-kid-friendly-drone-models-for-first-flights/"><u>2024 Approved Top Kid-Friendly Drone Models for First Flights</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-ultimate-text-effect-strategies/"><u>2024 Approved Ultimate Text Effect Strategies</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-youtube-earnings-unveiled-average-adsense-payments-per-thousand-views/"><u>2024 Approved Youtube Earnings Unveiled Average AdSense Payments Per Thousand Views</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/d-shorts-missing-on-youtube-screen/"><u>Ceased Shorts Missing on YouTube Screen</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/te-your-marketing-game-free-50-youtube-adornments-here-in-2024/"><u>Elevate Your Marketing Game - Free 50 YouTube Adornments Here, In 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-network-locked-vivo-v27-pro-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Vivo V27 Pro Phone?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-redmi-12-5g-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Xiaomi Redmi 12 5G Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-understanding-vimeos-unique-value-over-youtube/"><u>In 2024, Understanding Vimeo's Unique Value over YouTube</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/automatic-video-recommendations-immediately/"><u>Stop Automatic Video Recommendations Immediately</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/unraveling-the-mystery-behind-computers-blue-screen-of-death/"><u>Unraveling the Mystery Behind Computer's Blue Screen of Death</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-the-best-video-editing-software-for-mac-besides-pinnacle-studio/"><u>Updated The Best Video Editing Software for Mac (Besides Pinnacle Studio)</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Lava Blaze Curve 5G? | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-ultimate-rotation-video-mounting/"><u>[New] 2024 Approved Ultimate Rotation Video Mounting</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-engaging-tactics-for-increased-subscriber-count/"><u>[New] In 2024, Engaging Tactics for Increased Subscriber Count</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-streamlining-content-delivery-the-definitive-youtube-video-upload-guide/"><u>[New] In 2024, Streamlining Content Delivery The Definitive YouTube Video Upload Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-exploring-adventures-with-panasonic-hx-a1-cam/"><u>[Updated] 2024 Approved Exploring Adventures with Panasonic HX-A1 Cam</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-flair-and-finesse-in-your-gaming-youtube-channel/"><u>[Updated] 2024 Approved Flair and Finesse in Your Gaming YouTube Channel</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-how-often-do-youtubers-receive-income/"><u>[Updated] In 2024, How Often Do YouTubers Receive Income?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-make-music-accessible-with-a-well-designed-youtube-playlist/"><u>[Updated] Make Music Accessible with a Well-Designed YouTube Playlist</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-transition-made-easy-the-8-best-convertors-for-subtitles-and-srts-for-2024/"><u>[Updated] Transition Made Easy The 8 Best Convertors for Subtitles & SRTs for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-achieving-professional-level-youtube-streams-using-wirecast/"><u>2024 Approved Achieving Professional-Level Youtube Streams Using WireCast</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-complete-guidebook-to-evaluating-your-videos-impact-and-earning-power/"><u>2024 Approved Complete Guidebook to Evaluating Your Video's Impact and Earning Power</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-xiaomi-14-ultra-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Xiaomi 14 Ultra? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-fix-icloud-lock-from-your-apple-iphone-11-pro-max-and-ipad-by-drfone-ios/"><u>How to fix iCloud lock from your Apple iPhone 11 Pro Max and iPad</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-nokia-c110-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Nokia C110 Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/en-kings-and-queens-crown-your-channel-with-a-name-for-2024/"><u>Kitchen Kings & Queens Crown Your Channel With a Name for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/restoring-facebook-user-login-after-code-deletion/"><u>Restoring Facebook User Login After Code Deletion</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ricodifica-video-da-ogg-a-mov-gratuitamente-con-il-software-di-moovavi-tutorial-passo-passo-online/"><u>Ricodifica Video Da OGG a MOV Gratuitamente Con Il Software Di Moovavi: Tutorial Passo-Passo Online</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unleash-your-inner-star-with-elite-karaoke-systems-a-roundup/"><u>Unleash Your Inner Star with Elite Karaoke Systems - A Roundup</u></a></li>
+<li><a href="https://app-tips.techidaily.com/unlocking-the-potential-of-artificial-intelligence-strategies-for-new-entrants-in-todays-markets-zdnet-analysis/"><u>Unlocking the Potential of Artificial Intelligence: Strategies for New Entrants in Today's Markets | ZDNet Analysis</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/bes-best-music-video-reactions-2023-list-for-2024/"><u>YouTube's Best Music Video Reactions, 2023 List for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

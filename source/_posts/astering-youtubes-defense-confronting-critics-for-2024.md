@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering YouTube's Defense  Confronting Critics for 2024\""
-date: 2024-11-08T20:57:58.243Z
-updated: 2024-11-15T20:04:40.185Z
+date: 2024-11-18T18:02:15.346Z
+updated: 2024-11-24T16:20:24.106Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/37188c2ac0547dbb668f9ed584425f62c5411d081
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,6 +58,10 @@ thumbnail: https://thmb.techidaily.com/37188c2ac0547dbb668f9ed584425f62c5411d081
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -75,25 +83,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-how-to-block-facebook-video-ads/"><u>[New] 2024 Approved How to Block Facebook Video Ads?</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-the-hidden-layers-behind-facebooks-emblematic-blue-icon-in-messages/"><u>[New] 2024 Approved The Hidden Layers Behind Facebook's Emblematic Blue Icon in Messages</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-boosting-detail-with-videoleaps-in-camera-zooming-for-2024/"><u>[New] Boosting Detail with VideoLeap's In-Camera Zooming for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-legal-landscapes-understanding-youtube-and-cc-divergences/"><u>[New] In 2024, Legal Landscapes Understanding YouTube & CC Divergences</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-the-ultimate-guide-to-creating-engaging-youtube-channel-names-limit-it-to-156-characters/"><u>[New] In 2024, The Ultimate Guide to Creating Engaging Youtube Channel Names (Limit It to 156 Characters)</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/astering-youtube-brand-partnerships-with-famebit-tools/"><u>[New] Mastering YouTube Brand Partnerships with FameBit Tools</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-fresh-funds-finds-economical-monetization-platforms-for-beginners/"><u>[Updated] In 2024, Fresh Funds Finds Economical Monetization Platforms for Beginners</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/tial-list-7-cost-free-video-tags-extractors-on-youtube/"><u>Essential List 7 Cost-Free Video Tags Extractors on YouTube</u></a></li>
-<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>Fixing Foneazy MockGo Not Working On Apple iPhone 14 Plus | Dr.fone</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-cut-to-the-chase-quick-background-blur-tricks-for-everyday-meets/"><u>In 2024, Cut to the Chase Quick Background Blur Tricks for Everyday Meets</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Poco F5 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/labor-day-sale-alert-secure-your-apple-pencil-2nd-gen-for-just-95-shop-now-best-deal/"><u>Labor Day Sale Alert: Secure Your Apple Pencil (2Nd Gen) for Just $95 - Shop Now Best Deal!</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-lava-blaze-2-5g-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Lava Blaze 2 5G Device</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rofessional-strategies-for-embedding-timestamps-on-your-channel-for-2024/"><u>[New] Professional Strategies for Embedding Timestamps on Your Channel for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-blueprinting-engaging-content-layouts-on-youtube-for-2024/"><u>[Updated] Blueprinting Engaging Content Layouts on YouTube for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-breakthrough-the-top-8-web-based-photo-blender/"><u>[Updated] In 2024, Breakthrough The Top 8 Web-Based Photo Blender</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-in-depth-football-footage-top-youtube-infographics/"><u>[Updated] In 2024, In-Depth Football Footage Top YouTube Infographics</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-techniques-for-rapid-deletion-of-youtube-feedback/"><u>[Updated] In 2024, Techniques for Rapid Deletion of Youtube Feedback</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-microphone-matchmaking-adapting-to-your-youtube-channels-needs/"><u>[Updated] Microphone Matchmaking Adapting to Your YouTube Channel's Needs</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/apex-level-clarity-convert-high-res-videos-for-2024/"><u>Apex-Level Clarity Convert High-Res Videos for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-make-video-conferences-on-windows-the-ultimate-guide-for-non-ios-users/"><u>How to Make Video Conferences on Windows: The Ultimate Guide for Non-iOS Users</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/uncovering-new-tech-trends-the-expertise-from-toms-hardware/"><u>Uncovering New Tech Trends: The Expertise From Tom's Hardware</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/unleash-your-ads-potential-mastering-fb-ad-roi-with-motion-graphics/"><u>Unleash Your Ad's Potential Mastering FB Ad ROI with Motion Graphics</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/windows-terminal-vs-powershell-what-makes-them-different/"><u>Windows Terminal Vs. PowerShell: What Makes Them Different?</u></a></li>
+<li><a href="https://common-error.techidaily.com/wireless-whispers-ended-laptopplusheadsets-reunited/"><u>Wireless Whispers Ended: Laptop+Headsets Reunited</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
