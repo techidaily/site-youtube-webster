@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Boost Your YouTube Presence with Personalized Annotations and Card Integration"
-date: 2024-11-22T18:25:54.273Z
-updated: 2024-11-25T00:57:25.850Z
+date: 2024-11-30T05:49:01.386Z
+updated: 2024-12-04T02:25:34.894Z
 tags:
   - ai video
   - ai youtube
@@ -51,7 +51,7 @@ The main difference between annotation and cards is their outlook. Cards are mor
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to add YouTube Cards
@@ -63,7 +63,7 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Click "Edit" tab under the video screen shot you want to add the card on
@@ -79,7 +79,7 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Apply changes and exit
@@ -95,13 +95,17 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -141,10 +145,6 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -166,22 +166,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/lite-yoga-routines-youtubes-leading-fitness-sites-for-2024/"><u>[New] Elite Yoga Routines YouTube's Leading Fitness Sites for 2024</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-leveraging-desktop-for-maximum-tiktok-exposure/"><u>[New] In 2024, Leveraging Desktop for Maximum TikTok Exposure</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-superior-methods-for-soundless-footage/"><u>[New] In 2024, Superior Methods for Soundless Footage</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ideo-excellence-started-with-quality-cameras-and-lenses/"><u>[New] Video Excellence Started with Quality Cameras and Lenses</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-smart-youtubers-playbook-fixing-short-snafus/"><u>[Updated] 2024 Approved The Smart Youtuber's Playbook Fixing Short Snafus</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-pause-unrequested-youtube-video-selections/"><u>[Updated] In 2024, Pause Unrequested YouTube Video Selections</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-perfect-your-crafting-skills-using-these-7-sounds-tracks/"><u>[Updated] In 2024, Perfect Your Crafting Skills Using These 7 Sounds Tracks</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-quick-and-easy-guide-to-exquisite-collage-artistry/"><u>[Updated] Quick & Easy Guide to Exquisite Collage Artistry</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-can-creators-earn-from-product-video-reviews/"><u>2024 Approved Can Creators Earn From Product Video Reviews?</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-pro-tip-8-key-sites-to-harvest-free-eco-friendly-filming-backdrops/"><u>2024 Approved Pro Tip! 8 Key Sites to Harvest FREE Eco-Friendly Filming Backdrops</u></a></li>
-<li><a href="https://techidaily.com/how-to-soft-reset-tecno-spark-10-pro-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Tecno Spark 10 Pro phone? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 6 Ways to Change Spotify Location On Your Honor Magic 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Honor Magic 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-master-the-art-of-ios-screen-recording/"><u>In 2024, Master the Art of iOS Screen Recording</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-transform-your-youtube-experience-with-bespoeid-shorts-thumbnails/"><u>In 2024, Transform Your YouTube Experience with Bespoeid Shorts Thumbnails</u></a></li>
-<li><a href="https://fox-access.techidaily.com/the-most-compelling-free-ae-design-samples/"><u>The Most Compelling Free AE Design Samples</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/op-10-accelerating-youtube-platforms-for-motivation-and-inspiration-for-2024/"><u>The Top 10 Accelerating YouTube Platforms for Motivation and Inspiration for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-15-inspiring-youtube-guides-for-aspiring-singers-and-instrumentalists/"><u>[New] 2024 Approved 15 Inspiring YouTube Guides for Aspiring Singers and Instrumentalists</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-filmmakers-roadmap-creating-youtube-trailers-using-filmora/"><u>[New] 2024 Approved The Filmmaker's Roadmap Creating YouTube Trailers Using Filmora</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-web-integration-adding-youtube-playlists-easily/"><u>[New] 2024 Approved Web Integration Adding YouTube Playlists Easily</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/on-tripod-techniques-for-still-cameras/"><u>[New] Non-Tripod Techniques for Still Cameras</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-viral-visionaries-hashes-that-transform-short-videos-into-hits/"><u>[Updated] Viral Visionaries Hashes that Transform Short Videos Into Hits</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/bypassing-the-developer-cannot-be-verified-hurdle-on-your-mac-device/"><u>Bypassing the 'Developer Cannot Be Verified' Hurdle on Your Mac Device</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/create-professional-film-teasers-from-home-complimentary-video-editing-tools/"><u>Create Professional Film Teasers From Home - Complimentary Video Editing Tools</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Samsung Galaxy A14 5G? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-learn-how-to-lock-stolen-your-iphone-15-pro-max-properly-drfone-by-drfone-ios/"><u>In 2024, Learn How To Lock Stolen Your iPhone 15 Pro Max Properly | Dr.fone</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/recuperacion-eficiente-de-archivos-y-directorios-guia-completa/"><u>Recuperación Eficiente De Archivos Y Directorios: Guía Completa</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ltimate-guide-to-adding-youtube-media-to-google-slides-for-2024/"><u>The Ultimate Guide to Adding YouTube Media to Google Slides for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/tips-dealing-with-unverified-application-warnings-on-pc/"><u>Tips: Dealing with 'Unverified Application' Warnings on PC</u></a></li>
 </ul></div>
 

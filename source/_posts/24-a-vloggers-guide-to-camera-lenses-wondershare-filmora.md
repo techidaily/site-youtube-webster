@@ -1,7 +1,7 @@
 ---
 title: "In 2024, A Vlogger's Guide To Camera Lenses | Wondershare Filmora"
-date: 2024-08-27T14:07:52.710Z
-updated: 2024-08-28T14:07:52.710Z
+date: 2024-12-01T01:19:17.463Z
+updated: 2024-12-04T00:50:20.230Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,10 @@ In this article, I’m going to help you figure that out.
 * [Part 5: Aperture](#aperture)
 * [Part 6: Vlogging With a Fast Lens](#VloggingWithAFastLens)
 * [Part 7: Optical Image Stabilization](#OpticalImageStabilization)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Three Focal Length Groups: Wide, Standard, Telephoto
 
@@ -78,20 +82,22 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Focal Length Equivalency Table
 
 This table shows you the focal lengths needed to achieve the same shot between cameras with different sensor sizes. In order to take a shot as wide as the shot I took of myself with the 24mm lens on my full-frame camera, I would need a 15mm lens on an APS-C sensor camera or a 12mm lens on a micro 4/3 camera.
@@ -108,31 +114,27 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Vlogging With a Fast Lens
 
 #### Pros of Vlogging With a Fast Lens
@@ -167,14 +169,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -183,4 +182,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-boosting-views-with-captivating-intros-filmed-in-imovie/"><u>[New] In 2024, Boosting Views with Captivating Intros Filmed in iMovie</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-enhance-your-profile-with-free-imagery/"><u>[New] In 2024, Enhance Your Profile with Free Imagery</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rime-gear-picks-for-beginning-creators-for-2024/"><u>[New] Prime Gear Picks for Beginning Creators for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-step-by-step-techniques-for-optimal-voice-recording-on-set/"><u>[New] Step-By-Step Techniques for Optimal Voice Recording on Set</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/treamline-your-thumbnail-design-journey-today-for-2024/"><u>[New] Streamline Your Thumbnail Design Journey Today for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-starter-guide-8-easy-youtube-money-makers/"><u>[Updated] 2024 Approved Starter Guide 8 Easy YouTube Money-Makers</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-best-mac-alternatives-for-expert-screen-recording-and-playback-for-2024/"><u>[Updated] Best Mac Alternatives for Expert Screen Recording & Playback for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-elevate-your-traffic-ethically-youtubes-best-practices-for-2024/"><u>[Updated] Elevate Your Traffic Ethically YouTube's Best Practices for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-top-5-alternative-editors-beyond-youtubes-limits/"><u>[Updated] In 2024, Top 5 Alternative Editors Beyond Youtube's Limits</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-streamline-editing-workflow-with-youtube-video-editor/"><u>[Updated] Streamline Editing Workflow with YouTube Video Editor</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-ultimate-biking-experience-index/"><u>2024 Approved Ultimate Biking Experience Index</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-sony-xperia-1-v-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Sony Xperia 1 V Phones with/without a PC</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-top-earnings-achiever-in-the-streaming-world/"><u>In 2024, Top Earnings Achiever in the Streaming World</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/l-media-live-platforms-facebook-vs-youtube-live-and-twitter-periscope/"><u>Social Media Live Platforms FACEbook Vs. YOUTube Live & Twitter Periscope</u></a></li>
+<li><a href="https://common-error.techidaily.com/solving-apex-legends-simple-cheat-protection-issue-step-by-step-guide/"><u>Solving Apex Legends' Simple Cheat Protection Issue: Step-by-Step Guide</u></a></li>
+</ul></div>
 

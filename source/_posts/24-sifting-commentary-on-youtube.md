@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Sifting Commentary on YouTube"
-date: 2024-08-27T14:13:40.900Z
-updated: 2024-08-28T14:13:40.900Z
+date: 2024-12-02T07:28:48.322Z
+updated: 2024-12-04T08:29:42.120Z
 tags:
   - ai video
   - ai youtube
@@ -31,6 +31,10 @@ Are you trying to search for something on a document or a web page? You know how
 
 So, if you want to search YouTube comments quickly, what can you do? We will show you in this blog.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Using the Built-in YouTube Studio Feature to Search Comments
 
 How does the built-in YouTube Studio Feature make searching comments on YouTube easier?
@@ -59,6 +63,10 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 ![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can combine these additional filters to narrow your comments search for YouTube.
 
 ## Part 2: Using YCS – YouTube Comment Search Extension
@@ -74,8 +82,9 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: Using Comments Search for YouTube Extension
 
 If you are looking for an easy method to search YouTube comments, you can use the Comments Search for YouTube extension. Google Chrome supports this extension that allows you to search comments on YouTube without leaving the website.
@@ -103,8 +112,9 @@ This mode allows you to enter special commands to carry out an advanced search. 
 3. ‘:creator’ to get comments made by the creator
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
@@ -112,8 +122,9 @@ Did you post a comment on your favorite celebrity’s video? Do you think it may
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Use the Comment History feature to Search Comments?
 
 You can see all the comments you have posted in the Comment History in a few quick steps.
@@ -124,15 +135,8 @@ You can see all the comments you have posted in the Comment History in a few qui
 
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
 If you are a creator on YouTube, the comments section becomes very important. Subscribers comment words of praise, encouragement, and feedback which help you grow. You may want to keep track of your most loyal followers. The best way to know that is by knowing who comments most on your videos.
@@ -156,23 +160,17 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -181,4 +179,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-digital-symphony-adding-tracks-to-youtube-hub/"><u>[New] In 2024, Digital Symphony Adding Tracks to Youtube Hub</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-monetization-tracker-tool-for-online-videos/"><u>[New] In 2024, Monetization Tracker Tool for Online Videos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-ultimate-guide-to-ios-photography-apps-x-8/"><u>[New] In 2024, Ultimate Guide to iOS Photography Apps (X, 8)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-premier-perks-for-your-gopro-camera-for-2024/"><u>[New] Premier Perks for Your GoPro Camera for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-ideal-tags-elevating-your-contents-discovery-potential/"><u>[Updated] 2024 Approved Ideal Tags Elevating Your Content's Discovery Potential</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-delicious-ideas-top-30-creative-recipe-show-titles/"><u>[Updated] In 2024, Delicious Ideas Top 30 Creative Recipe Show Titles</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-rising-stars-in-content-creation-lawful-view-boosting-methods/"><u>2024 Approved Rising Stars in Content Creation Lawful View Boosting Methods</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-easy-fixes-how-to-recover-forgotten-icloud-password-on-your-iphone-14-by-drfone-ios/"><u>In 2024, Easy Fixes How To Recover Forgotten iCloud Password On your iPhone 14</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/mastering-window-management-switch-from-tabs-to-separate-windows-on-google-chrome-for-android-devices/"><u>Mastering Window Management: Switch From Tabs to Separate Windows on Google Chrome for Android Devices</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/music-transfer-essentials-keeping-your-playlist-alive/"><u>Music Transfer Essentials Keeping Your Playlist Alive</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/pixlr-essentials-10-pro-tips-to-transform-your-images-for-2024/"><u>Pixlr Essentials 10 Pro Tips to Transform Your Images for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/select-the-perfect-smartwatch-5-must-know-criteria-for-informed-shopping/"><u>Select the Perfect Smartwatch: 5 Must-Know Criteria for Informed Shopping</u></a></li>
+<li><a href="https://common-error.techidaily.com/solution-why-your-minecraft-multiplayer-is-lagging-and-how-to-resolve-it/"><u>Solution: Why Your Minecraft Multiplayer Is Lagging and How to Resolve It</u></a></li>
+<li><a href="https://win-top.techidaily.com/top-surfer-seo-strategies-boost-your-ranking-with-seopower-suite/"><u>Top Surfer SEO Strategies: Boost Your Ranking with SEOPower Suite</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ideo-formats-for-maximum-youtube-engagement-for-2024/"><u>Top Video Formats for Maximum YouTube Engagement for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Design Best Practices for Engaging YouTube Thumbnails"
-date: 2024-08-27T14:11:03.468Z
-updated: 2024-08-28T14:11:03.468Z
+date: 2024-12-03T09:29:01.211Z
+updated: 2024-12-03T22:27:14.411Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,10 @@ Here are the Dos and Don’ts of YouTube Channel Art.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What Kind of Background Should I Use?
 
 #### _DO: High-Quality Photos_
@@ -52,6 +56,10 @@ When choosing great photos for your background, pick ones that are high quality 
 Using patterns for the background of your channel banner can help your channel look super creative and stand out from others. However, if you use a pattern that is chaotic and hard on the eyes, you may not attract many subscribers. When using patterns, choose patterns that are not heavy in color and have too many lines or shapes. There should be an evenness to the shapes and negative space within the pattern itself. Try to stay away from patterns that are 3D which can conflict with the viewer’s eyesight and make them dizzy.
 
 ![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Should I Use My Face?
 
@@ -69,12 +77,13 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ## Part 3: What Should I Write on My Banner?
 
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### _Do: Include Your Channel Name_
 
@@ -97,8 +106,9 @@ Including social media icons in your channel art lets people know where they can
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 _Make sure everything important fits in the safe area!_
 
 #### _Do: Include Brief Channel Description or Tag Line_
@@ -112,8 +122,9 @@ YouTubers that use tag lines are using their channel as a platform to carry out 
 Whether you decide to use descriptive words or a tag line, they will help your channel tremendously by setting expectations for your viewers.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 4: How Can I Make My Channel Art Look Good?
 
 #### _Do: Create Consistent Branding_
@@ -134,37 +145,25 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 
 Now that you know how to make a good YouTube banner, what will you do next?
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Touch Up YouTube Videos with Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -173,4 +172,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/ow-to-make-money-from-youtube-shorts-requirements-and-earning-potential/"><u>[New] How to Make Money From YouTube Shorts Requirements and Earning Potential</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-integrating-moving-images-into-non-paid-content/"><u>[New] In 2024, Integrating Moving Images Into Non-Paid Content</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-mastering-your-marketing-edge-establishing-a-biz-page-on-instagram/"><u>[New] Mastering Your Marketing Edge Establishing a Biz Page on Instagram</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-unlocking-your-online-opportunities-a-complete-guide-to-measuring-views-revenue-and-growth/"><u>[Updated] 2024 Approved Unlocking Your Online Opportunities A Complete Guide to Measuring Views, Revenue, and Growth</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-how-to-host-a-webinar-on-youtube-for-free/"><u>[Updated] How to Host a Webinar on YouTube for Free</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-captivating-cycles-on-ig-perfecting-the-boomerang-effect/"><u>[Updated] In 2024, Captivating Cycles on IG Perfecting the Boomerang Effect</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-revolutionize-video-closings-exclusive-end-screen-templates/"><u>[Updated] Revolutionize Video Closings - Exclusive End Screen Templates</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-maximize-your-consoles-potential-top-monitors-explored/"><u>2024 Approved Maximize Your Console's Potential - Top Monitors Explored</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/beginners-guide-enjoying-vr-content-via-2-quick-methods/"><u>Beginner's Guide: Enjoying VR Content via 2 Quick Methods</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-brands-together-a-guide-to-selecting-youtube-teams-for-2024/"><u>Building Brands Together A Guide to Selecting YouTube Teams for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/crafting-shocking-news-titles-expert-for-2024/"><u>Crafting Shocking News Titles Expert for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/diy-installation-of-chatgpt-for-windows-users-a-comprehensive-guide/"><u>DIY Installation of ChatGPT for Windows Users: A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-creative-video-ends-top-6-budget-friendly-options/"><u>In 2024, Creative Video Ends Top 6 Budget-Friendly Options!</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-transform-your-facebook-vids-to-mp3-easy-and-fast/"><u>In 2024, Transform Your Facebook Vids to MP3 - Easy & Fast</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Asus ROG Phone 7 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/tigating-the-financial-benefits-of-each-youtube-watcher-for-2024/"><u>Investigating the Financial Benefits of Each YouTube Watcher for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-face-off-analyzing-the-features-of-apple-watch-s9-and-fitbit-charge-6/"><u>The Ultimate Face-Off: Analyzing the Features of Apple Watch S9 and Fitbit Charge 6</u></a></li>
+</ul></div>
 

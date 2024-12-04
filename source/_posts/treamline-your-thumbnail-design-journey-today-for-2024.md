@@ -1,7 +1,7 @@
 ---
 title: "[New] Streamline Your Thumbnail Design Journey Today for 2024"
-date: 2024-11-23T19:05:15.015Z
-updated: 2024-11-24T18:50:58.738Z
+date: 2024-11-27T03:06:48.024Z
+updated: 2024-12-04T03:14:46.161Z
 tags:
   - ai video
   - ai youtube
@@ -36,7 +36,7 @@ Youtube is one of the widely and most used video-sharing platforms all around th
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to make a thumbnail for Youtube using AI Portrait
@@ -67,17 +67,21 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
@@ -92,7 +96,7 @@ With time, Filmora brings new and advanced features for its users to equip them 
 ![ai-portrait-thumbnail-step11](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 12:** Once you are satisfied with the final results, click on the Camera icon below the preview screen or press "Ctrl+Alt+S" to take the screenshot.
@@ -108,14 +112,10 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -138,20 +138,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-clear-youtubes-obscured-visual-field/"><u>[New] 2024 Approved Clear Youtube's Obscured Visual Field</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-exclusive-7-discreet-media-tools/"><u>[New] 2024 Approved Exclusive 7 Discreet Media Tools</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-turn-your-youtube-videos-into-lively-gifs-without-saving-files/"><u>[New] 2024 Approved Turn Your YouTube Videos Into Lively GIFs Without Saving Files</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/rand-yourself-differently-strategies-for-finding-uncommon-names-for-2024/"><u>[New] Brand Yourself Differently Strategies for Finding Uncommon Names for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-sonic-storytelling-how-to-enhance-ig-stories-with-melodies-for-2024/"><u>[New] Sonic Storytelling How to Enhance IG Stories with Melodies for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-low-cost-cameras-that-dont-compromise-quality/"><u>[Updated] In 2024, Low-Cost Cameras That Don't Compromise Quality</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-profit-mastery-on-youtube-a-cross-device-guide-for-2024/"><u>[Updated] Profit Mastery on YouTube A Cross-Device Guide for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-unraveling-youtubes-viewer-metrics-a-deeper-look/"><u>2024 Approved Unraveling YouTube's Viewer Metrics A Deeper Look</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-zero-cost-techniques-for-video-and-text-combination/"><u>2024 Approved Zero-Cost Techniques for Video and Text Combination</u></a></li>
-<li><a href="https://win-answers.techidaily.com/beat-installation-hurdles-steps-to-get-minecraft-up-and-running-on-windows-11-systems/"><u>Beat Installation Hurdles: Steps to Get Minecraft Up and Running on Windows 11 Systems</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/harnessing-quoras-poe-for-llm-and-chatbot-access/"><u>Harnessing Quora’s POE for LLM & Chatbot Access</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-elevating-your-streaming-experience-switching-between-spotify-and-youtube-music/"><u>In 2024, Elevating Your Streaming Experience Switching Between Spotify & YouTube Music</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/masterful-motion-secrets-from-a-pro-canon-time-lapse-viewer-for-2024/"><u>Masterful Motion Secrets From a Pro Canon Time-Lapse Viewer for 2024</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/reasons-for-realme-narzo-60x-5g-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Realme Narzo 60x 5G Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/video-earnings-explored-in-depth-look-at-dm-and-yo-for-2024/"><u>Video Earnings Explored In-Depth Look at Dm & Yo for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-hourly-headliners-the-leading-yt-videos-in-the-last-24-hours/"><u>[New] 2024 Approved Hourly Headliners The Leading YT Videos in the Last 24 Hours</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-art-of-creating-compelling-youtube-video-outlines/"><u>[New] 2024 Approved The Art of Creating Compelling YouTube Video Outlines</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-vr-adventures-that-will-captivate-you/"><u>[Updated] 2024 Approved VR Adventures That Will Captivate You</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-essential-guide-to-hashtagging-for-game-focused-yt-channels-for-2024/"><u>[Updated] Essential Guide to Hashtagging for Game-Focused YT Channels for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-inquiry-into-youtubes-monetary-frequency/"><u>[Updated] Inquiry Into YouTube's Monetary Frequency</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-can-a-brief-subscribe-boost-your-content-viewing/"><u>2024 Approved Can a Brief Subscribe Boost Your Content Viewing?</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-motorola-moto-g23-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Motorola Moto G23 | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/acclaimed-creators-superior-insta-hlv-page-builders/"><u>Acclaimed Creators Superior Insta HLV Page Builders</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/fy-engagement-utilizing-youtube-analytics-wisely/"><u>Amplify Engagement Utilizing YouTube Analytics Wisely</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-gaming-setup-essentials-revealed-for-2024/"><u>Elite Gaming Setup Essentials Revealed for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-authenticity-of-your-youtube-account/"><u>Ensuring Authenticity of Your YouTube Account</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/startup-to-success-skyrocketing-youtube-subs/"><u>From Startup to Success Skyrocketing Youtube Subs</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/movavis-quick-guide-to-convert-your-ogg-recordings-into-mp3-without-costing-a-penny/"><u>Movavi's Quick Guide to Convert Your OGG Recordings Into MP3 Without Costing a Penny</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/no-more-crashes-optimizing-dragon-age-origins-gameplay-on-windows-10-systems/"><u>No More Crashes: Optimizing Dragon Age: Origins Gameplay on Windows 10 Systems</u></a></li>
+<li><a href="https://network-issues.techidaily.com/overcome-display-issues-with-windows-11-update/"><u>Overcome Display Issues with Windows 11 Update</u></a></li>
+<li><a href="https://win-studio.techidaily.com/protection-sauvegarde-des-fichiers-and-windows-11/"><u>Protection, Sauvegarde Des Fichiers, and Windows 11.</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/quick-tips-enabling-easy-access-with-windows-auto-login-feature/"><u>Quick Tips: Enabling Easy Access with Windows Auto Login Feature</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/ultimate-touchscreen-laptop-guide-in-depth-analysis-by-professionals-gadgetsphere/"><u>Ultimate Touchscreen Laptop Guide: In-Depth Analysis by Professionals | GadgetSphere</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/video-management-made-easy-the-best-practices-in-mov-on-win-11/"><u>Video Management Made Easy The Best Practices in .MOV on Win 11</u></a></li>
 </ul></div>
 

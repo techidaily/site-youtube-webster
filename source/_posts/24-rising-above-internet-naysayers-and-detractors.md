@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Rising Above Internet Naysayers and Detractors"
-date: 2024-11-20T17:03:32.373Z
-updated: 2024-11-24T23:48:54.195Z
+date: 2024-11-30T07:16:24.506Z
+updated: 2024-12-03T17:09:51.225Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/ce4adb63fa2c2ea65274491b10b565805f9f069cb
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/ce4adb63fa2c2ea65274491b10b565805f9f069cb
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,20 +83,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ntry-level-expenditure-cost-effective-platforms-for-youtube-purchases/"><u>[New] Entry-Level Expenditure Cost-Effective Platforms for YouTube Purchases</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-heartstrings-harmony-best-music-to-accompany-your-engagement/"><u>[New] Heartstrings Harmony Best Music to Accompany Your Engagement</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-motivating-hr-chronicles-the-best-ten-vids/"><u>[New] In 2024, Motivating HR Chronicles - The Best Ten Vids</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-master-photovideo-optimization-while-travelling/"><u>[New] Master Photo/Video Optimization While Travelling</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/t-microphone-match-wallet-friendly-finds-and-favorites-for-2024/"><u>[New] YT Microphone Match Wallet-Friendly Finds & Favorites for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-tailoring-audience-for-your-youtube-videos/"><u>[Updated] In 2024, Tailoring Audience for Your Youtube Videos</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-unveiling-t-series-youtube-earnings/"><u>2024 Approved Unveiling T-Series' Youtube Earnings</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-xiaomi-redmi-12-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Xiaomi Redmi 12 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/movmp4-movavi/"><u>网络上免费MOV转化为MP4格式 - 利用Movavi转换工具</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/delving-into-ffmpeg-for-pure-unchanged-auditory-extraction-for-2024/"><u>Delving Into FFmpeg for Pure, Unchanged Auditory Extraction for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/enjoy-disney-movies-on-a-bigger-screen-connecting-disneyplus-with-chromecast-made-easy/"><u>Enjoy Disney Movies on a Bigger Screen: Connecting Disney+ with Chromecast Made Easy</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/fast-track-command-management-in-windows-1011/"><u>Fast-Track Command Management in Windows 10/11</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-infinix-hot-30-5g-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Infinix Hot 30 5G to Outlook | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-unlock-from-apple-iphone-se-2020-how-to-fix-it-by-drfone-ios/"><u>In 2024, Apple ID Unlock From Apple iPhone SE (2020)? How to Fix it?</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-instrumental-showcase-highlighting-the-best-15-video-techniques/"><u>In 2024, Instrumental Showcase Highlighting the Best 15 Video Techniques</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/0-yt-channels-surging-ideas-and-insights-unleashed/"><u>[New] 10 YT Channels Surging Ideas and Insights Unleashed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-bypassing-blackouts-with-video-tips/"><u>[New] 2024 Approved Bypassing Blackouts with Video Tips</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-elevate-views-with-science-backed-timing-tactics/"><u>[New] 2024 Approved Elevate Views with Science-Backed Timing Tactics</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-from-script-to-screen-building-a-youtube-trailer-in-filmora/"><u>[New] 2024 Approved From Script to Screen Building a YouTube Trailer in Filmora</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-perfect-purity-extract-background-from-your-photos-at-home/"><u>[Updated] 2024 Approved Perfect Purity Extract Background From Your Photos at Home</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-stillness-to-streamline-adding-blurring-beauty-to-illustrator-photos/"><u>[Updated] From Stillness to Streamline Adding Blurring Beauty to Illustrator Photos</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-echoes-in-motion-mac-for-sound-artists/"><u>[Updated] In 2024, Echoes in Motion Mac for Sound Artists</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-conversion-made-simple-youtube-to-mp3-mac-edition/"><u>Audio Conversion Made Simple YouTube to MP3, Mac Edition</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/boost-your-ai-essential-methods-to-pair-chatgpt-with-the-wolfram-enhancement/"><u>Boost Your AI: Essential Methods to Pair ChatGPT with the Wolfram Enhancement</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-to-convert-youtube-videos-into-text-no-cost/"><u>Learn to Convert YouTube Videos Into Text – No Cost</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/logic-pros-way-to-softly-diminish-loud-passages-for-2024/"><u>Logic Pro's Way to Softly Diminish Loud Passages for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/motorolas-moto-g-power-unveiled-remarkable-endurance-meets-smooth-functionality/"><u>Motorola's Moto G Power Unveiled: Remarkable Endurance Meets Smooth Functionality</u></a></li>
+<li><a href="https://win11.techidaily.com/quiet-windows-11-ceasing-background-tasks/"><u>Quiet Windows 11: Ceasing Background Tasks</u></a></li>
 </ul></div>
 

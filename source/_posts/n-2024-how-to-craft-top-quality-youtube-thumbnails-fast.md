@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, How To Craft Top Quality YouTube Thumbnails Fast"
-date: 2024-08-27T14:08:20.281Z
-updated: 2024-08-28T14:08:20.281Z
+date: 2024-12-01T06:01:18.179Z
+updated: 2024-12-04T03:49:33.732Z
 tags:
   - ai video
   - ai youtube
@@ -43,9 +43,17 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step1](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
 
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 03:** Change the Aspect Ratio to 16:9 if it is not set to it already. 16:9 aspect ratio is the standard size of Youtube thumbnails that represents the best possible results.
 
@@ -55,9 +63,17 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step4](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 05:** If you want to use your custom background, you can import it into the Filmora by clicking import or dragging and dropping it in the media section.
 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
 
@@ -97,20 +113,21 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,8 +136,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/he-secrets-to-boosting-your-income-via-youtube-shorts-monetization/"><u>[New] The Secrets to Boosting Your Income via YouTube Shorts Monetization</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nveiling-youtubes-new-era-post-vidcon-events-for-2024/"><u>[New] Unveiling Youtube's New Era Post-VidCon Events for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solved-garrys-mod-keeps-crashing-2024-tips/"><u>[Solved] Garry's Mod Keeps Crashing | 2024 Tips</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-ultimate-voice-transformation-devices-for-creators/"><u>[Updated] 2024 Approved Ultimate Voice Transformation Devices for Creators</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-basics-of-online-videos-the-easiest-10-ideas-for-beginners-on-youtube/"><u>[Updated] Basics of Online Videos The Easiest 10 Ideas for Beginners on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-crafting-curls-and-contours-creating-a-personalized-beauty-channel/"><u>[Updated] In 2024, Crafting Curls and Contours Creating a Personalized Beauty Channel</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-skyrocket-viewer-count-efficient-templated-content-creation-in-youtube-descs/"><u>[Updated] In 2024, Skyrocket Viewer Count Efficient Templated Content Creation in YouTube Descs</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-flashback-screen-recorder-review/"><u>2024 Approved FlashBack Screen Recorder Review</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-the-ultimate-guide-to-filming-for-virality-on-youtube/"><u>2024 Approved The Ultimate Guide to Filming for Virality on YouTube</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-xiaomi-redmi-note-13-proplus-5g-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Xiaomi Redmi Note 13 Pro+ 5G Phone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-novice-to-pro-paving-the-way-in-graphics-careers/"><u>In 2024, From Novice to Pro Paving the Way in Graphics Careers</u></a></li>
+<li><a href="https://video-capture.techidaily.com/webcam-video-mastery-edit-enhance-and-distribute-for-2024/"><u>Webcam Video Mastery Edit, Enhance & Distribute for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/win-11-storage-management-relocate-your-onedrive/"><u>Win 11 Storage Management: Relocate Your OneDrive</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

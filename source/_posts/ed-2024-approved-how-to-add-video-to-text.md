@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Add Video to Text\""
-date: 2024-11-20T00:36:48.980Z
-updated: 2024-11-24T18:02:04.003Z
+date: 2024-11-28T22:12:15.668Z
+updated: 2024-12-03T22:09:32.369Z
 tags:
   - ai video
   - ai youtube
@@ -33,10 +33,6 @@ Luckily, video editing and presentation software products offer the tools you wi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to Add Video to Text for Free with PowerPoint?
 
 An effective PowerPoint presentation should contain proportionate amounts of textual and visual elements. Using too many images, videos or animations can make following a presentation difficult, just as too much text can render a presentation too static.
@@ -55,12 +51,16 @@ Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down
 
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Adding Video to Text in Filmora
@@ -68,6 +68,10 @@ You can then fine-tune the video playback settings from the Playback tab. Previe
 Besides presentation software, you can also use video editing software products to add a video to text. Filmora lets you add a video to text in just a few simple steps. You can first make a text video with animation first, and then use the picture in picture feature to add the video to text. Here are the detailed information about how to add a video to text in Filmora.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
@@ -78,7 +82,7 @@ Set the preferred duration of the title by dragging one of its ends to the left 
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
@@ -86,10 +90,6 @@ Proceed to select a font and adjust the text size before deciding if you want to
 Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
 
@@ -104,7 +104,7 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -128,21 +128,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-igtv-vs-youtube-differences-and-which-one-should-you-use/"><u>[New] 2024 Approved IGTV VS YouTube Differences and Which One Should You Use?</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-unveiling-the-ultimate-collection-of-42-premium-free-video-compression-tools/"><u>[New] In 2024, Unveiling the Ultimate Collection of 42 Premium Free Video Compression Tools</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-top-7-essential-tiktok-apps-for-rapid-asset-expansion/"><u>[New] Top 7 Essential TikTok Apps for Rapid Asset Expansion</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-visual-magic-grading-through-hue-manipulation/"><u>[Updated] 2024 Approved Visual Magic Grading Through Hue Manipulation</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-the-beginners-blueprint-for-creating-a-sports-chain-on-mac/"><u>[Updated] In 2024, The Beginner's Blueprint for Creating a Sports Chain on Mac</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-masterful-guide-to-gaming-banners-on-youtube/"><u>[Updated] Masterful Guide to Gaming Banners on YouTube</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-step-into-success-with-instant-youtube-thumbnail-skills-for-2024/"><u>[Updated] Step Into Success with Instant YouTube Thumbnail Skills for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-transforming-doubt-into-action-channeling-vlogger-excellence-for-2024/"><u>[Updated] Transforming Doubt Into Action Channeling Vlogger Excellence for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-swing-mastery-kit/"><u>2024 Approved Swing Mastery Kit</u></a></li>
-<li><a href="https://windows11.techidaily.com/accelerate-profit-with-windows-11-pro-capture-best-offers/"><u>Accelerate Profit with Windows 11 Pro: Capture Best Offers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ing-engagement-youtube-strategies-for-increased-viewership-for-2024/"><u>Boosting Engagement YouTube Strategies for Increased Viewership for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/te-engagement-top-hashtags-for-gameplay-vids/"><u>Elevate Engagement Top Hashtags for Gameplay Vids</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-configuring-who-can-see-your-youtube-clips/"><u>In 2024, Configuring Who Can See Your YouTube Clips</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-oneplus-12r-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How OnePlus 12R Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/leading-giant-nlp-models-unveiling-the-six-most-powerful-llms/"><u>Leading Giant NLP Models: Unveiling the Six Most Powerful LLMs</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/the-digital-symphony-blizzard-and-microsoft-harmonize-gaming-and-ai-mastery-podcast-exploration/"><u>The Digital Symphony: Blizzard and Microsoft Harmonize Gaming & AI Mastery [Podcast Exploration]</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-elevate-reality-tiktoks-artistic-transformations/"><u>[New] 2024 Approved Elevate Reality TikTok's Artistic Transformations</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-future-of-development-understanding-the-impact-of-next-gen-frameworks/"><u>[New] 2024 Approved The Future of Development Understanding the Impact of Next-Gen Frameworks</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-ai-integration-for-vr-marketplaces/"><u>[New] AI Integration for VR Marketplaces</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/omparing-youtube-and-dailymotion-notable-contrasts/"><u>[New] Comparing YouTube and Dailymotion Notable Contrasts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-teach-with-technology-effective-use-of-youtube-in-education/"><u>[New] In 2024, Teach with Technology Effective Use of YouTube in Education</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-weaving-narrative-threads-into-trailers/"><u>[New] Weaving Narrative Threads Into Trailers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-strategies-for-thriving-in-creator-studio/"><u>2024 Approved Strategies for Thriving in Creator Studio</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-syncopating-stories-a-how-to-for-music-on-instagram/"><u>2024 Approved Syncopating Stories A How-To for Music on Instagram</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-velocity-in-virtue-share-your-youtube-lists-fast/"><u>2024 Approved Velocity in Virtue Share Your YouTube Lists Fast</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-oneplus-11-5g-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset OnePlus 11 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-blandness-optimize-your-thumbnail-with-20-fonts-for-2024/"><u>Avoid Blandness - Optimize Your Thumbnail with 20 Fonts for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-tecno-pop-8-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Tecno Pop 8 Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/expressing-affection-in-diverse-languages/"><u>Expressing Affection in Diverse Languages</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-captivate-crowds-social-media-growth-hacks-for-youtube/"><u>In 2024, Captivate Crowds Social Media Growth Hacks for YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-playlist-perfection-weaving-youtube-videos-into-webpages/"><u>In 2024, Playlist Perfection Weaving YouTube Videos Into Webpages</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-updated-method-to-bypass-infinix-smart-8-plus-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Infinix Smart 8 Plus FRP</u></a></li>
+<li><a href="https://fox-that.techidaily.com/the-definitive-troubleshooting-guide-for-restoring-light-to-your-iphones-face/"><u>The Definitive Troubleshooting Guide for Restoring Light to Your iPhone's Face</u></a></li>
 </ul></div>
 

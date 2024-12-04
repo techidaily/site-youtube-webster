@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Leveraging Videos with Text  A Cost-Free Approach\""
-date: 2024-11-20T23:24:17.332Z
-updated: 2024-11-25T07:01:19.374Z
+date: 2024-11-27T07:57:23.148Z
+updated: 2024-12-03T18:42:33.378Z
 tags:
   - ai video
   - ai youtube
@@ -45,10 +45,6 @@ Head over to the Insert tab, select Rectangle from the Shapes menu, and create a
 
 ![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
 
 Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down menu. The shape of the text in the textbox will be applied to the object in the background, which enables you to add a video to that text.
@@ -59,6 +55,10 @@ Click on the Insert tab, and then choose the Video option from the Media menu. Y
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Adding Video to Text in Filmora
 
 Besides presentation software, you can also use video editing software products to add a video to text. Filmora lets you add a video to text in just a few simple steps. You can first make a text video with animation first, and then use the picture in picture feature to add the video to text. Here are the detailed information about how to add a video to text in Filmora.
@@ -66,7 +66,7 @@ Besides presentation software, you can also use video editing software products 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
@@ -74,22 +74,22 @@ You should start by creating a new project in Filmora and importing the video yo
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
 
 Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
 
@@ -104,7 +104,7 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -128,18 +128,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-streamlining-your-social-space-stop-following-steps/"><u>[New] 2024 Approved Streamlining Your Social Space Stop Following Steps</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-engaging-tactics-for-increased-subscriber-count/"><u>[New] In 2024, Engaging Tactics for Increased Subscriber Count</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-ps-gaming-audio-masterclass-vocal-tweaks-for-2024/"><u>[New] PS Gaming Audio Masterclass - Vocal Tweaks for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-flair-and-finesse-in-your-gaming-youtube-channel/"><u>[Updated] 2024 Approved Flair and Finesse in Your Gaming YouTube Channel</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-how-often-do-youtubers-receive-income/"><u>[Updated] In 2024, How Often Do YouTubers Receive Income?</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-achieving-professional-level-youtube-streams-using-wirecast/"><u>2024 Approved Achieving Professional-Level Youtube Streams Using WireCast</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-three-foundational-elements-for-powerful-facebook-ad-headlines/"><u>2024 Approved Three Foundational Elements for Powerful Facebook Ad Headlines</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/discover-the-budget-friendly-iphone-14-pro-max-exceptional-battery-life-and-more-features-to-delight-your-senses-insights-from-zdnet/"><u>Discover the Budget-Friendly iPhone 14 Pro Max: Exceptional Battery Life & More Features to Delight Your Senses - Insights From ZDNet</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Nokia C110 | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-tecno-spark-10-4g-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Tecno Spark 10 4G Without PUK Codes</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/mastering-ssd-data-retrieval-comprehensive-steps-for-successful-operation/"><u>Mastering SSD Data Retrieval: Comprehensive Steps for Successful Operation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-202n-apple-macbook-air-m1-13-inch-a-leap-in-laptop-technology/"><u>The Ultimate Guide to the 202N Apple MacBook Air (M1, 13-Inch): A Leap in Laptop Technology</u></a></li>
-<li><a href="https://driver-install.techidaily.com/universal-adb-drivers-effortless-connectivity-comes-first/"><u>Universal ADB Drivers: Effortless Connectivity Comes First!</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ree-film-resource-highlights-where-to-start-your-search/"><u>[New] Free Film Resource Highlights Where to Start Your Search</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-soft-sonata-reducing-volume-in-os/"><u>[New] Soft Sonata Reducing Volume in OS</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/tand-out-as-an-elite-gamer-on-youtube-for-2024/"><u>[New] Stand Out as an Elite Gamer on Youtube for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/op-essentials-for-launching-a-youtube-success-story-for-2024/"><u>[New] Top Essentials for Launching a YouTube Success Story for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nderstanding-and-crafting-youtube-live-thumbnails-for-2024/"><u>[New] Understanding and Crafting YouTube Live Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-clearing-up-confusion-understanding-digital-rights-management-drm/"><u>[Updated] Clearing Up Confusion Understanding Digital Rights Management (DRM)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-dialing-in-on-youtube-success-identifying-ranks-boosters/"><u>[Updated] In 2024, Dialing in on YouTube Success Identifying Ranks Boosters</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-seo-essentials-for-climbing-the-youtube-popularity-ladder/"><u>[Updated] In 2024, SEO Essentials for Climbing the YouTube Popularity Ladder</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-your-journey-to-instagram-dominance-started-here-for-2024/"><u>[Updated] Your Journey to Instagram Dominance, Started Here for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-high-flying-rivals-dji-drone-vs-gopro/"><u>2024 Approved High-Flying Rivals DJI Drone vs GoPro</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1722876392027-discover-the-most-intriguing-secrets-of-emojis-a-list-of-unexpected-findings/"><u>Discover the Most Intriguing Secrets of Emojis: A List of Unexpected Findings</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Apple iPhone 11 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-optimal-lighting-for-stellar-video-production/"><u>In 2024, Optimal Lighting for Stellar Video Production</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-tackling-teal-turmoil-eliminate-green-screen-glitches-mac-edition/"><u>In 2024, Tackling Teal Turmoil Eliminate Green Screen Glitches (Mac Edition)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-your-ultimate-source-for-online-video-to-mp3-downloads/"><u>In 2024, Your Ultimate Source for Online Video to MP3 Downloads</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-linguistic-etiquette-in-china/"><u>Learning Linguistic Etiquette in China</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/streamlining-windows-1011-photography-setup/"><u>Streamlining Windows 10/11 Photography Setup</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/top-5-valheim-seed-recommendations-for-bountiful-crops-for-2024/"><u>Top 5 Valheim Seed Recommendations for Bountiful Crops for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/update-your-system-with-the-newest-nvidia-quadro-rtx-amo-4000-driver-pack/"><u>Update Your System with the Newest Nvidia Quadro RTX Amo 4000 Driver Pack</u></a></li>
 </ul></div>
 

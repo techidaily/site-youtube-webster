@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Transforming Doubt Into Action  Channeling Vlogger Excellence\""
-date: 2024-11-18T06:32:49.408Z
-updated: 2024-11-24T22:41:08.331Z
+date: 2024-11-27T00:47:17.005Z
+updated: 2024-12-04T06:35:24.620Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ When we watch the most popular YouTubers, the traits that make them successful a
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **1\. Be Authentic**
 
 People opt to watch vlogs because they want to see something real.
@@ -44,6 +48,10 @@ Vlogging is about honesty, telling a story that is truthful and showing your per
 There will be an urge for you to mimic other vloggers, talking and acting the way they do, but savvy YouTube viewers will be able to see your faux personality pretty quickly.
 
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **2\. Tell A Story**
 
@@ -55,6 +63,10 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -62,10 +74,6 @@ There is a saying that a great ending to a story is that it is [surprising, yet 
 The ending needs to be justified even if there is a twist. Everything before that had worked to build up the tension and when it concludes it needs to be logical. However, the ending cannot be something that the audience can guess. Remember those mystery movies where you know who the murderer is after the first few scenes? Yeah… those aren’t satisfying. A good story ends with a surprise, and with everything prior leading up to it.
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
 
@@ -88,7 +96,7 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **6\. Be Prepared**
@@ -100,10 +108,6 @@ Additionally, knowing what to say makes you a better host for your vlog. Watch y
 Good preparation includes having all your gear ready for filming when you need it. There is nothing worse than being set to shoot and running out of battery or memory.
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **7\. Be Expressive**
 
@@ -139,14 +143,10 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -170,14 +170,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/apid-fire-guide-to-successful-double-exposures/"><u>[New] Rapid-Fire Guide to Successful Double Exposures</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-in-depth-vita-video-editing-analysis-and-step-by-step-guide/"><u>[Updated] In 2024, In-Depth Vita Video Editing Analysis & Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-strategies-for-soaring-up-the-youtube-ranks-list/"><u>[Updated] Strategies for Soaring Up the YouTube Ranks List</u></a></li>
-<li><a href="https://video-capture.techidaily.com/1726028723469-tiktok/"><u>効果的な手順：TikTok動画の自動ダウンロードと保存方法</u></a></li>
-<li><a href="https://win-answers.techidaily.com/call-of-dutys-black-ops-cold-war-mastering-crash-fixes-for-a-seamless-pc-gaming-experience/"><u>Call of Duty's Black Ops Cold War - Mastering Crash Fixes for a Seamless PC Gaming Experience</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-samsung-galaxy-a15-4g-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Samsung Galaxy A15 4G | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-how-to-recover-hidden-shorts-thumbnails-in-videos/"><u>In 2024, How to Recover Hidden Shorts' Thumbnails in Videos</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-youtubes-best-gamers-audio-selection-guide/"><u>In 2024, YouTube's Best Gamers' Audio Selection Guide</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/seamless-transitions-the-art-of-editing-with-garagebands-power-tools/"><u>Seamless Transitions The Art of Editing with GarageBand's Power Tools</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-optimal-lens-selection-for-smooth-vlogging-experience/"><u>[New] 2024 Approved Optimal Lens Selection for Smooth Vlogging Experience</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-most-economical-tools-for-youtube-audio-conversion/"><u>[New] 2024 Approved The Most Economical Tools for YouTube Audio Conversion</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-9-innovative-workout-challenges-for-dynamic-viewers/"><u>[New] In 2024, 9 Innovative Workout Challenges for Dynamic Viewers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-visual-producer-studio/"><u>[Updated] 2024 Approved Visual Producer Studio</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-mastering-audio-diminishment-in-lumafusion/"><u>[Updated] Mastering Audio Diminishment in Lumafusion</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-elevate-your-edits-top-10-youtube-editing-strategies/"><u>2024 Approved Elevate Your Edits Top 10 YouTube Editing Strategies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-empowering-enterprises-through-vr-engagement/"><u>2024 Approved Empowering Enterprises Through VR Engagement</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/5-must-try-websites-for-cost-free-effects/"><u>5 Must-Try Websites for Cost-Free Effects</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/prehensive-walkthrough-creating-channel-banners/"><u>A Comprehensive Walkthrough Creating Channel Banners</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-vivo-y100i-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Vivo Y100i | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-elite-tech-for-saving-your-on-camera-video-memories/"><u>In 2024, Elite Tech for Saving Your On-Camera Video Memories</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-step-by-step-tutorial-broadcasting-360-video-on-youtube-live/"><u>In 2024, Step-by-Step Tutorial Broadcasting 360 Video on YouTube Live</u></a></li>
+<li><a href="https://win11.techidaily.com/the-complete-guide-to-sign-off-other-windows-11-users/"><u>The Complete Guide to Sign Off Other Windows 11 Users</u></a></li>
+<li><a href="https://win-superb.techidaily.com/the-elusive-window-of-opportunity-closes-as-msquietly-dashes-windows-10-support-hopes-zdnet/"><u>The Elusive Window of Opportunity Closes as MSQuietly Dashes Windows 10 Support Hopes | ZDNET</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-and-resolving-code-41-hardware-conflicts-on-your-pc/"><u>Troubleshooting and Resolving Code 41 Hardware Conflicts on Your PC</u></a></li>
 </ul></div>
 

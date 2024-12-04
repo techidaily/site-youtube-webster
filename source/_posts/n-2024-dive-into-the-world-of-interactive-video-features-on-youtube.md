@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Dive Into the World of Interactive Video Features on YouTube"
-date: 2024-08-27T14:12:52.190Z
-updated: 2024-08-28T14:12:52.190Z
+date: 2024-11-29T08:22:32.744Z
+updated: 2024-12-03T22:07:21.133Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,10 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -58,12 +62,20 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
 * Once you finish the subsequent information required click create card
 * Select the timeline for the playhead to appear which leads to the card slide
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes and exit
 
@@ -77,10 +89,18 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -126,14 +146,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,8 +159,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-creating-powerful-teacher-content-on-youtube-top-10-insights/"><u>[New] 2024 Approved Creating Powerful Teacher Content on YouTube Top 10 Insights</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-building-a-compelling-cinematic-snippet/"><u>[New] Building a Compelling Cinematic Snippet</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-integrating-moving-images-into-non-paid-content/"><u>[New] In 2024, Integrating Moving Images Into Non-Paid Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-investors-guide-to-best-financial-youtube-sources/"><u>[New] In 2024, Investors' Guide to Best Financial YouTube Sources</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-how-to-reduce-audio-noise-in-video-recording-free-and-paid/"><u>[Updated] 2024 Approved How to Reduce Audio Noise in Video Recording [Free and Paid]</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-pro-timer-swiftest-time-lapse-device/"><u>[Updated] 2024 Approved Pro Timer Swiftest Time-Lapse Device</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-crafting-conversational-magic-how-to-write-podcast-scripts/"><u>[Updated] Crafting Conversational Magic How to Write Podcast Scripts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-unlock-your-videos-potential-with-youtube-link-building-techniques/"><u>[Updated] In 2024, Unlock Your Video's Potential with YouTube Link Building Techniques</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-revolutionize-video-closings-exclusive-end-screen-templates/"><u>[Updated] Revolutionize Video Closings - Exclusive End Screen Templates</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-free-to-mix-unveiling-two-dji-devices-with-20-luts-complimentary/"><u>2024 Approved Free to Mix - Unveiling Two DJI Devices with 20 LUTS Complimentary</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-perfect-timekeeping-a-guide-to-adding-timestamps-in-youtube-links/"><u>2024 Approved Perfect Timekeeping A Guide to Adding Timestamps in YouTube Links</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/y-download-your-favorites-handpicked-tools-reviewed-for-2024/"><u>Easily Download Your Favorites Handpicked Tools Reviewed for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-picks-leading-karaoke-devices-dominating-the-market/"><u>Expert Picks: Leading Karaoke Devices Dominating the Market</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exploring-chatgpts-new-beta-a-comprehensive-tutorial-on-turning-on-browsing-and-plugins/"><u>Exploring ChatGPT’s New Beta: A Comprehensive Tutorial on Turning On Browsing & Plugins</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-a-visual-voyage-through-youtubes-2017-data-deluge/"><u>In 2024, A Visual Voyage Through Youtube's 2017 Data Deluge</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-learning-on-film-school-vid-editing-best-practices/"><u>In 2024, Learning on Film School Vid Editing Best Practices</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-leveraging-youtubes-community-how-to-find-and-create-collab-videos/"><u>In 2024, Leveraging YouTube's Community How to Find & Create Collab Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/tigating-the-financial-benefits-of-each-youtube-watcher-for-2024/"><u>Investigating the Financial Benefits of Each YouTube Watcher for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/iphone-security-hacked-how-to-get-into-your-locked-device-without-a-pin/"><u>IPhone Security Hacked: How to Get Into Your Locked Device Without a PIN</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->

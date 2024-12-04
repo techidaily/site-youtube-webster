@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Crafting Effective YouTube Thumbnails & Banners"
-date: 2024-11-22T22:29:36.699Z
-updated: 2024-11-24T20:26:20.260Z
+date: 2024-11-27T20:29:40.422Z
+updated: 2024-12-03T21:28:51.917Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/b707c0511382e78c7bbc2631c8c2ac749bfdb8b7d
 The art on your [YouTube channel](https://tools.techidaily.com/wondershare/filmora/download/) – banners, thumbnails, icons, and watermarks – will help to determine how viewers feel about your vlog. If your art does not look like it all goes together then people will get a sloppy, amateurish, impression of your channel. However, if your different pieces of channel art all seem to complement each other and match the tone and theme of your channel then it will help viewers to have a pleasant browsing experience. They will get the impression that you take your YouTube channel seriously and that they can trust you as a source of information, comedy, or general entertainment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Make YouTube Banners and Thumbnails
@@ -70,7 +70,7 @@ There are sites online that will allow you to edit images and use them in templa
 ![banner n thumb Canva](https://images.wondershare.com/filmora/article-images/banner-n-thumb-Canva.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Canva** has templates you can use to create YouTube banners, as well as a variety of stock images you can use in combination with your own when creating channel art. It is free to edit images on Canva, but they do have some premium features which cost $1 each to access. This service has both a desktop version and an iPad app.
@@ -78,7 +78,7 @@ There are sites online that will allow you to edit images and use them in templa
 ![banner n thumb PicMonkey](https://images.wondershare.com/filmora/article-images/banner-n-thumb-PicMonkey.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **PicMonkey** lets you import images from your computer or social media accounts, edit them, and use them in templates for YouTube banners or other kinds of social media graphics. PicMonkey is free to use, but you can only access their more advanced editing tools if you buy a paid subscription. Monthly subscriptions are $4.99 per month, and yearly subscriptions are $2.75 per month.
@@ -86,7 +86,7 @@ There are sites online that will allow you to edit images and use them in templa
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -110,22 +110,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ash-rides-high-with-well-crafted-youtube-shorts/"><u>[New] Cash Rides High with Well-Crafted YouTube Shorts</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-learn-to-redefine-your-instagram-sound-with-ease/"><u>[New] Learn to Redefine Your Instagram Sound with Ease</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/aximize-engagement-with-proper-youtube-video-dimensions-for-2024/"><u>[New] Maximize Engagement with Proper YouTube Video Dimensions for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-frame-by-frame-building-a-filmmaking-foundation-on-youtube-for-2024/"><u>[Updated] Frame by Frame Building a Filmmaking Foundation on YouTube for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-excellent-live-feed-frames/"><u>[Updated] In 2024, Excellent Live Feed Frames</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-unveiling-the-hidden-pathways-to-earning-on-youtube/"><u>[Updated] In 2024, Unveiling the Hidden Pathways to Earning on YouTube</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-premium-fonts-with-dynamic-movement/"><u>[Updated] Premium Fonts with Dynamic Movement</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-smartest-spots-for-knowquizzes-a-new-year-ranking-2024/"><u>[Updated] Smartest Spots for KNOWQuizzes - A New Year Ranking, 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-giggle-galore-curating-the-funniest-10-short-form-web-series-ideas/"><u>2024 Approved Giggle Galore Curating the Funniest 10 Short-Form Web Series Ideas</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/easy-guide-to-honor-x50-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Honor X50 FRP Bypass With Best Methods</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/s-of-exploration-your-step-by-step-blueprint-to-becoming-a-travel-vlogger-for-2024/"><u>Echoes of Exploration Your Step-by-Step Blueprint to Becoming a Travel Vlogger for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/redits-designed-for-you-free-top-6-suggestions-for-2024/"><u>End Credits Designed for You Free Top 6 Suggestions for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/how-to-create-a-google-meet-account/"><u>How to Create a Google Meet Account</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-instagram-insights-identifying-your-posts-audience/"><u>In 2024, Instagram Insights Identifying Your Post's Audience</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-simplified-processes-generating-your-podcasts-rss-feed/"><u>In 2024, Simplified Processes Generating Your Podcast's RSS Feed</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ltimate-guide-to-multi-video-watching-on-youtube-for-2024/"><u>The Ultimate Guide to Multi-Video Watching on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/wide-rich-list-top-earning-youtubers/"><u>Worldwide Rich List Top Earning YouTubers</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-4k-resolution-reimagined-picking-the-right-vision-technology/"><u>[New] 4K Resolution Reimagined Picking the Right Vision Technology</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-master-list-of-youtube-templates-for-beginners/"><u>[New] In 2024, Master List of YouTube Templates for Beginners</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-turning-viewers-into-valuables-a-creators-guide-to-youtube-monetization/"><u>[Updated] 2024 Approved Turning Viewers Into Valuables A Creator’s Guide to YouTube Monetization</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-maximizing-audience-engagement-with-youtube-shorts-templates/"><u>[Updated] Maximizing Audience Engagement with YouTube Shorts Templates</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-elevate-video-content-with-proven-strategies-for-youtube-shorts-growth/"><u>2024 Approved Elevate Video Content with Proven Strategies for YouTube Shorts Growth</u></a></li>
+<li><a href="https://apple-account.techidaily.com/detailed-guide-on-removing-apple-iphone-6-activation-lock-without-previous-owner-by-drfone-ios/"><u>Detailed Guide on Removing Apple iPhone 6 Activation Lock without Previous Owner?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/discover-retro-your-path-to-facebook-archives/"><u>Discover Retro Your Path to Facebook Archives</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-capturing-attention-from-content-creation-to-commerce/"><u>In 2024, Capturing Attention From Content Creation to Commerce</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Samsung Galaxy S23 FE? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlocking-the-potential-of-webex-exploring-its-merits-and-defects-in-digital-gatherings/"><u>Unlocking the Potential of WebEx: Exploring Its Merits and Defects in Digital Gatherings</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/unveiling-the-origin-discover-who-founded-the-qing-manchu-empire-in-1644-insights-by-yl-computing-and-software-solutions/"><u>Unveiling the Origin: Discover Who Founded the Qing (Manchu) Empire in 1644 - Insights by YL Computing and Software Solutions</u></a></li>
 </ul></div>
 

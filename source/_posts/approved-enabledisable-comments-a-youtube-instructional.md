@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Enable/Disable Comments  A YouTube Instructional\""
-date: 2024-11-24T01:59:43.876Z
-updated: 2024-11-24T22:17:59.840Z
+date: 2024-11-27T16:28:01.889Z
+updated: 2024-12-04T10:12:58.364Z
 tags:
   - ai video
   - ai youtube
@@ -45,10 +45,6 @@ Use your favorite web browser to go to YouTube and sign in to your Google accoun
 
 ![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Step 2: Go to Channel’s Advanced Settings
 
 From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
@@ -68,7 +64,7 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 2\. Define Acceptable Comment Types
@@ -84,7 +80,7 @@ Back on the **YouTube Studio** page, click **Content** from the left pane. From 
 ![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### **Additional Info about Comments Options**
@@ -106,6 +102,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 * **Disable comments**
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
@@ -130,7 +130,7 @@ From under the **Audience** section in the right window of the **Video details**
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -164,7 +164,7 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -188,18 +188,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-foodie-frenzy-top-10-viral-eats-on-tiktok/"><u>[New] Foodie Frenzy Top 10 Viral Eats on TikTok</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/he-pathway-to-smart-youtube-frames-free-methods-inside/"><u>[New] The Pathway to Smart YouTube Frames (Free Methods Inside!)</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/he-synergy-between-youtube-and-creative-commons-licensinas/"><u>[New] The Synergy Between YouTube and Creative Commons Licensinas</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-the-ultimate-guide-for-ios-album-arrangement-and-icloud-cloud-syncing-mastery/"><u>[Updated] 2024 Approved The Ultimate Guide for iOS Album Arrangement & iCloud Cloud Syncing Mastery</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-minds-on-trial-best-general-knowledge-channels-for-2024/"><u>[Updated] Minds on Trial Best General Knowledge Channels for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-examining-youtubes-mobile-app-for-iosandroid-devices/"><u>2024 Approved Examining YouTube's Mobile App for iOS/Android Devices</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/tial-youtube-marketing-techniques-ranked-from-best-to-worst-for-2024/"><u>Essential YouTube Marketing Techniques – Ranked From Best to Worst for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-6s-plus-to-other-iphone-11-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 6s Plus to other iPhone 11 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Oppo Reno 11 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-vivo-y78plus-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Vivo Y78+</u></a></li>
-<li><a href="https://driver-error.techidaily.com/resolve-non-functioning-qualcomm-atheros-bluetooth-drivers-in-windows-11-step-by-step-guide/"><u>Resolve Non-Functioning Qualcomm Atheros Bluetooth Drivers in Windows 11 - Step by Step Guide</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/resolving-qt-not-found-application-launch-issue/"><u>Resolving Qt Not Found Application Launch Issue</u></a></li>
-<li><a href="https://techtrends.techidaily.com/unveiling-the-distinctive-features-of-mac-vs-pc-an-in-depth-comparison/"><u>Unveiling the Distinctive Features of Mac vs PC: An In-Depth Comparison</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-lifelong-banishment-process-for-compact-youtube-videos/"><u>[New] 2024 Approved Lifelong Banishment Process for Compact YouTube Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-major-listing-of-affordable-visual-content-sites/"><u>[New] In 2024, Major Listing of Affordable Visual Content Sites</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-streamline-your-shoots-top-lenses-recommended-by-professionals/"><u>[New] In 2024, Streamline Your Shoots Top Lenses Recommended by Professionals</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-the-ultimate-selection-for-captivating-youtube-content-starts/"><u>[New] In 2024, The Ultimate Selection for Captivating YouTube Content Starts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-video-production-pro-tips-incorporating-audio-into-youtube-content/"><u>[New] In 2024, Video Production Pro Tips Incorporating Audio Into YouTube Content</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-picture-perfect-viewing-the-best-8k-monitors-uncovered/"><u>[New] Picture Perfect Viewing The Best 8K Monitors Uncovered</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-youtube-revenue-per-million-viewer-count/"><u>[Updated] 2024 Approved Youtube Revenue Per Million Viewer Count</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-innovation-unleashed-leading-professionals-360cameras/"><u>[Updated] In 2024, Innovation Unleashed Leading Professionals’ 360°Cameras</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-on-screen-recording-assistant/"><u>[Updated] In 2024, On-Screen Recording Assistant</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-step-by-step-guide-to-a-distinctive-youtube-channel-url/"><u>[Updated] In 2024, Step-by-Step Guide to a Distinctive YouTube Channel URL</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-samsung-galaxy-m54-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Samsung Galaxy M54 5G without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-pictures-from-tecno-spark-10c-by-fonelab-android-recover-pictures/"><u>How to Rescue Lost Pictures from Tecno Spark 10C?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-the-ultimate-guide-to-motorola-moto-g13-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to Motorola Moto G13 Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/e-investigation-the-streamlined-3-part-method-to-assess-your-youtube-income-levels-for-2024/"><u>Income Investigation The Streamlined 3-Part Method to Assess Your YouTube Income Levels for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-innovative-sound-editing-top-4-applications-redefining-music-production-on-mac/"><u>New 2024 Approved Innovative Sound Editing - Top 4 Applications Redefining Music Production on Mac</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/the-ultimate-compilation-of-techniques-to-source-background-images/"><u>The Ultimate Compilation of Techniques to Source Background Images</u></a></li>
+<li><a href="https://solve-howtos.techidaily.com/top-7-snelheden-tactiek-voor-de-beperking-van-open-ruimte-op-uw-bureaalbord-met-windows-10/"><u>Top 7 Snelheden Tactiek Voor De Beperking Van Open Ruimte Op Uw Bureaalbord Met Windows 10</u></a></li>
 </ul></div>
 

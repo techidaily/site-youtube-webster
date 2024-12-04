@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Exploring Video Realms  Significant Post-VidCon Conclaves\""
-date: 2024-08-27T14:10:41.281Z
-updated: 2024-08-28T14:10:41.281Z
+date: 2024-11-28T16:59:00.551Z
+updated: 2024-12-03T21:35:39.002Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 5. [RTX (US/UK/Australia)](#rtx)
 6. [Amplify Live (Australia)](#amplify)
 7. [Summer in the City (UK)](#sitc)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **The Most Important YouTube Events**
 
@@ -80,6 +84,10 @@ You have a two-week window (usually the first half of May) to submit your choice
 
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
 
 Playlist Live prides itself on having ‘non-stop interactive activities.’ These include chances to meet your favorite creators on the Saturday and Sunday of the event. Which meetups you get to attend are determined by first-come-first-serve online signup.
@@ -114,6 +122,10 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
 In 2017, 30,000 people attended Beautycon festivals internationally.
@@ -137,6 +149,10 @@ The final type of pass, the **Two-Day Beauty Insider** ($1999) pass, has everyth
 These events are customized to the wherever festival is visiting, so you’re always sure to see the big and rising YouTube stars from your region. Generally, these events include performances and activities as well as a Meet & Greet.
 
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
 
@@ -188,6 +204,10 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -218,14 +238,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -234,8 +251,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-prime-10-video-edits-boost-your-webcam-experience/"><u>[New] 2024 Approved Prime 10 Video Edits Boost Your Webcam Experience</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-youtube-thumbnails-top-20-font-selection-tips/"><u>[New] 2024 Approved YouTube Thumbnails Top 20 Font Selection Tips</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-from-eyeballs-to-earnings-the-price-of-popular-videos/"><u>[New] In 2024, From Eyeballs to Earnings The Price of Popular Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-quick-and-clean-video-extraction-for-all-screens/"><u>[New] In 2024, Quick and Clean Video Extraction for All Screens</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/kyrocketing-traffic-the-ultimate-guide-to-youtube-outros-partnerships/"><u>[New] Skyrocketing Traffic The Ultimate Guide to YouTube Outros Partnerships</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/inter-vibes-selecting-heated-background-ideas/"><u>[New] Winter Vibes Selecting Heated Background Ideas</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solved-dell-audio-not-working-quickly-and-easily/"><u>[Solved] Dell Audio Not Working – Quickly & Easily</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-constructing-youtube-playlists-made-simple/"><u>[Updated] 2024 Approved Constructing YouTube Playlists Made Simple</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-effortlessly-replay-videos-on-iphone/"><u>[Updated] Effortlessly Replay Videos on iPhone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-exercise-innovations-6-youtube-ideas-for-movement-focused-viewers/"><u>[Updated] In 2024, Exercise Innovations 6 YouTube Ideas for Movement-Focused Viewers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-best-cameras-to-amplify-your-yt-presence/"><u>2024 Approved Best Cameras to Amplify Your YT Presence</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-vintage-video-upgrade/"><u>2024 Approved Vintage Video Upgrade</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-the-norm-eye-catching-talents-amongst-female-youtube-stars-for-2024/"><u>Breaking the Norm Eye-Catching Talents Amongst Female YouTube Stars for 2024</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/erase-with-confidence-expert-strategies-for-safely-clearing-out-your-external-solid-state-drive-for-optimal-security/"><u>Erase with Confidence: Expert Strategies for Safely Clearing Out Your External Solid State Drive for Optimal Security</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-latest-samsung-device-drivers-direct-download-links/"><u>Get the Latest Samsung Device Drivers - Direct Download Links</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/hide-face-details-picart-privacy-mode/"><u>Hide Face Details PicArt Privacy Mode</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-optimal-strategies-for-enhancing-vhs-photos-digitally/"><u>In 2024, Optimal Strategies for Enhancing VHS Photos Digitally</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/srts-most-effective-upgrades-for-macwindows-for-2024/"><u>SRT's Most Effective Upgrades for Mac/Windows for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-guide-updating-drivers-in-windows-11/"><u>Step-by-Step Guide: Updating Drivers in Windows 11</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->

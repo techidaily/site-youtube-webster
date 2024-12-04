@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, 4 Ways To Set Up Your Talking-Head Shots For YouTube\""
-date: 2024-11-19T00:51:27.680Z
-updated: 2024-11-25T01:19:09.419Z
+date: 2024-11-28T06:10:58.379Z
+updated: 2024-12-04T08:30:17.356Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Set Up Your Talking Heads Shots for YouTube Video \[Infographic\]
@@ -47,14 +47,14 @@ We’ve summarized the key points about setting up talking head style video shot
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -109,7 +109,7 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips for Making a Talking Head Video Better
@@ -121,7 +121,7 @@ To make a talking-head video more interesting, you can add some background music
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -145,14 +145,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/atire-spectacle-youtubes-top-comedic-talent-list-for-2024/"><u>[New] Satire Spectacle YouTube's Top Comedic Talent List for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-micro-enterprises-guide-to-viral-video-promotion/"><u>[Updated] In 2024, Micro-Enterprises' Guide to Viral Video Promotion</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-seamless-browsing-try-these-7-android-adblockers/"><u>[Updated] Seamless Browsing? Try These 7 Android AdBlockers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-unlocking-youtubes-hidden-view-tracking-method/"><u>2024 Approved Unlocking YouTube’s Hidden View Tracking Method</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-honor-magic5-ultimate-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Honor Magic5 Ultimate | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/from-common-to-coveted-a-pokemon-shiny-tale-92/"><u>From Common to Coveted: A Pokémon Shiny Tale (92)</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-old-messages-from-your-tecno-spark-10-4g-by-fonelab-android-recover-messages/"><u>How to recover old messages from your Tecno Spark 10 4G</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-meizu-21-pro-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Meizu 21 Pro Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On Lava Yuva 3 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-epic-battle-royale-thumbnails-done-fast/"><u>[New] 2024 Approved Epic Battle Royale Thumbnails, Done Fast</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-essential-video-calls-phone-and-pcs-finest-tools/"><u>[New] Essential Video Calls Phone & PC's Finest Tools</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-filmmakers-guide-to-avoiding-overused-channel-labels/"><u>[Updated] 2024 Approved The Filmmaker's Guide to Avoiding Overused Channel Labels</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-audio-amplified-todays-hits-backdropping-yt-shorts/"><u>[Updated] Audio Amplified Today's Hits Backdropping YT Shorts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-discovering-2023s-cinematic-hidden-gems-for-2024/"><u>[Updated] Discovering 2023'S Cinematic Hidden Gems for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-free-youtube-endings-that-stand-out-ranked/"><u>[Updated] In 2024, Free YouTube Endings That Stand Out - Ranked!</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-pixelpioneer-8-version-visual-conjurer-for-2024/"><u>[Updated] PixelPioneer 8-Version Visual Conjurer for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-video-annotations-mastery-cutting-with-precision-and-style-for-2024/"><u>[Updated] Video Annotations Mastery Cutting with Precision & Style for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-youtubes-best-practices-for-maximum-impact-thumbnails-for-2024/"><u>[Updated] YouTube's Best Practices for Maximum Impact Thumbnails for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-transfer-secrets-top-5-tactics-to-move-files-onto-your-pc/"><u>2024 Approved Transfer Secrets Top 5 Tactics to Move Files Onto Your PC</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-uncovering-the-dynamics-of-youtubes-post-upload-system/"><u>2024 Approved Uncovering the Dynamics of YouTube's Post-Upload System</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/comedy-crafters-codex-free-to-unleash-humor-for-2024/"><u>Comedy Crafters' Codex Free to Unleash Humor for 2024</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/enhance-your-computers-speed-with-expert-shortcuts-learn-how-from-yl-tech-solutions/"><u>Enhance Your Computer's Speed with Expert Shortcuts - Learn How From YL Tech Solutions!</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-lenovo-thinkphone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Lenovo ThinkPhone | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixing-the-problem-of-nonfunctional-amd-graphics-driver-software/"><u>Fixing the Problem of Nonfunctional AMD Graphics Driver Software</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/masterful-cloud-keeping-best-service-picks-for-2024/"><u>Masterful Cloud Keeping Best Service Picks for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/cting-your-look-essential-makeup-tips-and-product-reviews-for-2024/"><u>Perfecting Your Look Essential Makeup Tips & Product Reviews for 2024</u></a></li>
 </ul></div>
 

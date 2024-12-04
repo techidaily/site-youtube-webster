@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Turning On/Off Comments with Ease on YouTube Platform\""
-date: 2024-11-18T04:32:29.630Z
-updated: 2024-11-24T20:15:14.111Z
+date: 2024-11-27T01:15:28.072Z
+updated: 2024-12-04T05:32:43.869Z
 tags:
   - ai video
   - ai youtube
@@ -63,15 +63,15 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 2\. Define Acceptable Comment Types
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
 
 ![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 3\. Set Comment Allowance for Videos
 
@@ -80,7 +80,7 @@ Back on the **YouTube Studio** page, click **Content** from the left pane. From 
 ![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### **Additional Info about Comments Options**
@@ -104,7 +104,7 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -127,11 +127,11 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
-**Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+**Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 ## FAQs About YouTube Comments
 
@@ -149,6 +149,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -162,10 +166,6 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -188,22 +188,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/xplore-youtube-rankings-seo-tools-for-peak-performance/"><u>[New] Explore YouTube Rankings SEO Tools for Peak Performance</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/nveiling-the-secrets-how-to-clear-yt-background-for-2024/"><u>[New] Unveiling the Secrets How to Clear YT Background for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/here-to-find/"><u>[New] Where to Find</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-breaking-the-screens-top-10-most-popular-female-youtubers/"><u>[Updated] 2024 Approved Breaking the Screens Top 10 Most Popular Female YouTubers</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-video-sharing-showdown-20-decoding-the-platform-preferences-vimeo-youtubes-and-dailymotions/"><u>[Updated] Video Sharing Showdown 2.0 Decoding the Platform Preferences - Vimeo, YouTubes & DailyMotions</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-deconstructing-the-best-podcast-title-examples/"><u>2024 Approved Deconstructing the Best Podcast Title Examples</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-drive-success-a-comprehensive-list-of-the-best-fb-schedulers/"><u>2024 Approved Drive Success A Comprehensive List of the Best FB Schedulers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/vating-cuts-editor-apps-that-liberate-android-users/"><u>Captivating Cuts Editor Apps That Liberate Android Users</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/exploring-the-upgrades-of-ram-1500s-revamped-model-essential-facts-you-should-know/"><u>Exploring the Upgrades of Ram 1500’S Revamped Model – Essential Facts You Should Know!</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-the-newest-nvidia-geforce-rtx-letease-3070-drivers-for-your-windows-pc-upgrade-and-update-now/"><u>Get the Newest NVIDIA GeForce RTX Letease 3070 Drivers for Your Windows PC - Upgrade & Update Now</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-foremost-10-recording-apps-for-social-media-vids/"><u>In 2024, Foremost 10 Recording Apps for Social Media Vids</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-zte-nubia-z60-ultrawithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on ZTE Nubia Z60 Ultrawith/without a PC</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-why-the-x-chair-x4-desk-chair-outshines-competitors-in-office-comfort/"><u>In-Depth Analysis: Why the X-Chair X4 Desk Chair Outshines Competitors in Office Comfort</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/r-the-art-of-virtual-reality-from-videography-to-youtube-upload-for-2024/"><u>Master the Art of Virtual Reality From Videography to YouTube Upload for 2024</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/new-in-2024-what-is-an-ai-video-maker/"><u>New In 2024, What Is an AI Video Maker?</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/the-hdr-sky-experience-online-resource-listing/"><u>The HDR Sky Experience Online Resource Listing</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/oice-modification-tools-for-youtube-creators-for-2024/"><u>Top Voice Modification Tools for YouTube Creators for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-unleash-your-live-stream-potential-with-superior-webcam-tech/"><u>[New] 2024 Approved Unleash Your Live Stream Potential with Superior Webcam Tech</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-viewpoint-visionaries-capturing-the-essence-with-3-viewpoint-strategies-in-reactions/"><u>[New] 2024 Approved Viewpoint Visionaries Capturing the Essence with 3 Viewpoint Strategies in Reactions</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-navigate-and-watch-harnessing-netflixs-picture-in-picture-functionality/"><u>[New] Navigate and Watch Harnessing Netflix's Picture-in-Picture Functionality</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ransform-your-video-calls-google-meet-on-youtube-guide/"><u>[New] Transform Your Video Calls Google Meet on YouTube Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-from-novice-to-pro-youtube-editing-and-alternatives/"><u>[Updated] 2024 Approved From Novice to Pro YouTube Editing & Alternatives</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-beatbox-recorder-a-compreeved-guide-for-2024/"><u>[Updated] BeatBox Recorder A Compreeved Guide for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-earnings-empire-constructing-a-profitable-youtube-channel/"><u>[Updated] Earnings Empire Constructing a Profitable YouTube Channel</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-bridging-soundscapes-and-visuals-essentials-for-innovative-asmr-videos/"><u>2024 Approved Bridging Soundscapes & Visuals – Essentials for Innovative ASMR Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-strengthen-your-content-identity-inserting-watermarklogo-in-videos/"><u>2024 Approved Strengthen Your Content Identity Inserting Watermark/Logo in Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-unveiling-the-art-of-designing-captivating-valorant-thumbnails/"><u>2024 Approved Unveiling the Art of Designing Captivating Valorant Thumbnails</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-call-logs-from-your-honor-magic5-ultimate-by-fonelab-android-recover-call-logs/"><u>How to recover old call logs from your Honor Magic5 Ultimate?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-call-logs-from-your-vivo-s17t-by-fonelab-android-recover-call-logs/"><u>How to recover old call logs from your Vivo S17t?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-stream-to-success-obs-youtube-broadcast-basics/"><u>In 2024, Stream to Success OBS Youtube Broadcast Basics</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ultimate-guide-to-free-pptp-vpn-for-beginners-on-oneplus-open-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Free PPTP VPN For Beginners On OnePlus Open | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-video-creation-secrets-unveiled-by-lyric-video-maker/"><u>Lyric Video Creation Secrets Unveiled by Lyric Video Maker</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/navigating-through-laptops-and-desktops-expert-advice-on-computers-tailored-for-education/"><u>Navigating Through Laptops and Desktops: Expert Advice on Computers Tailored for Education</u></a></li>
+<li><a href="https://win-blog.techidaily.com/restore-the-soundscape-fixing-audio-glitches-in-your-lost-ark-adventure/"><u>Restore the Soundscape: Fixing Audio Glitches in Your Lost Ark Adventure</u></a></li>
+<li><a href="https://article-files.techidaily.com/the-ue590-review-top-4k-game-display-with-fs/"><u>The UE590 Review Top 4K Game Display with FS</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-ultimate-guide-converting-any-tiktok-sound-into-phone-alerts-for-2024/"><u>The Ultimate Guide Converting Any TikTok Sound Into Phone Alerts for 2024</u></a></li>
 </ul></div>
 

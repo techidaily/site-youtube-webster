@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Unveiling Profits  How Much Do Creators Earn From Each Ad?\""
-date: 2024-11-21T16:13:27.619Z
-updated: 2024-11-24T17:04:35.805Z
+date: 2024-12-02T10:33:02.589Z
+updated: 2024-12-03T17:48:55.398Z
 tags:
   - ai video
   - ai youtube
@@ -44,7 +44,7 @@ The YouTube monetization rates vary significantly because of various factors:
 * Video length
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Part 2\. How Much Do YouTubers Make Per 1,000 Views**
@@ -72,7 +72,7 @@ To get paid from revenues, you need to be eligible for the YouTube Partner Progr
 ![ypp eligibility](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-3.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The specific eligibility criteria include the following:
@@ -86,6 +86,10 @@ The specific eligibility criteria include the following:
 
 Once approved for the YPP, you have the potential to start earning through ads. The revenue-sharing program allows you to earn income for the ads that show on your channel. Specifically, Google will pay you 68% of the revenue from the ads displayed with AdSense. For instance, a video that generates $1,000 from AdSense revenue will pay the YouTuber $680.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Part 4\. The Top 6 Highest Paid YouTubers**
 
 YouTube creates a clear path for the birth of a new breed of celebrities. They have a huge following, and grow their wealth by sharing content with them. Let’s have a look at the top 6 paid YouTubers right now:
@@ -96,10 +100,6 @@ YouTube creates a clear path for the birth of a new breed of celebrities. They h
 * [Rhett and Link - $30 million](#youtuber4)
 * [Unspeakable - $28.5 million](#youtuber5)
 * [Nastya - $28 million](#youtuber6)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **1\.** [**Mr. Beast (Jimmy Donaldson) - $54 Million**](https://www.youtube.com/channel/UCX6OQ3DkcsbYNE6H8uQQuVA)
 
@@ -112,7 +112,7 @@ Ranked first among the highest-paid YouTubers, Jimmy has the most popular channe
 ![jake paul](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-5.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Jake Paul is a renowned American professional boxer. Widely famous on social media, his YouTube is also one of the most highly ranked. He shares different kinds of videos from his boxing games. He also does pranks and reviews about different products.
@@ -127,11 +127,11 @@ Markiplier makes videos about playing games. The YouTube channel, which started 
 
 ![rhett and link](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-7.JPG)
 
-This YouTube channel started as the duo hosting a nerdy daily talk show called _Good Mythical Morning_. It quickly grew into an empire with brand extensions and spinoffs that boosted its views and earnings on YouTube.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+This YouTube channel started as the duo hosting a nerdy daily talk show called _Good Mythical Morning_. It quickly grew into an empire with brand extensions and spinoffs that boosted its views and earnings on YouTube.
 
 ### **5\.** [**Unspeakable - $28.5 million**](https://www.youtube.com/channel/UCwIWAbIeu0xI0ReKWOcw3eg)
 
@@ -143,11 +143,11 @@ Unspeakable talks about Minecraft in the channel. Nathan Graham posts videos of 
 
 ![nastya](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-9.JPG)
 
-Nastya immigrated from Russia with her parents. With over 88 million subscribers on her channel, she chronicles her life in prosaic installments. In 2021, she did a Spotter deal and added other brand extensions like merchandise and NFT collection that contributed added income.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Nastya immigrated from Russia with her parents. With over 88 million subscribers on her channel, she chronicles her life in prosaic installments. In 2021, she did a Spotter deal and added other brand extensions like merchandise and NFT collection that contributed added income.
 
 ## **Part 5\.** **Edit Your Videos for Monetization with [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)**
 
@@ -158,10 +158,6 @@ The amount of money a YouTuber earns depends on several factors. However, the am
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 With the integration of AI, Filmora now offers a wide range of editing features that you can use to automate editing. Instantly generate images, remove image background, and now. These features help create visually appealing and engaging videos that will increase the chances of monetization on YouTube. One of the AI features that stands out is Instant Mode.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### [**Filmora Instant Mode**](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -174,7 +170,7 @@ After opening Filmora on your device, click on Instant Mode. This feature is on 
 ![instant mode 1](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-10.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### **Step 2 – Choose a Template**
@@ -182,6 +178,10 @@ After opening Filmora on your device, click on Instant Mode. This feature is on 
 From the Instant Mode window, choose the video template you want to use. Click on it and play to preview the Video. Once satisfied, click om the Download Slideshow button to start editing your video.
 
 ![instant mode 2](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-11.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### **Step 3 – Import Media Items**
 
@@ -195,15 +195,15 @@ From the top-left corner of the screen, click the “Titles” category. Then ch
 
 ![instant mode 4](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-13.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### **Step 5 – Replace Needed Media Items**
 
 Review all the media items in the timeline, and replace any that you want with another option. The Replace icon allows you to seamlessly achieve this. You can also import new files to replace it with.
 
 ![instant mode 5](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-14.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### **Step 6: Add Project to Timeline**
 
@@ -217,6 +217,10 @@ Click on the Play icon to preview the edited video. Then export it in MP4 format
 
 ![instant mode 7](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-16.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Other Useful Filmora Video Editing Features**
 
 * [AI Portrait](https://tools.techidaily.com/wondershare/filmora/download/) – Remove the background of your videos with high accuracy and choose over 70 portrait and sticker effects.
@@ -224,10 +228,6 @@ Click on the Play icon to preview the edited video. Then export it in MP4 format
 * [AI Image](https://tools.techidaily.com/wondershare/filmora/download/) – Generate an image automatically by typing what you want. Choose from 3 resolutions and use the image directly for your video project
 * [Auto Reframe](https://tools.techidaily.com/wondershare/filmora/download/) – Automatically resize your videos within minutes to use on both YouTube and Shorts.
 * [Auto Beat Sync](https://tools.techidaily.com/wondershare/filmora/download/) – Automatically match the footage with music, giving your video a smooth flow with the music you choose.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Conclusion**
 
@@ -252,24 +252,22 @@ Running a YouTube Channel is lucrative. Although it may take time to build a fol
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-youtube-profile-picture-templates-free-downloads/"><u>[New] 2024 Approved YouTube Profile Picture Templates – Free Downloads</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-5-innovative-yt-tales-share-your-life-journey/"><u>[New] In 2024, 5 Innovative YT Tales Share Your Life Journey</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/implified-sound-conversion-top-6-apps-for-youtube-to-mp3-on-iphone-for-2024/"><u>[New] Simplified Sound Conversion Top 6 Apps for YouTube to MP3 on iPhone for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-unlock-fb-success-with-professional-360-video-tips/"><u>[New] Unlock FB Success with Professional 360 Video Tips</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-elevate-your-youtube-shorts-top-10-strategies-for-uniqueness/"><u>[Updated] 2024 Approved Elevate Your YouTube Shorts Top 10 Strategies for Uniqueness</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-comprehensive-picsart-insight-for-enhanced-creativity/"><u>[Updated] Comprehensive PicsArt Insight for Enhanced Creativity</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-achieving-youtube-earnings-excellence-strategies-and-beyond/"><u>[Updated] In 2024, Achieving YouTube Earnings Excellence - Strategies and Beyond</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-virtual-world-laughter-excavating-the-best-metaverse-jokes/"><u>[Updated] In 2024, Virtual World Laughter Excavating the Best Metaverse Jokes</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-step-by-step-guide-transforming-your-yt-gaming-content-with-hashtags-for-2024/"><u>[Updated] Step-by-Step Guide Transforming Your YT Gaming Content with Hashtags for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-the-ultimate-comparison-vsdc-screen-recorder-vs-other-leading-solutions/"><u>[Updated] The Ultimate Comparison VSDC Screen Recorder vs Other Leading Solutions</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-youtubes-non-indexable-content-decoding-the-unlisted-phenomenon-for-2024/"><u>[Updated] YouTube's Non-Indexable Content Decoding the Unlisted Phenomenon for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-google-pixel-7a-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Google Pixel 7a Fingerprint Lock</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/demonstrate-deep-knowledge-of-product-features-and-benefits-while-offering-clear-explanations-guidance-on-how-to-access-those-features-and-helping-customers416/"><u>Demonstrate Deep Knowledge of Product Features and Benefits While Offering Clear Explanations, Guidance on How to Access Those Features, and Helping Customers Leverage Them for Their Specific Needs.</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/downloading-content-from-apods-with-confidence/"><u>Downloading Content From APods with Confidence</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ting-video-marketing-with-youtube-thumbnails-for-2024/"><u>Elevating Video Marketing with YouTube Thumbnails for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/game-on-top-22-speedy-web-titles-to-entertain-you/"><u>Game On: Top 22 Speedy Web Titles to Entertain You</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-infinix-note-30-pro-phone-without-pin-by-drfone-android/"><u>How to Unlock Infinix Note 30 Pro Phone without PIN</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Lava Blaze 2 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/on-how-to-edit-youtube-channel-description/"><u>Tips on How to Edit YouTube Channel Description</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nlightened-exercits-discovering-the-most-inspiring-yogis-online/"><u>[New] Enlightened Exercits - Discovering the Most Inspiring Yogis Online</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-mellow-music-volume-control-for-mac-and-windows/"><u>[New] Mellow Music Volume Control for Mac & Windows</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-elevate-your-content-game-with-these-powerful-youtube-shortcuts/"><u>[Updated] 2024 Approved Elevate Your Content Game with These Powerful YouTube Shortcuts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-unraveling-the-cash-accumulation-through-viewers-attention/"><u>[Updated] 2024 Approved Unraveling the Cash Accumulation Through Viewers' Attention</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-figures-unveiled-exploring-youtubes-curious-numbers-2017-for-2024/"><u>[Updated] Figures Unveiled! Exploring YouTube's Curious Numbers (2017) for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-opening-doors-creating-an-account-on-youtube/"><u>[Updated] In 2024, Opening Doors Creating an Account on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-mastering-youtube-login-validation-for-2024/"><u>[Updated] Mastering YouTube Login Validation for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-premium-cutter-writers-the-top-8-linux-software/"><u>[Updated] Premium Cutter' Writers The Top 8 Linux Software</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-viral-visionaries-most-watched-clips-2023-for-2024/"><u>[Updated] Viral Visionaries Most Watched Clips 2023 for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-enter-virtual-realms-top-10-immersive-videos/"><u>2024 Approved Enter Virtual Realms Top 10 Immersive Videos</u></a></li>
+<li><a href="https://discover-best.techidaily.com/best-family-friendly-yule-classics-top-10-holiday-films-perfect-for-children/"><u>Best Family-Friendly Yule Classics: Top 10 Holiday Films Perfect for Children</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-honor-magic-5-lite-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Honor Magic 5 Lite</u></a></li>
+<li><a href="https://driver-error.techidaily.com/guide-installing-necessary-drivers-for-your-windows-pc-windows-1187/"><u>Guide: Installing Necessary Drivers for Your Windows PC [WINDOWS 11/8/7]</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-elevate-your-content-youtubes-keyword-strategies-exposed/"><u>In 2024, Elevate Your Content YouTube's Keyword Strategies Exposed</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolving-far-cry-5s-perpetual-boot-loop-a-step-by-step-guide/"><u>Resolving Far Cry 5'S Perpetual Boot Loop - A Step-by-Step Guide</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-recent-calls-back-from-motorola-moto-g14-by-fonelab-android-recover-call-logs/"><u>Simple ways to get recent calls back from Motorola Moto G14</u></a></li>
+<li><a href="https://games-able.techidaily.com/tetris-talent-showdowns-on-android-and-ios-devices/"><u>Tetris Talent Showdowns on Android and iOS Devices</u></a></li>
 </ul></div>
 

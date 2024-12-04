@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Polishing Resilience for Online Criticism"
-date: 2024-11-20T22:35:13.852Z
-updated: 2024-11-25T03:08:40.640Z
+date: 2024-12-03T11:01:18.283Z
+updated: 2024-12-03T21:54:11.675Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/9e3724374b3f93992f56d90c3f06be4bddda301db
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/9e3724374b3f93992f56d90c3f06be4bddda301db
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,19 +83,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/mplify-your-brands-voice-the-power-of-shaped-videos-for-2024/"><u>[New] Amplify Your Brand’s Voice The Power of Shaped Videos for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-hear-the-difference-explore-the-best-voice-changer-software-for-smartphones/"><u>[New] Hear the Difference Explore the Best Voice Changer Software for Smartphones</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-navigating-through-the-top-10-making-magic-on-youtube/"><u>[New] In 2024, Navigating Through the Top 10 Making Magic on YouTube</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-study-aids-top-10-educational-history-channels/"><u>[New] In 2024, Study Aids Top 10 Educational History Channels</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-methodical-path-to-discovering-hidden-youtube-footage/"><u>[New] The Methodical Path to Discovering Hidden YouTube Footage</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-10-tips-to-make-your-youtube-shorts-channels-stand-out/"><u>[Updated] 2024 Approved 10 Tips to Make Your YouTube Shorts Channels Stand Out</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-mellow-playtime-10-top-rated-stress-erasers/"><u>[Updated] Mellow Playtime 10 Top-Rated Stress Erasers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-premium-portables-laptops-to-supercharge-your-creative-work/"><u>[Updated] Premium Portables Laptops to Supercharge Your Creative Work</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/crafting-winning-titles-and-tags-for-your-youtube-videos/"><u>Crafting Winning Titles & Tags for Your YouTube Videos</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-future-scrutiny-alternate-viewpoints/"><u>In 2024, Future Scrutiny Alternate Viewpoints</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/r-the-art-of-youtubing-with-pro-tools/"><u>Master the Art of YouTubing with Pro Tools</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/quick-solutions-for-turtle-beach-elite-atlas-mic-failure-problems/"><u>Quick Solutions for Turtle Beach Elite Atlas Mic Failure Problems</u></a></li>
-<li><a href="https://win-web3.techidaily.com/ssdwindows-10/"><u>SSDへの効率的なWindows 10移行 - クローニング不要</u></a></li>
-<li><a href="https://win11.techidaily.com/understanding-windows-approach-to-sound-channel-division/"><u>Understanding Windows’ Approach to Sound Channel Division</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-boosting-youtube-popularity-two-simple-strategies/"><u>[New] 2024 Approved Boosting YouTube Popularity Two Simple Strategies</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-customizable-mcb-visuals-for-youtube-banners/"><u>[New] 2024 Approved Customizable MCB Visuals for YouTube Banners</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-elevate-your-video-game-with-these-5-youtube-thumbnail-builders/"><u>[New] 2024 Approved Elevate Your Video Game with These 5 YouTube Thumbnail Builders</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-essential-tools-ranking-the-best-mobile-videography-apps/"><u>[New] 2024 Approved Essential Tools Ranking the Best Mobile Videography Apps</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-chucklecanvas-funny-images-for-social-media-sharing/"><u>[Updated] 2024 Approved ChuckleCanvas Funny Images for Social Media Sharing</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-hidden-powerhouses-in-your-instagram-toolkit-for-2024/"><u>[Updated] The Hidden Powerhouses in Your Instagram Toolkit for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-from-humble-beginnings-surging-subscribers-and-views-in-youtube-world/"><u>2024 Approved From Humble Beginnings Surging Subscribers & Views in Youtube World</u></a></li>
+<li><a href="https://games-able.techidaily.com/enhance-gaming-with-these-3-streaming-services/"><u>Enhance Gaming with These 3 Streaming Services</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-process-analytics-the-strategic-alliance-of-alteryx-and-abbyy/"><u>Enhancing Process Analytics: The Strategic Alliance of Alteryx & ABBYY</u></a></li>
+<li><a href="https://fox-info.techidaily.com/expediting-video-aggregation-from-tiktok-in-a-flash-for-2024/"><u>Expediting Video Aggregation From TikTok in a Flash for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-itel-p55plus-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Itel P55+ | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-how-to-record-on-garageband-a-complete-guideline/"><u>New How to Record on GarageBand? A Complete Guideline</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/0-gaming-youtubers-you-may-want-to-subscribe-for-2024/"><u>Top 10 Gaming YouTubers You May Want to Subscribe for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-failed-launches-of-steam-titles-on-windows-10-system/"><u>Troubleshooting Failed Launches of Steam Titles on Windows 10 System</u></a></li>
 </ul></div>
 

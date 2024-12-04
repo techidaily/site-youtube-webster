@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Navigating YouTube Rights  An Expert's Handbook\""
-date: 2024-08-27T14:09:06.710Z
-updated: 2024-08-28T14:09:06.710Z
+date: 2024-11-28T08:53:28.110Z
+updated: 2024-12-04T05:49:48.281Z
 tags:
   - ai video
   - ai youtube
@@ -46,6 +46,10 @@ Without fair use, there wouldn’t be any flexibility for creators. There wouldn
 
 Think of fair use as exceptions to copyright rules.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: What YouTube Considers Fair Use
 
 There are a few aspects YouTube looks at when it comes to determining whether creators are using copyrighted content that meets the fair use exceptions.
@@ -71,8 +75,9 @@ There couldn’t be two more different movies than Toy Story and Fight Club, but
 In this example from The Hillywood Show, we see a parody of both BBC’s Sherlock Holmes and Macklemore & Ryan Lewis’s Thrift Shop. The nuisance of the show and song recreated are there, but nobody who enjoys the originals will sit down and appreciate it in the same way. A parody is in no way trying to replace the original, but rather using the subject, structure, and style of the original as a vessel to another creative work.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 4: What To Do When You Get a YouTube Copyright Strike
 
 If you are reading this, you may have already gotten a YouTube copyright strike.
@@ -90,6 +95,10 @@ So what should you do? Here are the steps to take after you receive a copyright 
 1. Review the copyright strike by going into Creator Studio > Video Manager > Copyright notice
 
 ![YouTube Copyright notice](https://images.wondershare.com/filmora/article-images/youtube-copyright-notice.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Click on the “Copyright Strike” link beside the flagged video to see details
 2. Decide how to respond to the strike:  
@@ -120,8 +129,9 @@ In this example from Screen Prism, we see scenes from Wes Anderson movies all th
 **5\. Keep it short.** There is no precise number of seconds or ratio of copyrighted to original footage you should have in your video to qualify as fair use. But generally, if the copyrighted clip is short and/or broken up, then it stands a better chance at being approved by YouTube.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 6: What to Do When Other YouTubers Are Copying Your Content
 
 As a new YouTuber, it’s a little freaky to think that someone is taking your content and republishing it or using your creations in their video without your permission.
@@ -135,16 +145,14 @@ If you ever notice that your content is being copied without your approval — i
 
 ![report copyright infringement](https://images.wondershare.com/filmora/article-images/report-copyright-infringement-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 1. Select “Infringes my rights” in the pop up window and click “infringes my copyright” in the dropdown options.
 
 ![report copyright infringement](https://images.wondershare.com/filmora/article-images/infringe-my-copyright-report.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 1. Supply additional information to the report form, including the URL of the video infringing your copyrighted content and the URL of your own video.
 2. Submit report and wait for an email confirmation that the infringing content has been removed.
 
@@ -158,9 +166,6 @@ In 2018, YouTube launched a new feature called **Copyright Match Tool**, which a
 
 \- You can report the video to YouTube for removal.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ## Key Takeaways
 
 I hope this article has clarified what you can and cannot do with copyrighted content. Here is a quick summary of what we touched on in this post:
@@ -181,23 +186,17 @@ Got any questions on YouTube copyright? Leave a comment below and we’ll help y
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -206,4 +205,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-capturing-stability-mastering-shaky-images-for-2024/"><u>[New] Capturing Stability Mastering Shaky Images for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-swift-techniques-mastering-effective-double-exposure/"><u>[New] In 2024, Swift Techniques Mastering Effective Double Exposure</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-record-your-mac-in-hd-no-fee/"><u>[New] Record Your Mac in HD No Fee</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/kyrocketing-views-simple-strategies-without-cost-for-2024/"><u>[New] Skyrocketing Views Simple Strategies Without Cost for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-unlocking-steer-clear-from-facebook-ban-blacklist-for-2024/"><u>[New] Unlocking Steer Clear From Facebook Ban Blacklist for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/isualize-success-discover-the-top-10-online-tools-for-channel-branding/"><u>[New] Visualize Success - Discover the Top 10 Online Tools for Channel Branding</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-pathway-to-youtube-prosperity-a-comprehensive-guide/"><u>[Updated] 2024 Approved The Pathway to YouTube Prosperity - A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-essential-8-tools-linux-based-edits-software/"><u>[Updated] Essential 8 Tools Linux-Based Edits Software</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-step-by-step-solution-for-non-shown-shorts-thumbnails-on-youtube/"><u>[Updated] In 2024, Step-by-Step Solution for Non-Shown Shorts Thumbnails on YouTube</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211264707-9781634244916-battlespace-of-mind/"><u>BattleSpace of Mind | Free Book</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/fall-announcements-revealed-explore-new-enhancements-by-apple-for-devices-like-iphone-and-ipad-with-advanced-ai-integration-gadgetpioneer/"><u>Fall Announcements Revealed: Explore New Enhancements by Apple for Devices Like iPhone & iPad with Advanced AI Integration | GadgetPioneer</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-oppo-a78-5g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Oppo A78 5G to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-constructing-youtube-video-content-that-resonates-with-viewers/"><u>In 2024, Constructing YouTube Video Content That Resonates with Viewers</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-itel-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Itel Phone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-mastering-youtube-streams-with-simple-obs-guide/"><u>In 2024, Mastering YouTube Streams with Simple OBS Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ate-your-channels-closing-scenes-free-end-screens/"><u>Innovate Your Channels' Closing Scenes Free End Screens</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/installing-the-latest-hp-840-g3-drivers-free-download-and-instructions/"><u>Installing the Latest HP #840 G3 Drivers – Free Download and Instructions</u></a></li>
+<li><a href="https://techidaily.com/remove-the-lock-of-70-lite-5g-by-drfone-android-unlock-android-unlock/"><u>Remove the lock of 70 Lite 5G</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/ultimate-guide-8-effective-methods-for-bypassing-drm-on-dvds-including-5-costless-solutions/"><u>Ultimate Guide: 8 Effective Methods for Bypassing DRM on DVDs (Including 5 Costless Solutions)</u></a></li>
+</ul></div>
 
