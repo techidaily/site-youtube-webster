@@ -1,7 +1,7 @@
 ---
 title: "[New] Practical Steps for Disabling YouTube Channels on Devices for 2024"
-date: 2024-08-22T22:01:33.535Z
-updated: 2024-08-23T22:01:33.535Z
+date: 2024-12-06T01:37:08.180Z
+updated: 2024-12-11T01:01:51.836Z
 tags:
   - ai video
   - ai youtube
@@ -34,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/cd3d2360a2d4ccd17e303566ba964ef54de4b2742
 * [**Part 2:** **How to block YouTube channels on Mobile Phones (Android & iPhone)**](#part2)
 * [**Part 3:** **How to block content on YouTube Kids**](#part3)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Part 1: How to block YouTube channels on a computer (Mac & Windows)**
 
  Blocking will prevent the user from trolling and bullying you or your channel subscribers. This will effectively prevent them to comment and interact with your video content. However, there is no way for you to prevent the bullies from watching your content you can at least prevent them from damaging your reputation, badmouthing, and inciting your active subscribers.
@@ -49,9 +53,21 @@ thumbnail: https://thmb.techidaily.com/cd3d2360a2d4ccd17e303566ba964ef54de4b2742
 
 ![block user](https://images.wondershare.com/filmora/article-images/block-user2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 4\. You will be prompted to confirm your selection, click **Submit** to confirm.
 
 ![submit and confirm](https://images.wondershare.com/filmora/article-images/submit2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Part 2: How to block YouTube channels on Mobile Phones (Android & iPhone)**
 
@@ -62,6 +78,10 @@ thumbnail: https://thmb.techidaily.com/cd3d2360a2d4ccd17e303566ba964ef54de4b2742
 * 3\. Open a particular account that you intend to block and go to their main account page.
 
 ![find users](https://images.wondershare.com/filmora/article-images/find-users.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * 4\. When you’re on the account page, open the menu at the top-right corner of the screen and tap Block user.
 
@@ -77,16 +97,10 @@ thumbnail: https://thmb.techidaily.com/cd3d2360a2d4ccd17e303566ba964ef54de4b2742
 
 ![confirm parent](https://images.wondershare.com/filmora/article-images/a-parent3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * 2\. Sign in with your preferred Google account.
 
 ![parent account](https://images.wondershare.com/filmora/article-images/parent-account4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * 3\. Here you’ll see a button **Send Parental Consent Emai**l, press it.
 * 4\. You’ll get an activation code on your email address.
 * 5\. Come back to the application and enter the code.
@@ -94,8 +108,9 @@ thumbnail: https://thmb.techidaily.com/cd3d2360a2d4ccd17e303566ba964ef54de4b2742
  Now as you’re signed in as a parent you can block channels and specific content.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **I. Block on Home screen**
 
 * 1\. On the Home screen press the dotted menu next to the video
@@ -107,26 +122,17 @@ thumbnail: https://thmb.techidaily.com/cd3d2360a2d4ccd17e303566ba964ef54de4b2742
 
 ![get passcode](https://images.wondershare.com/filmora/article-images/pass-code6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **II. Block from Watch Page**
 
 * 1\. On the Watch Page tap the dotted **More** option at the top right corner of the video.
 
 ![more option](https://images.wondershare.com/filmora/article-images/more-option7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 * 2\. Press the **Block** option.
 * 3\. A dialog box will appear with two options, **Block this video** for blocking only this particular video or **Block this channel** to block the entire channel associated with the video.
 
 ![block this channel](https://images.wondershare.com/filmora/article-images/block-this-channel8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 * 4\. Select any of the two options and then press **Block** again.
 * 5\. Enter the numbers you calculate from the presented numbers or a custom passcode.
 
@@ -138,20 +144,21 @@ thumbnail: https://thmb.techidaily.com/cd3d2360a2d4ccd17e303566ba964ef54de4b2742
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -160,4 +167,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/ecoding-the-mystery-of-where-are-my-youtube-comments-for-2024/"><u>[New] Decoding the Mystery of Where Are My YouTube Comments for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ortune-awaits-in-marketing-unveil-the-full-set-of-our-50-free-youtube-ads/"><u>[New] Fortune Awaits in Marketing! Unveil the Full Set of Our 50 Free YouTube Ads</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-harnessing-viral-power-your-pathway-to-youtube-fame/"><u>[Updated] 2024 Approved Harnessing Viral Power Your Pathway to YouTube Fame</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-digital-cash-kings-leading-youtube-creators/"><u>[Updated] Digital Cash Kings Leading YouTube Creators</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-unveiling-content-wizards-streamlined-steps-to-launch-channels-via-mobile-apps/"><u>[Updated] In 2024, Unveiling Content Wizards Streamlined Steps to Launch Channels via Mobile Apps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-complete-manual-to-perfect-proportions-in-youtube-videosshortsads/"><u>[Updated] The Complete Manual to Perfect Proportions in YouTube Videos/Shorts/Ads</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-live-capture-success-explore-4-effective-recording-strategies/"><u>2024 Approved Live Capture Success Explore 4 Effective Recording Strategies</u></a></li>
+<li><a href="https://techidaily.com/best-fixes-for-tecno-pova-6-pro-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Tecno Pova 6 Pro 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/te-your-videos-with-these-proven-seo-tools-for-more-clicks-for-2024/"><u>Elevate Your Videos with These Proven SEO Tools for More Clicks for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-easy-fixes-how-to-recover-forgotten-icloud-password-from-your-apple-iphone-6-plus-by-drfone-ios/"><u>In 2024, Easy Fixes How To Recover Forgotten iCloud Password From your Apple iPhone 6 Plus</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-innovative-gaming-intro-options-free-versus-paid-for-youtube-creators/"><u>In 2024, Innovative Gaming Intro Options Free Versus Paid for YouTube Creators</u></a></li>
+<li><a href="https://win11.techidaily.com/master-controller-compatibility-steams-essential-guide/"><u>Master Controller Compatibility: Steam's Essential Guide</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-google-frp-lock-on-honor-90-lite-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP Lock on Honor 90 Lite</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210102532-9781786784858-sitting-comfortably/"><u>Sitting Comfortably | Free Book</u></a></li>
+<li><a href="https://driver-error.techidaily.com/solving-the-top-to-bottom-problem-correcting-your-asus-laptops-inverted-videos/"><u>Solving the Top-to-Bottom Problem: Correcting Your ASUS Laptop's Inverted Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/forming-imovie-projects-into-youtube-shows-for-2024/"><u>Transforming iMovie Projects Into YouTube Shows for 2024</u></a></li>
+</ul></div>
 

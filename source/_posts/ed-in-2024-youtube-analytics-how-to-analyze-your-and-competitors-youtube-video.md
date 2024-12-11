@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, YouTube Analytics – How to Analyze Your and Competitor's YouTube Video"
-date: 2024-08-27T14:07:21.479Z
-updated: 2024-08-28T14:07:21.479Z
+date: 2024-12-05T16:26:25.695Z
+updated: 2024-12-10T16:02:08.376Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,10 @@ thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-demographic.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 4\.  Traffic sources
 
  Understanding the source of your YouTube video's traffic would help you track the prominent keywords that viewers use for landing at your YouTube video. You can figure out their choice and their search patterns this way. The YouTube insights will show you whether the viewers found your video by searching YouTube, a channel on YouTube, through suggested videos, or an external link. The YouTube Analytics tool's panel would assist you in finalizing the most beneficial traffic source for your brand. You can optimize your video and keyword strategy with this.
@@ -69,6 +73,10 @@ thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0
  It is important to know which device is being used to watch the video. The metrics is distributed among mobile phones, computer, TV, tablet etc. you will be able to understand whether your video needs to be optimized for a certain video or not.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-devices.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 7\.  Likes and dislikes
 
@@ -92,11 +100,19 @@ thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-annotations.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 10\.  Comments
 
  Audience engagement on any YouTube video can easily be gauged by using the vital aspect known as comments. Either it touched a chord in their heart, inspired or motivated them, or simply made them smile, the comments will say it all. Sometimes the audience simply taps 'Like' in place of commenting at their convenient.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-comments.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 11\.  Cards
 
@@ -115,6 +131,10 @@ thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0
  Favorites has been renamed to 'Videos in playlists'. Your reach broadens as people keep marking your videos as favorites on their playlist. This is visible to the public on the YouTube channel itself.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playlists.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to analyze your competitors
 
@@ -142,20 +162,21 @@ thumbnail: https://thmb.techidaily.com/3d0c7b28b7640277a83e56148652cb264b53fd3e0
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -164,8 +185,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/ood-youtube-names-generators-plus-how-to-brainstorm-for-2024/"><u>[New] Good YouTube Names Generators [+ How to Brainstorm] for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-a-guide-to-free-you-from-youtubes-extra-bar-width/"><u>[New] In 2024, A Guide to Free You From YouTube's Extra Bar Width</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-maximizing-marketing-the-best-highlight-techniques-for-brands/"><u>[New] Maximizing Marketing The Best Highlight Techniques for Brands</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-fine-tune-your-videos-mood-with-custom-sound-design-for-2024/"><u>[Updated] Fine-Tune Your Video's Mood with Custom Sound Design for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-brief-but-impactful-music-shorts-on-youtube-unveiled/"><u>[Updated] In 2024, Brief but Impactful Music Shorts on YouTube Unveiled</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-vimeo-vs-youtube-vs-dailymotion-which-platform-is-the-one/"><u>[Updated] Vimeo vs YouTube vs Dailymotion Which Platform Is the One?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ving-a-noiseless-presence-on-social-video-platforms/"><u>Achieving a Noiseless Presence on Social Video Platforms</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/el-your-earnings-effective-youtube-money-methods-for-2024/"><u>Channel Your Earnings Effective YouTube Money Methods for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ts-choice-top-10-low-cost-sbd-applications-for-2024/"><u>Expert's Choice Top 10 Low-Cost SBD Applications for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/freeloading-without-breaking-your-budget-on-aes/"><u>Freeloading Without Breaking Your Budget on AEs</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-fix-windows-10-installation-issue-error-code-80240020/"><u>How to Fix Windows 10 Installation Issue - Error Code 80240020</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Tecno Spark 20? | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209612309-9781547569984-meditacion-la-mejor-guia-de-meditacion-para-la-meditacion/"><u>Meditación: La Mejor Guía De Meditación Para La Meditación. | Free Book</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-expert-approved-stop-motion-animation-software-for-mac-and-pc/"><u>New Expert-Approved Stop Motion Animation Software for Mac and PC</u></a></li>
+<li><a href="https://fox-info.techidaily.com/prime-pick-top-10-streamers-for-cutting-edge-tv-content-for-2024/"><u>Prime Pick Top 10 Streamers for Cutting-Edge TV Content for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ming-made-easy-google-meet-to-youtube-guide/"><u>Streaming Made Easy Google Meet to YouTube Guide</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/tiktoks-viral-rhymes-a-guide-to-popular-rap-songs/"><u>TikTok's Viral Rhymes A Guide to Popular Rap Songs</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

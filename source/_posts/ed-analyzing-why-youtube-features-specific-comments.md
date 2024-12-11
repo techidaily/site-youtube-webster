@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Analyzing Why YouTube Features Specific Comments"
-date: 2024-11-30T19:21:53.474Z
-updated: 2024-12-04T06:57:35.920Z
+date: 2024-12-08T19:07:44.708Z
+updated: 2024-12-10T22:36:01.731Z
 tags:
   - ai video
   - ai youtube
@@ -60,7 +60,7 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: What Does The Highlighted Comment Look Like?
@@ -69,16 +69,16 @@ YouTube has been working on improving the navigation of the comment section for 
 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 YouTube labels comment replies as well and call it "Highlighted Reply." You can see this tag above the replier's name in the same color tone.
 
 ![YouTube Highlighted Reply](https://images.wondershare.com/filmora/article-images/youtube-highlighted-reply.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Make My Comment Highlighted?
@@ -99,6 +99,10 @@ Suppose you are a viewer who is going through the comments section of a video. I
 
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 5: How to Reply to Highlighted Comments?
 
 Replying to "highlighted comments" on your YouTube channel is pretty easy since this feature was developed, keeping the user's convenience in mind. If you want to follow up or reply to such comments, you can do so from your email or YouTube Dashboard.
@@ -108,7 +112,7 @@ If you click the notification bell icon, whenever a viewer drops a new comment o
 Have you ever wondered why a highlighted comment always shows at the top of the comment list? Both the above options will lead you to the comment thread on YouTube. To help you find the new activity easily, it appears with the highlight tag on it. The purpose is to remind you that you are here for that specific comment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 6: How to Remove Highlighted Comments?
@@ -155,10 +159,6 @@ In this article, we have shared facts on YouTube's commonly seen highlighted com
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -180,24 +180,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/apture-and-relive-your-favorite-moments-anywhere-anytime-the-best-in-free-video-downloaders-for-youtubes-for-2024/"><u>[New] Capture and Relive Your Favorite Moments Anywhere, Anytime The Best in Free Video Downloaders for YouTubes for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-revolutionizing-ps2-playtime-on-ios-with-top-emulators/"><u>[New] In 2024, Revolutionizing PS2 Playtime on iOS with Top Emulators</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-end-screen-creation-made-simple-free-templates-and-guides/"><u>[Updated] 2024 Approved End Screen Creation Made Simple - Free Templates & Guides</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/61521725-updated-2024-approved-your-marketing-journey-begins-here-experience-the-full-spectrum-of-over-50-free-ads/"><u>[Updated] 2024 Approved Your Marketing Journey Begins Here - Experience the Full Spectrum of Over 50 FREE Ads</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-seize-endless-photographic-content-from-elite-4-video-clips/"><u>[Updated] Seize Endless Photographic Content From Elite 4 Video Clips</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tiktok-and-twittersphere-crossover-the-viral-vids-for-2024/"><u>[Updated] TikTok and Twittersphere Crossover The Viral Vids for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-unlocking-youtube-tracks-three-free-safe-techniques-explored/"><u>[Updated] Unlocking YouTube Tracks Three Free, Safe Techniques Explored</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-unveiling-the-path-to-your-youtube-comments-on-devices-for-2024/"><u>[Updated] Unveiling the Path to Your YouTube Comments on Devices for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/tuber-quizzes-to-know-what-type-of-youtuber-you-are/"><u>6 YouTuber Quizzes to Know What Type of YouTuber You Are</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/boosting-iphone-functionality-with-apples-adoption-of-google-gemini-for-ios-expert-analysis-gadgetflow/"><u>Boosting iPhone Functionality with Apple's Adoption of Google Gemini for iOS - Expert Analysis | GadgetFlow</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/cookiebot-enabled-enhancing-user-experience-and-personalization/"><u>Cookiebot-Enabled: Enhancing User Experience and Personalization</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ver-websites-your-gateway-to-youtube-branded-content-for-2024/"><u>Discover Websites Your Gateway to YouTube Branded Content for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/effective-blog-monetization-strategies-leveraging-buyselladscom-to-increase-earnings/"><u>Effective Blog Monetization Strategies: Leveraging BuySellAds.com to Increase Earnings</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-crafting-an-inviting-subscribe-icon-for-youtube-videographers/"><u>In 2024, Crafting an Inviting Subscribe Icon for YouTube Videographers</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/in-2024-twittomp4maker-social-streaming-solution/"><u>In 2024, TwitToMP4Maker Social Streaming Solution</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/mastering-chatgpts-default-addons/"><u>Mastering ChatGPT's Default Addons</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/reimagined-ai-gpts-revolutionary-innovations-unveiled/"><u>Reimagined AI: GPT's Revolutionary Innovations Unveiled</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/unveiling-the-mysteries-of-io-video-capture/"><u>Unveiling the Mysteries of IO Video Capture</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/why-integrate-sudo-with-windows-systems/"><u>Why Integrate Sudo with Windows Systems</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-amplify-your-content-best-practices-in-collaborative-youtube-outros/"><u>[New] 2024 Approved Amplify Your Content Best Practices in Collaborative YouTube Outros</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-detailed-walkthrough-to-flawless-youtube-videos-using-imovie-software/"><u>[New] In 2024, Detailed Walkthrough to Flawless YouTube Videos Using iMovie Software</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-deciphering-revenue-sharing-in-youtube-shorts/"><u>[Updated] 2024 Approved Deciphering Revenue Sharing in YouTube Shorts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-a-filmmakers-guide-to-mastering-green-screen-technology/"><u>[Updated] A Filmmaker's Guide to Mastering Green Screen Technology</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-crafting-captivating-edu-vids-on-youtube-a-step-by-step-guide/"><u>[Updated] Crafting Captivating Edu-Vids on YouTube A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-post-youtube-video-on-the-best-days-to-get-more-view-for-2024/"><u>[Updated] Post Youtube Video on the Best Days to Get More View for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-versus-dailymention-identifying-key-gaps-for-2024/"><u>[Updated] YouTube Versus DailyMention Identifying Key Gaps for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-instagrams-hidden-gems-advanced-techniques-for-bokeh/"><u>2024 Approved Instagram's Hidden Gems Advanced Techniques for Bokeh</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/st-freefire-tagshashtags-for-youtube/"><u>30 Best FreeFire Tags/Hashtags For YouTube</u></a></li>
+<li><a href="https://android-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-huawei-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Huawei FRP Locks</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-controlling-who-can-leave-a-comment-on-your-youtube-videos/"><u>In 2024, Controlling Who Can Leave a Comment on Your YouTube Videos</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-experts-insight-efficiently-using-mobizen-for-capturing-screens/"><u>In 2024, Expert's Insight Efficiently Using Mobizen for Capturing Screens</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-tecno-camon-20-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Tecno Camon 20? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-tackling-background-noise-in-virtual-presentations/"><u>In 2024, Tackling Background Noise in Virtual Presentations</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/lava-agni-2-5g-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Lava Agni 2 5G Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rt-of-initiating-your-youtube-content-compellingly-for-2024/"><u>The Art of Initiating Your YouTube Content Compellingly for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-5-from-vivo-y78plus-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 5 from Vivo Y78+ to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/what-is-googles-ai-project-gemini-and-what-is-it-working-on/"><u>What Is Google's AI Project Gemini and What Is It Working On?</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/wie-man-dvd-filme-per-wlan-auf-apple-ipad-ipad-pro-ipad-air-ipad-mini-kopiert/"><u>Wie Man DVD Filme per WLAN Auf Apple iPad (iPad Pro, iPad Air, iPad Mini) Kopiert</u></a></li>
 </ul></div>
 

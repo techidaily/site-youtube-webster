@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Enhancing Filmmaking  Top Choices in Camera Lenses\""
-date: 2024-12-01T02:19:25.330Z
-updated: 2024-12-03T20:17:26.818Z
+date: 2024-12-04T21:10:26.660Z
+updated: 2024-12-10T23:46:43.983Z
 tags:
   - ai video
   - ai youtube
@@ -31,6 +31,10 @@ A DSLR is the ideal camera for some vlogs, and using a DSLR means you get to cus
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. Understanding Lenses: Zoom lens, Fixed lens, aperture, f-stop
 
 There are two main categories of camera lenses: ‘zoom’ – lenses that allow you to zoom in and out – and ‘fixed’. If your lenses are tools then zoom lenses are Swiss army knives; they are very versatile. Fixed lenses, also called prime lenses, have more specific purposes. Do you need a tool that can do a lot of things, or a tool that is perfect for one specific job? Sometimes it is useful to have access to both.
@@ -40,7 +44,7 @@ We have explained the differences between Fixed lens and Zoom lens and advantage
 Before we get into the recommendations here is a little background information on lenses in general:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Beginner's Guide to Aperture and F-Stops
@@ -62,7 +66,7 @@ F-stops are written like ‘f/1.8’ or ‘f/4’ on your lens. For more informa
 **F-stops** or f-numbers indicate how open the aperture is, so for example if your camera is displaying f/32 value it means that your camera is letting very little light to get through to the camera's sensor. The f-number depends on a few other parameters such as shutter speed, exposure or ISO values. Large apertures provide a shallow depth of field which creates a smooth and artistic background blur, while a small aperture enables you to keep both the background and the foreground of your shot in focus.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Types of Camera Lenses
@@ -89,6 +93,10 @@ Recording videos of vast open spaces, breathtaking vistas or beautiful city view
 
 YouTubers who are working on demanding projects can try to solve their troubles by using a specialist lens. Soft-focus lenses can help you take better portraits while tilt-shift lenses allow you to control the perspective. However, it is hard to imagine a scenario in which you'll need a specialist lense if you are just starting out since even experienced videographers only use special lenses when they have absolutely no better way to record a scene.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Recommended Best Camera Lenses for Shooting YouTube Videos
 
 Here are a couple great lenses that might be good fits for you and your YouTube channel. The thing that makes them both ideal for vlogging is that they have low enough f-stops to blur out your background.
@@ -114,10 +122,6 @@ Canon released this lens in 2014 and shortly after it has gained the reputation 
 
 ![camera lens](https://images.wondershare.com/filmora/article-images/camera-lens-rec01.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The EF 50mm is a fixed lens with an f-stop of 1.8, which means it is great for blurring your background and performs well even in poorer lighting conditions. This is a really great lens for an opinion or beauty vlog, where you do not need to move around. You can stay put right where the focus is sharpest and stand out by blurring everything behind you. If you tend to reuse the same sets then you do not really need a zoom feature. If your shooting conditions rarely change then it is just as easy to use a reliable fixed lens like the EF 50mm since you will not need to be rethinking your set up and adjusting.
 
 If you are looking for an inexpensive prime lens that lets you create sharp videos with shallow depth of field, you should look no further. This model is one of three Canon's 50mm prime lenses, although the [50mm f/1.4 USM](https://www.amazon.com/Canon-Standard-Medium-Telephoto-Cameras/dp/B00009XVCZ/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-3&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=11bff1019e73f0462c30a04e98d4874f&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTe) and [50mm f/1.2 'L' USM](https://www.amazon.com/Canon-50mm-Lens-Digital-Cameras/dp/B000I1YIDQ/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-4&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=d77bb813550f12e8aa72c8738dfaad81&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTeAiw&slot) models are much more expensive. You can use it to record a lot of different types of YouTube videos, like product reviews or makeup tutorials. The 50 mm f/1.8 STM lens doesn't have image stabilization technology so you should try to be as still as you can possibly be when shooting handheld videos in order to avoid recording footage that has a lot of camera shakes.
@@ -129,10 +133,6 @@ Recording **moving objects** from a distance requires you to have a lens that al
 #### 5.[Tamron SP AF 17-50mm f/2.8 XR Di II LD Aspherical (IF) Lens](https://www.amazon.com/Tamron-17-50mm-Aspherical-Canon-Cameras/dp/B000FZ3FY8)
 
 ![camera lens rec02](https://images.wondershare.com/filmora/article-images/camera-lens-rec02.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The Tamron's standard zoom lens offers good value at a very reasonable price. The maximum aperture is f/2.8, while the minimum aperture value this lens supports is f/32, which means that its users can easily experiment with different **depths of field.** The lens is **compatible with most Canon cameras** so if you have a camera from another manufacturer you may have to use the lens adapter in order to mount it onto your camera. Like most standard zoom lenses, Tamron SP AF model is **highly versatile** and you can use it to record **a wide range of different scenes**.
 
@@ -147,7 +147,7 @@ If you are using a 4k camera to shoot your YouTube video, check out [best camera
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -171,24 +171,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-your-path-to-beaming-beauty-expertise-starting-an-online-show/"><u>[New] 2024 Approved Your Path to Beaming Beauty Expertise Starting an Online Show</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/inancial-insights-for-vids-how-much-do-youtubers-earn-per-sponsorship-in-2024/"><u>[New] Financial Insights for Vids How Much Do YouTubers Earn Per Sponsorship, In 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-live-streaming-and-video-editing-with-vlc/"><u>[New] Live Streaming & Video Editing with VLC</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-navigating-the-solo-podcast-landscape-successfully/"><u>[New] Navigating the Solo Podcast Landscape Successfully</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-eye-catching-vlog-talk-points/"><u>[Updated] 2024 Approved Eye-Catching Vlog Talk Points</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-tricks-to-automate-iphone-video-loops/"><u>[Updated] In 2024, Tricks to Automate iPhone Video Loops</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-interactive-multiplayer-experiences-online-for-2024/"><u>[Updated] Interactive Multiplayer Experiences Online for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-must-have-programs-for-youtube-video-downloads/"><u>[Updated] Must-Have Programs for YouTube Video Downloads</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-perfecting-video-segmentation-for-enhanced-viewing-experience-on-youtube-for-2024/"><u>[Updated] Perfecting Video Segmentation for Enhanced Viewing Experience on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-accurate-chart-watcher-master-your-video-rankings/"><u>2024 Approved Accurate Chart Watcher Master Your Video Rankings</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/discovering-raspberry-pi-securing-your-hands-on-the-newest-release-and-exploring-comparable-options-zdnet/"><u>Discovering Raspberry Pi: Securing Your Hands on the Newest Release & Exploring Comparable Options | ZDNet</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-vivo-y36i-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Vivo Y36i Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-fast-techniques-for-reordering-youtube-video-queues/"><u>In 2024, Fast Techniques for Reordering YouTube Video Queues</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-12-prominent-realme-gt-neo-5-se-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Realme GT Neo 5 SE Fingerprint Not Working Solutions</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ative-brainstroming-techniques-for-channels-names-for-2024/"><u>Innovative Brainstroming Techniques for Channels' Names for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/key-fb-video-plays-for-optimal-engagement-for-2024/"><u>Key FB Video Plays for Optimal Engagement for 2024</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-the-ultimate-list-of-10-image-to-video-makers-online/"><u>New In 2024, The Ultimate List of 10 Image to Video Makers Online</u></a></li>
-<li><a href="https://win11.techidaily.com/proven-methods-instant-access-to-remote-desktop-win-11-style/"><u>Proven Methods: Instant Access to Remote Desktop, Win 11 Style</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-urban-armor-gears-macbook-pro-shielding-case-the-perfect-blend-of-toughness-and-utility/"><u>Ultimate Guide to Urban Armor Gear's MacBook Pro Shielding Case – The Perfect Blend of Toughness and Utility</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-the-best-free-no-money-tools-for-digital-video-cutting/"><u>[New] 2024 Approved The Best Free, No-Money Tools for Digital Video Cutting</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/est-5-non-youtube-editing-tools-for-vids-for-2024/"><u>[New] Best 5 Non-YouTube Editing Tools for Vids for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-behind-the-scenes-youtubes-view-count-algorithm/"><u>[Updated] 2024 Approved Behind the Scenes YouTube's View Count Algorithm</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-wish-to-look-at-all-my-contacts-media-shared-in-chats/"><u>[Updated] In 2024, Wish to Look at All My Contacts' Media Shared in Chats</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-what-lies-behind-the-unlisted-tag-on-youtube-for-2024/"><u>[Updated] What Lies Behind the 'Unlisted' Tag on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-best-webcams-for-youtube-livestreaming/"><u>2024 Approved Best Webcams for YouTube Livestreaming</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/effizientes-hochladen-von-externen-festplattenbildern-auf-iphone-und-ipad/"><u>Effizientes Hochladen Von Externen Festplattenbildern Auf IPhone Und iPad</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/end-of-blackout-in-windows-post-update/"><u>End of Blackout in Windows Post Update</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-cinematic-evolution-the-best-youtube-guides-for-new-filmmakers/"><u>In 2024, Cinematic Evolution The Best YouTube Guides for New Filmmakers</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-encrypting-lives-techniques-to-mask-personal-information/"><u>In 2024, Encrypting Lives Techniques to Mask Personal Information</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-ultimate-asmr-content-guides/"><u>In 2024, Ultimate ASMR Content Guides</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unveiling-the-wonders-of-4k-with-benq-bl2711u-review/"><u>In 2024, Unveiling the Wonders of 4K with BenQ BL2711U Review</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nal-usage-dilemma-selecting-the-ideal-video-sharing-app/"><u>Personal Usage Dilemma Selecting the Ideal Video Sharing App</u></a></li>
 </ul></div>
 

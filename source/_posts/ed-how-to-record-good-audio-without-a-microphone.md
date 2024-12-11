@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Record Good Audio Without a Microphone"
-date: 2024-11-30T00:29:11.753Z
-updated: 2024-12-04T02:17:49.748Z
+date: 2024-12-07T23:47:28.673Z
+updated: 2024-12-10T17:01:44.156Z
 tags:
   - ai video
   - ai youtube
@@ -44,6 +44,10 @@ Luckily, there are a lot of easy, free, things you can do to protect the quality
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Keep Your Camera Close (like, really close)
 
 The biggest problem with the mic built into any camera or phone is just that, since it’s with the camera, it’s usually too far away from you. Built-in mics can record decent audio up close, but usually, your camera will be set up farther away from you than an external mic would be.
@@ -59,7 +63,7 @@ The best way to limit the amount of background noise you pick up in your sound r
 Sometimes the best thing you can do for your audio is simply to scout out a quiet room in your house where the sound recording conditions are better. Speaking of recording conditions…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Pick a Good Room
@@ -69,10 +73,6 @@ There’s more that goes into picking a good room than how quiet it is. If you t
 You should also pay attention to what’s in the room you’re recording in. Avoid hard, reflective, surfaces like appliances and mirrors which your voice will bounce off of. The same conditions that make you sound great when you sing in the shower will – like recording in a small space -make your voiceover unpleasantly echo-y.
 
 Look for a room that has a lot of soft things in it, like beds and sofas.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Protect your Built-In Mic from Wind
 
@@ -88,10 +88,6 @@ If your built-in mic is on top of your camera you can get something called a ‘
 
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
@@ -105,7 +101,7 @@ Even if you’re not recording video from your smartphone, it might be a good id
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Do a Sound Check
@@ -122,10 +118,14 @@ As one of the most widely used video editing software in YouTube video editing, 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -149,20 +149,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-youtube-equipment-for-gaming-channels-best-gaming-gears/"><u>[New] 2024 Approved YouTube Equipment for Gaming Channels - Best Gaming Gears</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-transform-valorant-gameplay-top-ranked-costless-voice-alterer-revealed-for-2024/"><u>[New] Transform Valorant Gameplay Top-Ranked, Costless Voice Alterer Revealed for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-boost-your-videos-with-these-youtube-seo-tools-for-2024/"><u>[Updated] Boost Your Videos With These YouTube SEO Tools for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-best-captures-of-macs-visual-display-under-156-characters/"><u>[Updated] In 2024, Best Captures of Mac's Visual Display (Under 156 Characters)</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-best-student-friendly-history-vid-hubs-1-10/"><u>2024 Approved Best Student-Friendly History Vid Hubs (#1-10)</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-hitch-youtube-sounds-into-imovie-tracks-swiftly/"><u>2024 Approved Hitch YouTube Sounds Into iMovie Tracks Swiftly</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-mastering-slow-motion-instagram-a-reel-guide/"><u>2024 Approved Mastering Slow-Motion Instagram A Reel Guide</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/native-film-choices-ranked-7-1-for-2024/"><u>Alternative Film Choices Ranked #7-1 for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/guide-to-establishing-your-facebook-community-hub/"><u>Guide to Establishing Your Facebook Community Hub</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-samsung-galaxy-z-flip-5-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Samsung Galaxy Z Flip 5 to Laptop Without USB | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-how-to-turn-youtube-shorts-into-a-money-machine-key-requirements-and-income-potential/"><u>In 2024, How to Turn YouTube Shorts Into a Money Machine Key Requirements & Income Potential</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-key-online-archives-of-free-motion-graphics/"><u>In 2024, Key Online Archives of Free Motion Graphics</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-the-10-best-tools-to-bypass-icloud-activation-lock-on-iphone-12-you-should-try-out-by-drfone-ios/"><u>In 2024, The 10 Best Tools to Bypass iCloud Activation Lock On iPhone 12 You Should Try Out</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-vivo-x-flip-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Vivo X Flip</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/quick-fix-guide-resolving-realtek-hd-audio-driver-issues-with-simple-steps/"><u>Quick Fix Guide: Resolving Realtek HD Audio Driver Issues with Simple Steps</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/coring-big-on-youtube-how-much-do-ad-revenues-add-up/"><u>[New] Scoring Big on YouTube How Much Do Ad Revenues Add Up?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/outube-foundations-building-a-brand-and-generating-income-for-novices/"><u>[New] Youtube Foundations Building a Brand & Generating Income for Novices</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-ideal-screen-reporter-tech-boosting-youtubing-experience/"><u>[Updated] In 2024, Ideal Screen Reporter Tech Boosting YouTubing Experience</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-quick-guide-to-concisely-editing-youtube-videos/"><u>[Updated] Quick Guide to Concisely Editing YouTube Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/atting-charisma-making-ingenious-parodies/"><u>Copycatting Charisma Making Ingenious Parodies</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/direct-links-available-download-the-most-recent-vga-driver-updates/"><u>Direct Links Available! Download the Most Recent VGA Driver Updates</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-elevate-your-recordings-doing-without-a-microphone/"><u>In 2024, Elevate Your Recordings Doing Without a Microphone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-flavorful-footage-kitchen-film-making-101/"><u>In 2024, Flavorful Footage Kitchen Film-Making 101</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/should-itop-screen-recorder-be-a-staple-in-your-kit/"><u>Should ITop Screen Recorder Be a Staple in Your Kit?</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/sky-symphony-top-10-websites-presenting-dynamic-hdr-imagery-for-2024/"><u>Sky Symphony - Top 10 Websites Presenting Dynamic HDR Imagery for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/successfully-sending-videos-in-facebook-chat-a-quick-fix-guide-for-iphoneandroid/"><u>Successfully Sending Videos in Facebook Chat A Quick Fix Guide for iPhone/Android</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/eginners-guide-to-video-equipment-selection/"><u>The Beginner's Guide to Video Equipment Selection</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unpacking-ai-innovations-palm-2-versus-gpt-4/"><u>Unpacking AI Innovations: PaLM 2 Versus GPT-4</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-get-started-with-linux-on-your-chromebook-a-comprehensive-installation-guide/"><u>Updated In 2024, Get Started with Linux on Your Chromebook A Comprehensive Installation Guide</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-unleash-engaging-videos-the-top-explainer-video-software-for-2024/"><u>Updated Unleash Engaging Videos The Top Explainer Video Software for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Right Tools For Your YouTube Journey - Camera Lenses Explained\""
-date: 2024-12-02T00:21:43.783Z
-updated: 2024-12-04T10:43:55.562Z
+date: 2024-12-03T17:18:22.395Z
+updated: 2024-12-10T21:18:38.846Z
 tags:
   - ai video
   - ai youtube
@@ -61,10 +61,6 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -87,16 +83,24 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
@@ -118,27 +122,15 @@ This table shows you the focal lengths needed to achieve the same shot between c
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
 
@@ -154,6 +146,10 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -167,6 +163,10 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -189,19 +189,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-capture-screens-free-cross-platform-for-windowsmac-users/"><u>[New] 2024 Approved Capture Screens, Free! - Cross-Platform for Windows/Mac Users</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/reakthrough-ways-to-amplify-your-video-content-reach/"><u>[New] Breakthrough Ways to Amplify Your Video Content Reach</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-free-frame-perfection-on-youtube-your-ultimate-guidebook/"><u>[Updated] 2024 Approved Free Frame Perfection on YouTube - Your Ultimate Guidebook</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-online-income-analysis-for-youtube-stars/"><u>[Updated] 2024 Approved Online Income Analysis for YouTube Stars</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-achieve-crystal-clear-shots-expert-guide-to-zooming-on-snapchat-for-2024/"><u>[Updated] Achieve Crystal Clear Shots Expert Guide to Zooming on Snapchat for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-dslr-or-mirrorless-for-high-quality-video-recording/"><u>[Updated] DSLR or Mirrorless for High-Quality Video Recording?</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-harnessing-your-creative-potential-an-exhaustive-tutorial-for-youtube-video-submission/"><u>[Updated] Harnessing Your Creative Potential An Exhaustive Tutorial for YouTube Video Submission</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-engaging-with-audio-attenuation-procedures-in-audacity/"><u>[Updated] In 2024, Engaging with Audio Attenuation Procedures in Audacity</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-step-by-step-on-streaming-google-meet-directly-to-youtube-channel-for-2024/"><u>[Updated] Step by Step on Streaming Google Meet Directly to YouTube Channel for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-step-by-step-approach-to-personalizing-your-phones-alerts/"><u>2024 Approved The Step-By-Step Approach to Personalizing Your Phone's Alerts</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/guiding-through-audio-transition-in-ableton-live-for-2024/"><u>Guiding Through Audio Transition in Ableton Live for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-itel-a60s-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Itel A60s? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-zte-nubia-flip-5g-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide ZTE Nubia Flip 5G Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/unveiling-the-hidden-gems-of-high-quality-discords/"><u>Unveiling the Hidden Gems of High-Quality Discords</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/void-monetization-mishaps-essential-youtube-checks-for-2024/"><u>[New] Avoid Monetization Mishaps Essential YouTube Checks for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-chromatic-wonders-bridging-color-knowledge/"><u>[New] Chromatic Wonders Bridging Color Knowledge</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-amplify-your-imovie-with-youtube-audio-streams/"><u>[New] In 2024, Amplify Your iMovie with YouTube Audio Streams</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-green-screen-revolution-access-comprehensive-tutorials-from-4-leading-youtube-educators-for-2024/"><u>[New] The Green Screen Revolution Access Comprehensive Tutorials From 4 Leading YouTube Educators for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/pgrade-your-video-playback-activating-av1-on-youtube-for-2024/"><u>[New] Upgrade Your Video Playback Activating AV1 on YouTube for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-premium-choice-best-low-speed-camera-apps-for-mobile-oses/"><u>[Updated] Premium Choice Best Low-Speed Camera Apps for Mobile OSes</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-navigate-subtitle-installation-in-wmp-easily/"><u>2024 Approved Navigate Subtitle Installation in WMP Easily</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/a-parents-guide-to-top-9-playful-preschool-sites-with-no-cost/"><u>A Parent's Guide to Top 9 Playful Preschool Sites with No Cost</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-tecno-pova-5-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Tecno Pova 5</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/captivating-hearts-in-italian-the-art-of-poetic-pick-up-lines/"><u>Captivating Hearts in Italian: The Art of Poetic Pick Up Lines</u></a></li>
+<li><a href="https://win11.techidaily.com/capturing-your-windows-world-tool-tally-of-the-capture-titans/"><u>Capturing Your Windows World: Tool Tally of the Capture Titans</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/conversione-gratuita-da-f4v-a-mp4-online-con-movavi-segui-il-processo-passo-dopo-passo/"><u>Conversione Gratuita Da F4V a MP4 Online Con Movavi - Segui Il Processo Passo Dopo Passo!</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-arena-of-achievements-a-million-gaming-milestones/"><u>In 2024, Arena of Achievements A Million Gaming Milestones</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-leap-forward-in-editing-embrace-xp-movie-maker/"><u>In 2024, Leap Forward in Editing Embrace XP Movie Maker</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-starting-up-the-guide-to-youtube-fame-in-gaming/"><u>In 2024, Starting Up The Guide to YouTube Fame in Gaming</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ash-flow-of-creative-content-youtubers-earnings-per-sponsored-video/"><u>The Cash Flow of Creative Content Youtuber's Earnings per Sponsored Video?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ling-your-digital-destiny-the-art-of-creating-and-launching-a-youtube-chanel-for-2024/"><u>Unveiling Your Digital Destiny The Art of Creating and Launching a YouTube Chanel for 2024</u></a></li>
 </ul></div>
 

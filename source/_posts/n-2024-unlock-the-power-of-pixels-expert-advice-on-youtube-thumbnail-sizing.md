@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Unlock the Power of Pixels  Expert Advice on YouTube Thumbnail Sizing\""
-date: 2024-11-27T23:36:51.152Z
-updated: 2024-12-03T18:53:57.446Z
+date: 2024-12-07T20:24:37.936Z
+updated: 2024-12-11T02:00:45.376Z
 tags:
   - ai video
   - ai youtube
@@ -58,7 +58,7 @@ The maximum YouTube thumbnail size must be below 2MB. Keeping the limit in mind 
 Usually, the 16:9 ratio is deemed an ideal choice for any YouTube video aiming high view volume. As it is most widely used in YouTube players and previews.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Upload and Change a Custom YouTube Thumbnail
@@ -73,22 +73,30 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 ![change thumbnail size](https://images.wondershare.com/filmora/article-images/upload-thumbnail-image1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * When your upload to the YouTube is completed a section will appear at the down portion of the browser screen showing **Video Thumbnails**. Here YouTube automatically creates some thumbnail images from your uploaded video and shows them here. These are the screenshots from your video, and you can select any one of them to be your thumbnail.
 
 ![set video thumbnail](https://images.wondershare.com/filmora/article-images/video-thumbnail2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * You will be able to see a button right next to the image – **Custom thumbnail**. Click on the button and you can upload a set of images of your choice as the thumbnail of your video.
 * Once done you can see the custom image just uploaded as the thumbnail of your video.
 
 ![custom thumbnail size](https://images.wondershare.com/filmora/article-images/custom-thumbnail3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * If you want to update the image or change it with another one you can just click on the same image in the video thumbnail section and swap it with any other image.
 
 ![youtube thumbnail size](https://images.wondershare.com/filmora/article-images/swap-thumbnail4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 2\. For Already Uploaded Video
 
@@ -104,20 +112,12 @@ To change the thumbnail on an already uploaded video you need to follow these st
 
 ![best thumbnail size](https://images.wondershare.com/filmora/article-images/change-thumbnail6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: Q&A-- About YouTube Thumbnail Images
 
 You may want to know:
 
 * [**Question 1:** **How do I make my youtube thumbnail less than 2mb?**](#question1)
 * [**Question 2:** **How can I create an attractive youtube thumbnail?**](#question2)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. How do I make my youtube thumbnail less than 2mb?
 
@@ -140,10 +140,6 @@ Let's see how you can create your thumbnail using Wondershare Filmora:
 
 **[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 2\. [Try Wondershare PixStudio>>](https://tools.techidaily.com/wondershare/fotophire/download/)
 
 Wondershare PixStudio provides you massive pre-designed templates which help you to create attractive YouTube Thumbnail. Let’s see the video below and see how you can design your YouTube Thumbnail easily.
@@ -155,6 +151,10 @@ With Canva you can make a distinct and stand-out YouTube thumbnail image. Canva 
 **Note:**
 
 To download the image without the watermark you’ll need to sign-up for a premium account on the Canva.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **To sum up**
 
@@ -183,20 +183,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/mplify-videographic-excellence-choose-from-these-7-audios/"><u>[New] Amplify Videographic Excellence - Choose From These 7 Audios</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ngaging-audiences-youtube-shorts-vs-tiktok-trends-for-2024/"><u>[New] Engaging Audiences Youtube Shorts Vs. TikTok Trends for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-step-by-step-guide-to-brightening-gopro-footage-for-2024/"><u>[Updated] Step-by-Step Guide to Brightening GoPro Footage for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-step-by-step-building-a-youtube-empire-from-scratch/"><u>2024 Approved Step by Step Building a YouTube Empire From Scratch</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-teaching-techniques-with-youtube-a-practical-approach/"><u>2024 Approved Teaching Techniques with YouTube A Practical Approach</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-the-entrepreneurial-guide-to-video-content-monetization/"><u>2024 Approved The Entrepreneurial Guide to Video Content Monetization</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/comprehensive-tutorial-how-to-use-vlc-media-player-to-transcode-avi-files-into-mp4-format/"><u>Comprehensive Tutorial: How to Use VLC Media Player to Transcode AVI Files Into MP4 Format</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-the-latest-hot-hits-of-disney-plus-cinema/"><u>Discover the Latest Hot Hits of Disney Plus Cinema</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-meizu-21-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Meizu 21 | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-how-frequent-uploads-can-skyro-cookie-sales-on-your-youtube-channel/"><u>In 2024, How Frequent Uploads Can Skyro Cookie Sales on Your YouTube Channel</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-videos-from-vivo-y17s-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Videos from Vivo Y17s to iPad | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-the-artisans-approach-crafting-unique-shareable-youtube-shorts/"><u>In 2024, The Artisan's Approach Crafting Unique, Shareable YouTube Shorts</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/asts-financial-portrait-for-2024/"><u>Mr. Beast’s Financial Portrait for 2024</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/tcl-50s425-50-inch-roku-tv-2019-review/"><u>TCL 50S425 50-Inch Roku TV (2019) Review</u></a></li>
-<li><a href="https://driver-install.techidaily.com/usbasp-mastery-troubleshooting-for-a-multitude-of-windows-platforms/"><u>USBasp Mastery: Troubleshooting for A Multitude of Windows Platforms</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ntrepreneur-writes-top-youtube-sites-for-business-success/"><u>[New] Entrepreneur' Writes Top YouTube Sites for Business Success</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-comparing-profits-from-high-ranking-youtube-videos/"><u>[New] In 2024, Comparing Profits From High-Ranking YouTube Videos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-finding-your-preferred-video-editor-filmora-vs-democreator-insights/"><u>[New] In 2024, Finding Your Preferred Video Editor Filmora Vs. Democreator Insights</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-harnessing-ig-videos-effectively-blueprint-for-a-dynamic-marketing-plan/"><u>[New] In 2024, Harnessing IG Videos Effectively Blueprint for a Dynamic Marketing Plan</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nveiling-distinctions-a-look-at-youtube-and-dailymention/"><u>[New] Unveiling Distinctions A Look at YouTube and DailyMention</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-streamlined-approach-save-youtube-videos/"><u>[Updated] 2024 Approved Streamlined Approach Save YouTube Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-access-short-videos-anywhere-the-top-6-free-and-online-youtube-short-download-apps-for-2024/"><u>[Updated] Access Short Videos Anywhere The Top 6 Free & Online YouTube Short Download Apps for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-dissecting-youtube-chatter/"><u>[Updated] Dissecting YouTube Chatter</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-enhance-your-video-meetings-with-snap-shots-on-zoom/"><u>[Updated] Enhance Your Video Meetings with Snap Shots on Zoom</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-graphic-portrayal-of-future-social-momentum-for-2024/"><u>[Updated] Graphic Portrayal of Future Social Momentum for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-optimal-metaverse-displays-the-ultimate-8-picks/"><u>[Updated] In 2024, Optimal Metaverse Displays The Ultimate 8 Picks</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/can-you-submerge-your-iphone-13-in-water/"><u>Can You Submerge Your iPhone 13 in Water?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/hering-how-tseries-benefits-from-youtube-for-2024/"><u>Deciphering How TSeries Benefits From YouTube for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/cing-viewer-engagement-with-smart-end-screen-techniques/"><u>Enhancing Viewer Engagement with Smart End Screen Techniques</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-quickly-fix-bluetooth-not-working-on-tecno-spark-20-proplus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Quickly Fix Bluetooth Not Working on Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-5-best-free-video-editors-for-avi-files/"><u>In 2024, 5 Best Free Video Editors for AVI Files</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/lenovo-power-driver-renewal-a-straightforward-guide-for-seamless-performance/"><u>Lenovo Power Driver Renewal: A Straightforward Guide for Seamless Performance</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/fire-engagement-top-30plus-youtube-hashes/"><u>Quickfire Engagement Top 30+ YouTube Hashes</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/zdnet-review-choosing-the-best-vpn-nordvpn-expressvpn-and-surfshark-compared/"><u>ZDNet Review: Choosing the Best VPN - NordVPN, ExpressVPN & SurfShark Compared</u></a></li>
 </ul></div>
 

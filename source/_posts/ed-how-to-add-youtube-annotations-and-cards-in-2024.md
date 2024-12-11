@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Add YouTube Annotations and Cards, In 2024"
-date: 2024-08-22T22:02:15.378Z
-updated: 2024-08-23T22:02:15.378Z
+date: 2024-12-04T19:40:59.280Z
+updated: 2024-12-10T23:19:07.468Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,10 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -58,6 +62,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
 * Once you finish the subsequent information required click create card
@@ -66,6 +74,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to add YouTube annotations
 
@@ -76,6 +88,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Click on the "End screen & Annotation" tab
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
@@ -120,20 +136,21 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,8 +159,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/updated-convenient-steps-upside-down-video-via-vlc-application/"><u>[Updated] Convenient Steps Upside Down Video via VLC Application</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-elevate-your-video-game-with-these-5-youtube-thumbnail-builders-for-2024/"><u>[Updated] Elevate Your Video Game with These 5 YouTube Thumbnail Builders for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-ignite-conversations-top-10-creative-reaction-insights-for-videos-for-2024/"><u>[Updated] Ignite Conversations Top 10 Creative Reaction Insights for Videos for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-unlock-better-engagement-on-instagram-with-video-loops/"><u>[Updated] In 2024, Unlock Better Engagement on Instagram With Video Loops</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/build-a-metaverse-identity-a-streamlined-design-process/"><u>Build a Metaverse Identity A Streamlined Design Process</u></a></li>
+<li><a href="https://discover-help.techidaily.com/how-rising-adoption-of-cryptos-impacts-our-world-perspectives-from-yl-software-team/"><u>How Rising Adoption of Cryptos Impacts Our World - Perspectives From YL Software Team</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-apple-id-verification-code-not-working-from-iphone-xs-by-drfone-ios/"><u>How To Fix Apple ID Verification Code Not Working From iPhone XS</u></a></li>
+<li><a href="https://extra-information.techidaily.com/innovative-screenshot-and-video-tools-top-8-smartphone-essentials/"><u>Innovative Screenshot & Video Tools – Top 8 Smartphone Essentials</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ring-media-conversion-youtube-to-mp3-on-appleos-for-2024/"><u>Mastering Media Conversion YouTube to MP3 on AppleOS for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-essential-links-for-obtaining-high-quality-ding-sound-samples/"><u>New In 2024, Essential Links for Obtaining High-Quality Ding Sound Samples</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-oppo-f25-pro-5g-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Oppo F25 Pro 5G Screen | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/top-6-video-dubbing-apps-for-hilarious-voiceovers/"><u>Top 6 Video Dubbing Apps for Hilarious Voiceovers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/standing-the-dynamics-behind-youtubes-investment-in-shorts/"><u>Understanding the Dynamics Behind YouTube's Investment in Shorts</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

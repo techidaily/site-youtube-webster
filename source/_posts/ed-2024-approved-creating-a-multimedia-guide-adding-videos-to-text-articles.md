@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Creating a Multimedia Guide  Adding Videos to Text Articles\""
-date: 2024-12-02T00:06:08.427Z
-updated: 2024-12-04T09:14:21.773Z
+date: 2024-12-06T19:59:10.783Z
+updated: 2024-12-10T22:09:33.793Z
 tags:
   - ai video
   - ai youtube
@@ -34,7 +34,7 @@ Luckily, video editing and presentation software products offer the tools you wi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to Add Video to Text for Free with PowerPoint?
@@ -49,6 +49,10 @@ Head over to the Insert tab, select Rectangle from the Shapes menu, and create a
 
 ![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
 
 Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down menu. The shape of the text in the textbox will be applied to the object in the background, which enables you to add a video to that text.
@@ -56,16 +60,12 @@ Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: Adding Video to Text in Filmora
 
@@ -77,16 +77,12 @@ You should start by creating a new project in Filmora and importing the video yo
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
@@ -94,6 +90,10 @@ Proceed to select a font and adjust the text size before deciding if you want to
 Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
 
@@ -128,20 +128,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/omic-capers-top-10-hilarious-youtube-short-film-ideas/"><u>[New] Comic Capers Top 10 Hilarious YouTube Short Film Ideas</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-free-to-learn-4-youtube-channels-unlocking-the-secrets-of-background-substitution/"><u>[Updated] 2024 Approved Free-to-Learn 4 YouTube Channels Unlocking the Secrets of Background Substitution</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-youtube-tv-demystified-your-complete-reference/"><u>[Updated] YouTube TV Demystified Your Complete Reference</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/2024-expert-advice-overcoming-launch-errors-and-getting-the-most-out-of-hogwarts-legacy/"><u>2024 Expert Advice: Overcoming Launch Errors and Getting the Most Out of Hogwarts Legacy</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/addressing-no-camera-found-error-on-windows-11-os/"><u>Addressing No Camera Found Error on Windows 11 OS</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/full-house-wi-fi-solution-assessment-the-power-of-eero-pro-mesh-network-technology-unveiled/"><u>Full House Wi-Fi Solution Assessment: The Power of Eero Pro Mesh Network Technology Unveiled</u></a></li>
-<li><a href="https://win-blog.techidaily.com/how-to-fix-the-unauthorized-access-issue-on-fortnite/"><u>How to Fix the 'Unauthorized Access' Issue on Fortnite</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-from-edgeplus-2023-by-fonelab-android-recover-data/"><u>How to recover lost data from Edge+ (2023)?</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-how-to-pinpoint-premium-video-keywords-on-youtube/"><u>In 2024, How to Pinpoint Premium Video Keywords on YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-top-10-youtube-cameras-from-novices-to-experts/"><u>In 2024, Top 10 YouTube Cameras, From Novices to Experts</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/navigating-to-the-shadowed-elements-of-windows-11/"><u>Navigating to the Shadowed Elements of Windows 11</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/seconds-in-a-snapshot-20mb-videography-for-2024/"><u>Seconds in a Snapshot 20MB Videography for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/the-8-most-critical-blunders-to-elude-as-a-rookie-youtuber-for-2024/"><u>The 8 Most Critical Blunders to Elude as a Rookie YouTuber for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/sh-creative-expression-with-these-7-royalty-free-tunes/"><u>Unleash Creative Expression with These 7 Royalty-Free Tunes</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/l-anonymous-how-to-make-faces-and-objects-invisible/"><u>Visual Anonymous How to Make Faces and Objects Invisible</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ancefloor-dynamics-free-pristine-dj-template-videos/"><u>[New] Dancefloor Dynamics Free, Pristine DJ Template Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-10-best-yoga-youtube-channels-to-follow-keep-fit/"><u>[New] In 2024, 10 Best Yoga YouTube Channels to Follow - Keep Fit</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/isualizing-the-most-influential-23-social-trends-for-2024/"><u>[New] Visualizing the Most Influential '23 Social Trends for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-enhancing-video-success-top-8-yt-thumbnail-strategies-for-2024/"><u>[Updated] Enhancing Video Success Top 8 YT Thumbnail Strategies for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-7-ultimate-live-streaming-apps-for-iphone-and-android-users-on-youtube/"><u>[Updated] In 2024, 7 Ultimate Live Streaming Apps for iPhone and Android Users on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-leading-video-kick-offs-the-best-16-youtube-vlogs-to-increase-views-for-2024/"><u>[Updated] Leading Video Kick-Offs The Best 16 YouTube Vlogs to Increase Views for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-swift-transformation-video-aspects-to-mac-standard/"><u>[Updated] Swift Transformation Video Aspects to Mac Standard</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-vr-advantages-and-disadvantages-for-2024/"><u>[Updated] VR Advantages & Disadvantages for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-how-to-avoid-and-reverse-strikes-on-your-youtube-account/"><u>2024 Approved How to Avoid and Reverse Strikes on Your YouTube Account</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-swiftly-assemble-a-stunning-google-image-mosaic-with-ease/"><u>2024 Approved Swiftly Assemble a Stunning Google Image Mosaic with Ease</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/comprehensive-fix-for-error-0x80072f8f-windows-1110-edition/"><u>Comprehensive Fix for Error 0X80072F8F: Windows 11/10 Edition</u></a></li>
+<li><a href="https://video-capture.techidaily.com/convenient-iphone-method-for-live-screen-capture/"><u>Convenient iPhone Method for Live Screen Capture</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-your-ears-10-pro-tips-for-excellent-sound-quality/"><u>Elevate Your Ears 10 Pro Tips for Excellent Sound Quality</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/asts-financial-landscape/"><u>Mr. Beast’s Financial Landscape</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/solve-the-disk-is-overloaded-issue-for-ms-excel-201020132016-users/"><u>Solve the 'Disk Is Overloaded' Issue for MS Excel 2010/2013/2016 Users</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ltimate-guide-to-engaging-viewers-and-boosting-traffic-on-youtube-for-2024/"><u>The Ultimate Guide to Engaging Viewers and Boosting Traffic on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/d-missing-miniature-videos-on-youtube/"><u>Tidied Missing Miniature Videos on YouTube</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tips-for-troubleshooting-msvcr120-deficiency-windows-wise/"><u>Tips for Troubleshooting Msvcr120 Deficiency Windows-Wise</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-take-your-videos-to-the-next-level-adding-effects-in-fcp-x-3-steps/"><u>Updated Take Your Videos to the Next Level Adding Effects in FCP X (3 Steps)</u></a></li>
 </ul></div>
 
