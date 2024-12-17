@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Ergonomic Hold Techniques for Clarity"
-date: 2024-12-04T19:50:37.030Z
-updated: 2024-12-10T16:09:31.712Z
+date: 2024-12-16T04:51:56.181Z
+updated: 2024-12-16T20:03:36.573Z
 tags:
   - ai video
   - ai youtube
@@ -34,7 +34,7 @@ When you’re trying to grow a channel on YouTube it can feel like equipment is 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### DIY Your Video with Wondershare Filmora
@@ -43,7 +43,15 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here are 3 of our favorite DIY tripods.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
 
@@ -59,21 +67,17 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -93,7 +97,7 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
@@ -103,10 +107,6 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -151,18 +151,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/-comprehensive-guide-to-use-youtube-movie-maker/"><u>[New] A Comprehensive Guide to Use YouTube Movie Maker</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-maintaining-creative-commons-on-youtube-for-greater-exposure/"><u>[New] In 2024, Maintaining Creative Commons on YouTube for Greater Exposure</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-elevate-followers-with-effective-igtv-hashtag-techniques/"><u>[Updated] Elevate Followers with Effective IGTV Hashtag Techniques</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-masterpiece-in-motion-capture-sonys-x1000-action-gear/"><u>2024 Approved Masterpiece in Motion Capture Sony's X1000 Action Gear</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/a-comprehensive-guide-to-smartwatch-capabilities-and-uses/"><u>A Comprehensive Guide to Smartwatch Capabilities & Uses</u></a></li>
-<li><a href="https://win-top.techidaily.com/guide-dinstallation-des-pilotes-pour-un-ssd-nvme-non-reconnu-sous-windows-11/"><u>Guide D'Installation Des Pilotes Pour Un SSD NVMe Non Reconnu Sous Windows 11</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-samsung-galaxy-s23-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Samsung Galaxy S23 | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-a-viewer-friendly-approach-implementing-commentary-and-alerts-on-youtube/"><u>In 2024, A Viewer-Friendly Approach Implementing Commentary and Alerts on YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-leading-list-10-budget-friendly-sbd-solutions/"><u>In 2024, Leading List 10 Budget-Friendly SBD Solutions</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-mobile-filmmakers-secrets-creating-viral-thumbnails-for-youtube/"><u>In 2024, Mobile Filmmaker’s Secrets Creating Viral Thumbnails for YouTube</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/navigate-lifes-challenges-with-these-15-engaging-activities-while-listening-to-podcasts/"><u>Navigate Life's Challenges with These 15 Engaging Activities While Listening to Podcasts</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/simple-steps-to-run-windows-updates-with-ease/"><u>Simple Steps to Run Windows Updates with Ease</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/e-conversation-starters-for-streaming-for-2024/"><u>Unique Conversation Starters for Streaming for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-full-screen-excellence-in-ppro-video-editing/"><u>[New] 2024 Approved Full Screen Excellence in PPro Video Editing</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-sharpen-your-videography-skills-converting-standard-definition-to-hdr-excellence/"><u>[New] 2024 Approved Sharpen Your Videography Skills Converting Standard Definition to HDR Excellence</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/dding-audio-descriptions-to-videos-on-youtube/"><u>[New] Adding Audio Descriptions to Videos on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/levate-your-content-with-these-20-pro-video-shortcuts-for-2024/"><u>[New] Elevate Your Content With These 20 Pro Video Shortcuts for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rom-humble-beginnings-jake-paul-on-youtube-triumph-for-2024/"><u>[New] From Humble Beginnings Jake Paul on YouTube Triumph for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-evaluating-the-top-video-streaming-apps-for-phones/"><u>[New] In 2024, Evaluating the Top Video Streaming Apps for Phones</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-achieve-unstoppable-viral-traction-with-these-fb-tricks-for-2024/"><u>[Updated] Achieve Unstoppable Viral Traction with These FB Tricks for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-cutting-edge-drone-graphics-first-20-free-luts-on-dji-drones-for-2024/"><u>[Updated] Cutting Edge Drone Graphics First 20 Free LUTS on DJI Drones for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-shattering-standards-an-in-depth-look-at-the-eizo-coloredge-monitor-for-2024/"><u>[Updated] Shattering Standards – An In-Depth Look at the EIZO ColorEdge Monitor for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-the-affordable-art-of-youtube-introsends/"><u>2024 Approved The Affordable Art of YouTube Intros/Ends</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/como-hacer-un-usb-de-rescate-para-windows-7-guia-completa/"><u>Cómo Hacer Un USB De Rescate Para Windows 7 - Guía Completa</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-11-best-location-changers-for-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for OnePlus Nord CE 3 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-xiaomi-redmi-k70-pro-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Xiaomi Redmi K70 Pro Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/newbies-guide-top-10-sms-chamber-secrets/"><u>Newbie's Guide: Top 10 SMS Chamber Secrets</u></a></li>
 </ul></div>
 

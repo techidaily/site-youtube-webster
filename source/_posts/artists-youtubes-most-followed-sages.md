@@ -1,7 +1,7 @@
 ---
 title: "\"Apex Artists  YouTube's Most-Followed Sages\""
-date: 2024-12-08T22:28:58.635Z
-updated: 2024-12-10T21:41:21.029Z
+date: 2024-12-10T02:07:19.264Z
+updated: 2024-12-16T18:11:44.240Z
 tags:
   - ai video
   - ai youtube
@@ -59,20 +59,20 @@ In this article, we will take you through the 5 most popular creator channels on
 
 ![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 YouTube's most well-known superstar Felix Arvid Ulf Kjellberg was born 1989 in Gothenburg. PewDiePie’s channel has made this Swedish comedian, Vlogger, and gamer based in Brighton, England, a global celebrity whose videos have reached record audiences. Felix created his YouTube channel in 2010 and in only six short years the PewDiePie YouTube channel received over 16 billion views and it is currently among the most viewed channels ever.
 
 The most common videos on Felix's channel are gaming videos in which he comments and reacts to the game as he plays through it. PewDiePie’s videos are full of goofy and genuine content that amuses its spectators. Felix's YouTube channel remains by far the most subscribed channel with more than 57 million subscribers, more than 25 million more than the channel in second. He frequently appears in marketing campaigns and other social media events and is widely considered as the most influential gaming commentator of our time.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ###  2\.  HolaSoyGerman
 
 ![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second most subscribed channel on YouTube with more than 32 million subscribers. Furthermore, HolaSoyGerman’s channel is the most subscribed Spanish-speaking channel today. Germán's second YouTube channel JuegaGerman has made him the only YouTuber ever to receive two diamond play buttons for having over 40 million subscribers on his two channels.
@@ -82,10 +82,6 @@ The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by Oc
 ###  3\.  ElrubiusOMG
 
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
@@ -101,10 +97,6 @@ Most channels that have one viral video do not go on to have sustained success o
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\.  Fernanfloo
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
@@ -118,14 +110,22 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -148,22 +148,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-revolutionize-your-vlog-with-these-elite-12-cameras/"><u>[New] 2024 Approved Revolutionize Your Vlog with These Elite 12 Cameras</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/rom-content-maker-to-cash-magnet-youtubes-guide-to-ad-revenue-for-2024/"><u>[New] From Content Maker to Cash Magnet Youtube's Guide to Ad Revenue for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-how-much-wealth-can-you-generate-on-youtube-using-cpm/"><u>[New] How Much Wealth Can You Generate on YouTube Using CPM?</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/outube-editing-competitors-ranked-top-5-non-youtube-sites-list-for-2024/"><u>[New] YouTube Editing Competitors Ranked Top 5 Non-YouTube Sites List for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-audio-to-video-bridge-easy-3-step-guide-for-mp3-to-youtube-uploads/"><u>[Updated] In 2024, Audio-to-Video Bridge Easy 3-Step Guide for MP3 to YouTube Uploads</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-keep-up-to-date-with-youtube-community-guidelines/"><u>[Updated] In 2024, Keep Up-to-Date With YouTube Community Guidelines</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-infographics-boosting-buzz-through-social-videos-for-2024/"><u>[Updated] Infographics Boosting Buzz Through Social Videos for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-beyond-boundaries-recognizing-leading-women-in-digital-storytelling/"><u>2024 Approved Beyond Boundaries Recognizing Leading Women in Digital Storytelling</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-seamless-internet-experience-try-these-7-best-android-apps/"><u>2024 Approved Seamless Internet Experience? Try These 7 Best Android Apps</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-unlock-your-screen-androids-premier-free-recorder-tools/"><u>2024 Approved Unlock Your Screen Android's Premier Free Recorder Tools</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/arduino-uno-and-windows-compatibility-fixing-driver-challenges-efficiently/"><u>Arduino Uno and Windows Compatibility: Fixing Driver Challenges Efficiently</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/avoid-facebooks-targeted-video-promotions-for-2024/"><u>Avoid Facebook's Targeted Video Promotions for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/best-4k-laptops-ultimate-gaming-edition/"><u>Best 4K Laptops - Ultimate Gaming Edition</u></a></li>
-<li><a href="https://discover-deluxe.techidaily.com/how-to-seamlessly-migrate-viber-chats-between-two-android-phones/"><u>How To Seamlessly Migrate Viber Chats Between Two Android Phones</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-enhance-editing-unlimited-free-audio-samples/"><u>In 2024, Enhance Editing Unlimited Free Audio Samples!</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-syncing-your-soundtrack-import-music-into-inshot/"><u>In 2024, Syncing Your Soundtrack Import Music Into InShot</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/ranking-times-best-top-15-timeless-stop-motion-flicks/"><u>Ranking Time's Best - Top 15 Timeless Stop-Motion Flicks</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/esigning-effective-thumbnails-with-imagery/"><u>[New] Designing Effective Thumbnails with Imagery</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-how-to-be-a-youtube-gamer/"><u>[New] In 2024, How To Be a YouTube Gamer</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-artisans-guide-to-personal-branding-via-youtube-for-2024/"><u>[New] The Artisan's Guide to Personal Branding via YouTube for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-aerial-shooting-essentials-for-2024/"><u>[Updated] Aerial Shooting Essentials for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-what-is-t-series-income-on-youtube/"><u>[Updated] In 2024, What Is T Series Income on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-shegames-supreme-the-10-best-female-youtubers/"><u>[Updated] SheGames Supreme The 10 Best Female YouTubers</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-the-leading-10-competitors-to-zoom-for-pc-and-phone/"><u>[Updated] The Leading 10 Competitors to Zoom for PC & Phone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-deciphering-how-t-series-earns-via-youtube/"><u>2024 Approved Deciphering How T-Series Earns via Youtube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-inside-tips-for-maximizing-your-creator-studio-potential/"><u>2024 Approved Inside Tips for Maximizing Your Creator Studio Potential</u></a></li>
+<li><a href="https://techidaily.com/how-to-hard-reset-poco-x6-pro-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Poco X6 Pro Without Password | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-android/"><u>How to Screen Mirroring Samsung Galaxy XCover 6 Pro Tactical Edition? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-10-best-live-tv-streaming-services-with-comparison/"><u>In 2024, 10 Best Live TV Streaming Services - With Comparison</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-proactive-preservation-ios-photos-to-your-snap-story/"><u>In 2024, Proactive Preservation IOS Photos to Your Snap Story</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210912761-9780994304858-paths-to-infinity/"><u>Paths to Infinity | Free Book</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ssential-list-of-8-authentic-youtube-boosters/"><u>The Essential List of 8 Authentic YouTube Boosters</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/top-5-mac-voice-capture-apps-compiling-peak-performances-for-2024/"><u>Top 5 Mac Voice Capture Apps Compiling Peak Performances for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/unleash-endless-power-on-the-go-exploring-the-versatility-of-omnicharges-omni-20-portable-charger-and-qi-charging-capabilities/"><u>Unleash Endless Power On-the-Go: Exploring the Versatility of Omnicharge's Omni 20 Portable Charger and Qi Charging Capabilities</u></a></li>
 </ul></div>
 

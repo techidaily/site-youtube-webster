@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Practical Steps for Immediate Deletion on Youtube Platform for 2024"
-date: 2024-12-04T23:31:11.673Z
-updated: 2024-12-11T02:39:50.718Z
+date: 2024-12-16T02:13:02.956Z
+updated: 2024-12-17T03:12:12.126Z
 tags:
   - ai video
   - ai youtube
@@ -41,10 +41,6 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Delete YouTube Comments from Desktop?
 
 In this section, we will tell you how you can do it from your desktop.
@@ -56,10 +52,6 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -69,6 +61,10 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 3. Select the video from where you want to delete a comment. Scroll down to reach the desired comment.
 4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from YouTube?
 
@@ -81,10 +77,6 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from Your Phone?
 
@@ -121,7 +113,11 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -137,15 +133,19 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Final Thoughts
 
@@ -174,24 +174,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-x-studio-audio-pc-app/"><u>[New] 2024 Approved X-Studio Audio PC App</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ridging-content-gap-youtube-videos-to-instagram/"><u>[New] Bridging Content Gap YouTube Videos to Instagram</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/utting-edge-gear-for-aspiring-youtube-stars/"><u>[New] Cutting-Edge Gear for Aspiring YouTube Stars</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/etting-started-on-youtube-broadcasts-using-obs/"><u>[New] Getting Started on YouTube Broadcasts Using OBS</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-how-to-use-dslr-for-facebook-live-on-your-pc/"><u>[New] How to Use DSLR for Facebook Live on Your PC?</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/aster-the-algorithm-effective-tools-to-increase-youtube-views-for-2024/"><u>[New] Master the Algorithm Effective Tools to Increase YouTube Views for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/racking-trends-the-systematic-method-for-assessing-youtube-income-flows-for-2024/"><u>[New] Tracking Trends The Systematic Method for Assessing YouTube Income Flows for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-skyline-your-videos-dodging-the-bot-observers/"><u>[Updated] 2024 Approved Skyline Your Videos Dodging the Bot Observers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-video-growth-booster-top-seo-tools-uncovered/"><u>[Updated] In 2024, Video Growth Booster – Top SEO Tools Uncovered</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-depth-analysis-of-live-streaming-tech/"><u>[Updated] In-Depth Analysis of Live Streaming Tech</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-rise-to-the-top-the-essentials-of-starting-a-youtube-gaming-sensation-for-2024/"><u>[Updated] Rise to the Top The Essentials of Starting a YouTube Gaming Sensation for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-the-ultimate-guide-to-youtube-channel-removal-pcphone/"><u>2024 Approved The Ultimate Guide to Youtube Channel Removal (PC/Phone)</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/ai-at-your-service-harnessing-the-power-of-chabt-gpt-in-professional-settings/"><u>AI at Your Service: Harnessing the Power of Chabt GPT in Professional Settings</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/download-per-come-fare-converti-il-dvd-in-formato-mp4-su-una-chiavetta-usb-con-semplicita/"><u>Download per Come Fare: Converti Il DVD in Formato MP4 Su Una Chiavetta USB Con Semplicità!</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-explore-the-top-10-fastest-growing-youtube-platforms-to-motivate-you/"><u>In 2024, Explore the Top 10 Fastest Growing YouTube Platforms to Motivate You</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-transformation-tutorial-sdr-to-high-dynamic-range-video-upgrading/"><u>In 2024, The Ultimate Transformation Tutorial SDR to High-Dynamic Range Video Upgrading</u></a></li>
-<li><a href="https://extra-information.techidaily.com/picart-secrets-to-pristine-picture-perfection/"><u>PicArt Secrets to Pristine Picture Perfection</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-advantages-of-electric-car-performance-over-traditional-gas-powered-engines-explained/"><u>The Advantages of Electric Car Performance Over Traditional Gas-Powered Engines Explained</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-free-video-editing-for-dummies-top-picks-for-beginners/"><u>Updated In 2024, Free Video Editing for Dummies Top Picks for Beginners</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-unlocking-video-content-free-downloader-apps-guide/"><u>[New] In 2024, Unlocking Video Content Free Downloader Apps Guide</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-the-clear-winner-in-screen-recording-software/"><u>[New] The Clear Winner in Screen Recording Software</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ideo-marketing-mastery-for-youtube-success-for-2024/"><u>[New] Video Marketing Mastery for YouTube Success for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-premium-7-vlog-cameras-boosting-audience-engagement-and-retention/"><u>[Updated] 2024 Approved Premium 7 Vlog Cameras Boosting Audience Engagement & Retention</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-unwind-the-mind-the-ultimate-chill-list-for-2024/"><u>[Updated] Unwind the Mind The Ultimate Chill List for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-the-affordable-art-of-youtube-introsends/"><u>2024 Approved The Affordable Art of YouTube Intros/Ends</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/discover-the-ultimate-8-google-play-pass-gaming-selection/"><u>Discover the Ultimate 8 Google Play Pass Gaming Selection</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/effective-strategies-for-dealing-with-a-401-security-prohibited-error-in-web-applications/"><u>Effective Strategies for Dealing with a 401 Security Prohibited Error in Web Applications</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/cing-beauty-on-streams-via-color-grading-for-2024/"><u>Enhancing Beauty on Streams via Color Grading for 2024</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/how-to-enable-disable-and-change-safari-location-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>How to Enable, Disable, and Change Safari Location on Apple iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-flipping-the-script-mobile-filmmaking-and-youtube-thumbnail-tricks/"><u>In 2024, Flipping the Script Mobile Filmmaking & YouTube Thumbnail Tricks</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-launch-your-athletic-channel-step-by-step-guide-on-mac-os/"><u>In 2024, Launch Your Athletic Channel Step by Step Guide on Mac OS</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/stream-anything-to-chromecast-the-ultimate-video-format-guide-for-2024/"><u>Stream Anything to Chromecast The Ultimate Video Format Guide for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ath-to-youtube-gaming-popularity-for-2024/"><u>The Path to YouTube Gaming Popularity for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/transform-your-smartphone-into-an-extra-monitor-with-this-brilliant-laptop-docking-station-insights/"><u>Transform Your Smartphone Into an Extra Monitor with This Brilliant Laptop Docking Station! - Insights</u></a></li>
 </ul></div>
 

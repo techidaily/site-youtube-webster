@@ -1,7 +1,7 @@
 ---
 title: "\"The Core Interface  YouTube Studio Explained\""
-date: 2024-08-15T14:28:06.480Z
-updated: 2024-08-16T14:28:06.480Z
+date: 2024-12-15T22:54:58.401Z
+updated: 2024-12-17T02:58:57.452Z
 tags:
   - ai video
   - ai youtube
@@ -34,6 +34,10 @@ On the main dashboard of the Creator Studio, you will see a menu that includes y
 
 Also on the dashboard, you can see analytics for the most successful videos that you have posted.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Adjusting the Dashboard
 
 Pinning new charts to the dashboard will ensure that all of the data you need most often is easily viewable upon first entering the Creator Studio. All you need to do to add new widgets to the dashboard sidebar is to use the **add widget** feature.
@@ -41,13 +45,9 @@ Pinning new charts to the dashboard will ensure that all of the data you need mo
 Making adjustments to your current widgets simply involves clicking on the gear icon in the top right corner to add custom tiles as well as rearrange the order of the various widgets that you have selected.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## YouTube Creator Studio Tools
 
 **Video Manager:** from the Video Manager section you can view any of the videos that you have posted to YouTube. This menu includes all of your uploaded videos whether they are public, unlisted, or private. You can see advanced statistics on every one of the videos you posted as well as download MP4s of your videos for re-editing. The video manager allows you to very quickly select multiple videos and then add them to a playlist.
@@ -63,20 +63,23 @@ How many times a week do you check your stats in the YouTube Creator Studio?
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Edit YouTube Videos with Filmora
 
 As one of the most versatile video editing software, Filmora offers various types of templates and effects with an intuitive interface, which helps you custom your videos without hassle. Download the free trial version and get started now.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -85,14 +88,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -101,4 +101,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-ultimate-10-volume-upgrade-tools-for-pc-ios-and-android/"><u>[New] 2024 Approved Ultimate 10 Volume Upgrade Tools for PC, iOS & Android</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-fuse-melodies-into-your-youtube-digital-realm/"><u>[New] In 2024, Fuse Melodies Into Your Youtube Digital Realm</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-quick-fixes-addressing-top-youtube-short-challenges/"><u>[New] In 2024, Quick Fixes Addressing Top YouTube Short Challenges</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rofitable-content-creation-on-youtube-through-smart-adsense-use-for-2024/"><u>[New] Profitable Content Creation on YouTube Through Smart AdSense Use for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-best-storytelling-techniques-to-grow-your-youtube-channel/"><u>[New] The Best Storytelling Techniques to Grow Your YouTube Channel</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-the-ultimate-vr-player-guide-unveiling-the-best-pc-streamers-for-2024/"><u>[New] The Ultimate VR Player Guide Unveiling the Best PC Streamers for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-thriving-in-digital-realms-the-power-of-well-planned-backlinks/"><u>[New] Thriving in Digital Realms The Power of Well-Planned Backlinks</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-earning-hacks-for-youtube-short-creators/"><u>[Updated] 2024 Approved Earning Hacks for YouTube Short Creators</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-interactive-subscription-buttons-filmoras-guide-to-animated-sign-up-bars/"><u>[Updated] 2024 Approved Interactive Subscription Buttons - Filmora's Guide to Animated Sign-Up Bars</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-unlocking-popularity-the-best-hashtags-to-use-on-instagram/"><u>[Updated] 2024 Approved Unlocking Popularity The Best #Hashtags to Use on Instagram</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-proven-methods-for-youtube-success-top-8-tools-for-2024/"><u>[Updated] Proven Methods for YouTube Success - Top 8 Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-the-secret-sauce-of-profitable-fb-ads-with-dynamic-animation/"><u>[Updated] The Secret Sauce of Profitable FB Ads with Dynamic Animation</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-high-end-hardware-unveiled-by-gaming-influencers/"><u>2024 Approved High-End Hardware Unveiled by Gaming Influencers</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-xbox-game-recording-techniques-for-gamers/"><u>2024 Approved Xbox Game Recording Techniques for Gamers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/decoding-the-secrets-of-masterful-windows-10-use/"><u>Decoding the Secrets of Masterful WINDOWS 10 Use</u></a></li>
+<li><a href="https://games-able.techidaily.com/optimizing-xbox-membership-management-on-x-series-s/"><u>Optimizing Xbox Membership Management on X Series S</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/king-views-youtube-thumbnail-dimension-strategies/"><u>Unlocking Views YouTube Thumbnail Dimension Strategies</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Enhance Your YouTube Journey with Analytic Know-How for 2024\""
-date: 2024-08-22T22:00:00.029Z
-updated: 2024-08-23T22:00:00.029Z
+date: 2024-12-11T05:09:47.163Z
+updated: 2024-12-17T00:52:16.400Z
 tags:
   - ai video
   - ai youtube
@@ -86,6 +86,11 @@ By default, the dashboard will show you the stats from the last 28 days, but you
 
 ![data-of-specific-region](https://images.wondershare.com/filmora/data-of-specific-region.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Note: You will be able to change the time frame and region for all the data within YouTube Analytics.
   
 #### **See Your Top Performing Videos In Overview**
@@ -94,6 +99,11 @@ The Overview dashboard highlights your Top 10 videos. Right away you can see the
 
 ![top-performing-videos-in-overview](https://images.wondershare.com/filmora/top-performing-videos-in-overview.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **Get Insights On Your Audience In Overview**
 
 In Overview you can see where the majority of your audience is from, what gender they are, how they are discovering your videos in Traffic Source, and where they are watching your video in Playback Locations:
@@ -168,6 +178,11 @@ You can also change how you view your data, whether Daily, Weekly, Monthly, etc.
 
 ![slide-bar-daily-view](https://images.wondershare.com/filmora/slide-bar-daily-view.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **Identify Your Highest Earning Videos**
 
 In the Revenue report, you can see which videos are earning you the most. Consider how these videos are successful:
@@ -194,6 +209,11 @@ Know more about how your data are related by comparing to see if Revenue is affe
 
 ![revenue-earning-to-other-metrics](https://images.wondershare.com/filmora/revenue-earning-to-other-metrics.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **How to Use the Revenue Dashboard**
 
 Figuring [how to make money on YouTube](https://tools.techidaily.com/wondershare/filmora/download/) is tricky and any insight you can get can give you an advantage, steer you in the right direction, and help you focus on what matters.
@@ -291,6 +311,11 @@ While you should aim to have 100% audience retention, if you can get an average 
 
 ![average-view-duration](https://images.wondershare.com/filmora/average-view-duration.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **See Audience Retention of Individual Videos**
 
 **Absolute Audience Retention:** This report shows you the number of views at every point in the video as a percentage. This will let you know which part of the video is most popular, which part is causing a big drop off, and which part viewers are skipping to or rewatching.
@@ -369,6 +394,11 @@ If your video is only promoted organically your views will likely be coming from
 
 ![playback-locations](https://images.wondershare.com/filmora/playback-locations.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **Which External Source Are Your Videos Being Watched**
 
 By clicking into the Embedded in External Websites and Apps report, you’ll be able to see all the different websites and apps that your video is featured on. This will give you a good indication of which sites and apps are driving the most views.
@@ -451,6 +481,11 @@ Click into YouTube search to see the most popular search terms that have lead to
 
 ![keywords-leading-to-subscription](https://images.wondershare.com/filmora/keywords-leading-to-subscription.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **See Which Date You Got The Most Subscribers**
 
 Click into Date and find out if there was something significant that happened that day that made people subscribe to your channel more than others?
@@ -537,6 +572,11 @@ Evaluate how your videos are performing by comparing them, and identifying what 
 
 ![how-your-videos-are-engaging-audience](https://images.wondershare.com/filmora/how-your-videos-are-engaging-audience.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **How to Use Comments Report**
 
 If there is a video that triggered a debate within your community or if a video led to a lot of questions, this may inspire you to create more content around that topic.
@@ -587,6 +627,11 @@ This report also shows you how often viewers choose to close your Annotation com
 
 ![annotations-clicked-within-a-period](https://images.wondershare.com/filmora/annotations-clicked-within-a-period.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **Compare Performance of Different Annotations**
 
 This report allows you to see which type of annotations are performing the best for your audience.
@@ -675,6 +720,10 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -683,14 +732,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -699,8 +745,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://hardware-help.techidaily.com/1722960782294-free-download-official-windows-compatible-msi-gs65-drivers-get-them-now/"><u>[Free Download] Official Windows-Compatible MSI GS65 Drivers - Get Them Now</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nlock-more-views-the-art-of-crafting-titles-and-tags-for-youtube/"><u>[New] Unlock More Views The Art of Crafting Titles & Tags for YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-best-free-youtube-intro-makers/"><u>[Updated] 2024 Approved Best Free YouTube Intro Makers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-confirming-youtube-pro-rated-earnings-for-2024/"><u>[Updated] Confirming YouTube Pro-Rated Earnings for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-expert-audacity-tricks-for-premium-audio-for-2024/"><u>[Updated] Expert Audacity Tricks for Premium Audio for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-how-often-do-youtubers-receive-income-for-2024/"><u>[Updated] How Often Do YouTubers Receive Income for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-streamlining-access-to-subscriber-information/"><u>[Updated] In 2024, Streamlining Access to Subscriber Information</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-maximizing-impact-video-marketing-on-youtube-for-2024/"><u>[Updated] Maximizing Impact Video Marketing on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-which-video-sharing-platform-prevails-analyzing-igtv-vs-youtube-for-2024/"><u>[Updated] Which Video Sharing Platform Prevails? Analyzing IGTV Vs. YouTube for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ar-5-by-arcshell-exceptional-value-with-topnotch-augmented-reality-features/"><u>AR-5 by ArcShell: Exceptional Value with Topnotch Augmented Reality Features</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-nokia-c12-plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Nokia C12 Plus | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-boost-your-channels-income-understanding-critical-view-thresholds/"><u>In 2024, Boost Your Channel's Income Understanding Critical View Thresholds</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-gionee-f3-pro-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Gionee F3 Pro FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-exploring-gopros-peak-adapters-the-ultimate-6-selection-guide/"><u>In 2024, Exploring GoPro's Peak Adapters The Ultimate 6 Selection Guide</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-realme-v30t-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Realme V30T to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-asus-rog-phone-8-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Asus ROG Phone 8</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

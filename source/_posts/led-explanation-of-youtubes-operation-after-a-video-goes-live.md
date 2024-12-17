@@ -1,7 +1,7 @@
 ---
 title: "Detailed Explanation of YouTube's Operation After a Video Goes Live"
-date: 2024-08-15T14:27:49.161Z
-updated: 2024-08-16T14:27:49.161Z
+date: 2024-12-11T03:05:35.851Z
+updated: 2024-12-17T01:14:35.137Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ You use YouTube to watch videos, post your own content, and build up a following
 
 This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Does YouTube Work
 
 #### 1\. What Happens When You Upload?
@@ -40,9 +44,17 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 
 ![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
 
 ![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
 
@@ -54,20 +66,21 @@ If videos take a long time to load for you then there are a few things you can d
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +89,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-from-airwaves-to-e-readers-how-to-save-web-tv-shows/"><u>[New] From Airwaves To E-Readers How to Save Web TV Shows</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-voyage-to-greatness-youtubes-best-travel-vids/"><u>[New] In 2024, Voyage to Greatness YouTube's Best Travel Vids</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-ultimate-checklist-12-must-have-cameras-for-vlogging-professionals/"><u>[New] The Ultimate Checklist 12 Must-Have Cameras for Vlogging Professionals</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-addressing-missing-image-display-in-youtubes-shorts/"><u>[Updated] 2024 Approved Addressing Missing Image Display in YouTubes Shorts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-captivating-content-at-your-fingertips-download-youtube-for-ios/"><u>[Updated] In 2024, Captivating Content at Your Fingertips Download YouTube for iOS</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-professional-video-demos-harnessing-captivates-power-for-2024/"><u>[Updated] Professional Video Demos Harnessing Captivate's Power for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-windows-11-gamers-top-5-techniques-for-perfect-snapshots/"><u>[Updated] Windows 11 Gamers Top 5 Techniques for Perfect Snapshots</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-score-your-youtube-content-with-these-free-sounds/"><u>2024 Approved Score Your YouTube Content With These Free Sounds</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-youtube-studio-for-beginners-basic-to-pro-editing-guide/"><u>2024 Approved YouTube Studio for Beginners Basic to Pro Editing Guide</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/decoding-duckduckgo-a-comprehvew-on-its-functionality-and-privacy-assurance/"><u>Decoding DuckDuckGo: A Comprehvew on Its Functionality & Privacy Assurance</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/track-to-1000-subscribers-in-youtube-landscape-for-2024/"><u>Fast-Track To 1,000 Subscribers in Youtube Landscape for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-nubia-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Nubia Is Unlocked</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-maximize-engagement-secrets-of-successful-youtube-seo/"><u>In 2024, Maximize Engagement Secrets of Successful YouTube SEO</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-ultimate-guide-to-efficient-mobile-video-management-for-2024/"><u>The Ultimate Guide to Efficient Mobile Video Management for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Life Lessons Video Ideas for Self-Expression YT\""
-date: 2024-12-09T02:10:53.923Z
-updated: 2024-12-11T00:12:40.132Z
+date: 2024-12-11T17:12:57.742Z
+updated: 2024-12-16T20:28:18.161Z
 tags:
   - ai video
   - ai youtube
@@ -50,10 +50,6 @@ Before posting any videos on your channel, it can be a great idea to [create a �
 
 YouTuber Shameless Maya does an excellent job of this. She created a visually appealing and engaging 1-2 minute channel trailer that explains exactly what her channel is all about. Feel free to be as creative as you want to be.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ###  2\.  My YouTube Story
 
 On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebration of hitting their five-year mark, YouTube launched a “My YouTube Story” campaign, which featured fifteen YouTubers sharing how YouTube has changed their lives. Each of these videos would end with “What’s your YouTube story? Tell us by uploading a video.” Ever since that campaign, many YouTubers have shared their YouTube story, including me! After I had been on YouTube for two years, I felt it was time for me to share my own YouTube story with the world. Sharing your story is not only an opportunity for your viewers to get to know you but a way to inspire other creators to start their channels as well. We all have our reasons for why we started, so why not share them?
@@ -63,16 +59,24 @@ On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebrat
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\.  Snapchat/Instagram Stories Q&A
 
 Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’ve seen YouTubers get creative by asking their viewers to send snaps asking questions they will answer on a Q & A video on their channel. This video idea is great because it involves live viewer participation and a chance for viewers to be seen or noticed on their favorite Youtuber’s channels. Beauty guru stars Manny MUA and Jeffrey Star did a great example of this as a collaboration.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\.  Never Have I Ever Q & A
 
 Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q & A is a great way for viewers to get to know you better with some juicy and shocking details about yourself they otherwise wouldn’t know. It’s also a great way to play and collaborate with another YouTuber. Often, the questions will be split and you have to watch both YouTubers’ videos to find out all the details. Highly popular beauty YouTuber Desi Perkins does a great example of this while playing the game with her sister in law.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6\.  Get Ready With Me Q & A
 
@@ -82,16 +86,12 @@ Get ready with me Q & As are some of my favorite videos to watch because it’s 
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 8\.  Narrated Autobiopic
 
 Narrated Autobiopic videos are a great way to share your story or advice in a cinematic way. You can be as creative as you want to be. YouTuber Evelyn From the Internets posted a narrated autobiopic called “For People Who Feel Behind In Life” that comically introduces her story.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 9\.  25 Facts About Me Tag
@@ -109,7 +109,7 @@ YouTube live videos are probably the best ways to interact and share your story 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -133,14 +133,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-imageslice-cutter/"><u>[New] 2024 Approved ImageSlice Cutter</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-enhancing-your-video-with-professional-voice-overs/"><u>[New] Enhancing Your Video with Professional Voice Overs</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ow-to-elevate-your-youtube-videos-popularity-through-persistent-cc-licensing-for-2024/"><u>[New] How to Elevate Your YouTube Video's Popularity Through Persistent CC Licensing for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-crafting-memorable-valorant-thumbnails-a-practical-guide-for-youtube-creators/"><u>[New] In 2024, Crafting Memorable Valorant Thumbnails A Practical Guide for YouTube Creators</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/pgrading-your-videos-appeal-youtube-thumbnail-resizing/"><u>[New] Upgrading Your Video's Appeal YouTube Thumbnail Resizing</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-transform-your-videos-first-impression-with-these-fonts/"><u>[Updated] In 2024, Transform Your Video's First Impression with These Fonts</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-narratives-of-the-bravest-our-favorites-in-adventure-games/"><u>[Updated] Narratives of the Bravest Our Favorites in Adventure Games</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210904121-9781088162088-the-practical-school-of-the-holy-spirit-part-4-of-8-activate-dreams-and-visions/"><u>The Practical School of the Holy Spirit - Part 4 of 8 - Activate Dreams and Visions | Free Book</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/ultimate-methods-for-android-video-preservation/"><u>Ultimate Methods for Android Video Preservation</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-guide-to-excellent-powerpoint-recording-practices-for-2024/"><u>[New] Guide to Excellent PowerPoint Recording Practices for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-amplifying-your-social-media-reach-with-zoom-plus-fb-live/"><u>[New] In 2024, Amplifying Your Social Media Reach with ZOOM + FB Live</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-elite-10-audio-amplifiers-desktops-to-smartphones/"><u>[Updated] In 2024, Elite 10 Audio Amplifiers Desktops to Smartphones</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-master-list-of-youtube-templates-for-beginners/"><u>[Updated] In 2024, Master List of YouTube Templates for Beginners</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-movie-buffs-secret-2023-recommendations/"><u>[Updated] In 2024, Movie Buffs' Secret 2023 Recommendations</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-to-network-or-not-a-detailed-guide-for-youtubers-considering-mncs/"><u>[Updated] In 2024, To Network, Or Not A Detailed Guide for YouTubers Considering MNCs</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-turbocharge-youtube-videos-efficient-rendering-fast-transfer/"><u>[Updated] Turbocharge YouTube Videos Efficient Rendering, Fast Transfer</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-high-performance-screen-recorders-for-windows-users/"><u>2024 Approved High-Performance Screen Recorders for Windows Users</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/t-to-device-converting-youtube-tracks-for-idevices-for-2024/"><u>Direct to Device Converting YouTube Tracks for iDevices for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-create-and-grow-an-online-space-for-beauty-product-reviews-for-2024/"><u>How To Create and Grow an Online Space for Beauty Product Reviews for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-tecno-camon-20-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Tecno Camon 20 | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-eternal-void-a-complete-ban-on-youtube-short-video-feature/"><u>In 2024, Eternal Void A Complete Ban on YouTube Short Video Feature</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-flavorful-follows-top-food-vloggers-to-track/"><u>In 2024, Flavorful Follows Top Food Vloggers to Track</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Motorola Moto G04 | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-this-article-youll-get-to-know-the-best-free-online-video-editors-without-a-watermark-to-create-and-edit-videos-that-attract-thousands-of-views/"><u>In This Article, Youll Get to Know the Best Free Online Video Editors without a Watermark to Create and Edit Videos that Attract Thousands of Views</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/navigating-the-truth-how-to-cross-check-wellness-information-with-artific-ical-intelligence-tools/"><u>Navigating the Truth: How to Cross-Check Wellness Information with Artific Ical Intelligence Tools</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Motorola Moto G Stylus (2023) | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Mastering Cost-Effective Visual Integration in Writing\""
-date: 2024-08-15T14:29:07.904Z
-updated: 2024-08-16T14:29:07.904Z
+date: 2024-12-15T02:44:16.528Z
+updated: 2024-12-16T23:11:35.368Z
 tags:
   - ai video
   - ai youtube
@@ -46,39 +46,34 @@ Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down
 
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: Adding Video to Text in Filmora
 
 Besides presentation software, you can also use video editing software products to add a video to text. Filmora lets you add a video to text in just a few simple steps. You can first make a text video with animation first, and then use the picture in picture feature to add the video to text. Here are the detailed information about how to add a video to text in Filmora.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
+
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
@@ -86,8 +81,9 @@ Proceed to select a font and adjust the text size before deciding if you want to
 Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
@@ -101,8 +97,9 @@ There are so many different ways to create visually striking content, and adding
 Merging text with video is equally easy in PowerPoint and Filmora, so you just have to choose which software better suits your needs and select the materials that fit the style of your project. Learning how to add a video to text won’t take too much of your time, as this process can be completed in just a few quick steps. Which software are you using to add a video to text? Leave a comment below and let us know.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -111,14 +108,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,4 +121,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-practical-techniques-for-rapid-deletion-of-comments/"><u>[New] In 2024, Practical Techniques for Rapid Deletion of Comments</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-innovative-strategies-for-revamping-your-video-covers-on-fb/"><u>[New] Innovative Strategies for Revamping Your Video Covers on FB</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-inside-look-expert-techniques-with-vlc-playback/"><u>[New] Inside Look Expert Techniques with VLC Playback</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/earn-vfx-for-free-mastering-the-art-of-background-substitution-through-4-innovative-video-tutorials-for-2024/"><u>[New] Learn VFX for Free Mastering the Art of Background Substitution Through 4 Innovative Video Tutorials for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ptimize-online-presence-video-embellishment-with-logos-and-watermarks/"><u>[New] Optimize Online Presence Video Embellishment with Logos and Watermarks</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-free-youtube-endings-that-stand-out-ranked-for-2024/"><u>[Updated] Free YouTube Endings That Stand Out - Ranked for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-from-idea-to-screen-smartphone-video-creation-tips/"><u>[Updated] From Idea to Screen Smartphone Video Creation Tips</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-uniting-windows-and-mac-users-with-skype-groups/"><u>[Updated] In 2024, Uniting Windows & Mac Users with Skype Groups</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-pioneer-productions-leading-free-editors-on-android-for-2024/"><u>[Updated] Pioneer Productions Leading Free Editors on Android for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-distinguished-crafters-superior-online-instagram-hlv-creators/"><u>2024 Approved Distinguished Crafters Superior Online Instagram HLV Creators</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-merging-text-and-vision-on-a-limited-budget/"><u>2024 Approved Merging Text & Vision on a Limited Budget</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-smiles-and-snickers-7-hilarious-video-concepts-for-content-creators/"><u>2024 Approved Smiles & Snickers 7 Hilarious Video Concepts for Content Creators</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/comparing-experiences-testing-the-mistral-ais-le-chat-against-chatgpt/"><u>Comparing Experiences: Testing the Mistral AI's Le Chat Against ChatGPT</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/essential-guide-to-downloading-and-updating-sas-drivers-on-windows-1087/"><u>Essential Guide to Downloading and Updating SAS Drivers on Windows 10/8/7</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/exclusive-scoop-on-the-most-effective-key-retrieval-devices/"><u>Exclusive Scoop on the Most Effective Key Retrieval Devices</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1723002777034-good-news-gamers-la-noire-is-finally-out-for-windows-and-mac/"><u>Good News, Gamers: L.A. Noire Is Finally Out for Windows and Mac!</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-a-comprehensive-guide-to-apple-iphone-6s-blacklist-removal-tips-and-tools-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to Apple iPhone 6s Blacklist Removal Tips and Tools</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1722896323072-iphone-silence-issue-heres-what-you-need-to-know-and-quick-fixes/"><u>IPhone Silence Issue? Here’s What You Need to Know & Quick Fixes!</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-youtube-seo-methods-for-video-rankings-for-2024/"><u>Proven YouTube SEO Methods for Video Rankings for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"YouTube Image Marketing  Dos vs Don'ts Explained\""
-date: 2024-08-22T21:59:19.601Z
-updated: 2024-08-23T21:59:19.601Z
+date: 2024-12-12T19:50:48.567Z
+updated: 2024-12-16T19:19:40.310Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,10 @@ Here are the Dos and Don’ts of YouTube Channel Art.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What Kind of Background Should I Use?
 
 #### _DO: High-Quality Photos_
@@ -70,15 +74,13 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: What Should I Write on My Banner?
 
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 #### _Do: Include Your Channel Name_
 
 While including your channel name in your banner seems like a no brainer, it is often left out by aspiring YouTubers. Displaying your channel name in a large font allows it to be more visible for viewers - your channel name is already on the page, but it is underneath your channel art and doesn’t stand out.
@@ -99,9 +101,6 @@ Including social media icons in your channel art lets people know where they can
 
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 _Make sure everything important fits in the safe area!_
 
 #### _Do: Include Brief Channel Description or Tag Line_
@@ -113,6 +112,10 @@ I’ve noticed that YouTubers that use 2-3 descriptive words in their channel ar
 YouTubers that use tag lines are using their channel as a platform to carry out a specific mission on giving help or educating others.
 
 Whether you decide to use descriptive words or a tag line, they will help your channel tremendously by setting expectations for your viewers.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: How Can I Make My Channel Art Look Good?
 
@@ -135,45 +138,32 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 Now that you know how to make a good YouTube banner, what will you do next?
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Touch Up YouTube Videos with Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -182,4 +172,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-ultimate-shot-upgrade-no-money-needed/"><u>[Updated] 2024 Approved Ultimate Shot Upgrade - No Money Needed</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-direct-streamline-the-most-efficient-flv-to-youtube-tools-ranked/"><u>[Updated] In 2024, Direct Streamline The Most Efficient Flv-to-YouTube Tools Ranked</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-redefining-the-art-of-editing-a-deep-dive-into-youtube-studios-capabilities/"><u>[Updated] In 2024, Redefining the Art of Editing A Deep Dive Into YouTube Studio's Capabilities</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-income-with-effective-youtube-short-strategies-for-2024/"><u>Boosting Income with Effective Youtube Short Strategies for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/etely-erase-your-connection-with-youtube-shorts/"><u>Completely Erase Your Connection with YouTube Shorts</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/explore-the-future-with-advanced-vr-finger-tech/"><u>Explore the Future with Advanced VR Finger Tech</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/gpu-not-recognized-resolve-immediately/"><u>GPU Not Recognized, Resolve Immediately</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-securely-download-and-install-intels-usb-30-drivers-on-windows-11-devices/"><u>How to Securely Download and Install Intel's USB 3.0 Drivers on Windows 11 Devices</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-successfully-update-and-install-display-drivers-on-your-windows-pc/"><u>How to Successfully Update and Install Display Drivers on Your Windows PC</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-a-comprehensive-guide-to-using-chrome-pip-across-devices/"><u>In 2024, A Comprehensive Guide to Using Chrome PIP Across Devices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-accessing-audio-at-no-cost-the-ultimate-list-of-8-mp3-seekers-android/"><u>In 2024, Accessing Audio at No Cost The Ultimate List of 8 MP3 Seekers (Android)</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/solved-warning-camera-failed-on-samsung-galaxy-a24-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Samsung Galaxy A24 | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/ultimate-guide-solving-your-airpods-connection-issues-on-windows-1011/"><u>Ultimate Guide: Solving Your AirPods Connection Issues on Windows 10/11</u></a></li>
+</ul></div>
 

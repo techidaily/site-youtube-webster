@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Unpacking Online Influence  Your Channel Versus Competitors' Strategies\""
-date: 2024-12-06T21:38:44.008Z
-updated: 2024-12-10T23:18:38.419Z
+date: 2024-12-11T19:04:56.275Z
+updated: 2024-12-17T00:24:28.527Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,7 @@ thumbnail: https://thmb.techidaily.com/cdd7fc426e2ad9d45bb7ca050714efc7a5191159c
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playback-location.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 3\.  Demographics
@@ -61,10 +61,6 @@ thumbnail: https://thmb.techidaily.com/cdd7fc426e2ad9d45bb7ca050714efc7a5191159c
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-demographic.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 4\.  Traffic sources
 
  Understanding the source of your YouTube video's traffic would help you track the prominent keywords that viewers use for landing at your YouTube video. You can figure out their choice and their search patterns this way. The YouTube insights will show you whether the viewers found your video by searching YouTube, a channel on YouTube, through suggested videos, or an external link. The YouTube Analytics tool's panel would assist you in finalizing the most beneficial traffic source for your brand. You can optimize your video and keyword strategy with this.
@@ -72,7 +68,7 @@ thumbnail: https://thmb.techidaily.com/cdd7fc426e2ad9d45bb7ca050714efc7a5191159c
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-traffic-source.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 5\.  Audience Retention
@@ -81,21 +77,25 @@ thumbnail: https://thmb.techidaily.com/cdd7fc426e2ad9d45bb7ca050714efc7a5191159c
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-audience-retention.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 6\.  Devices
 
  It is important to know which device is being used to watch the video. The metrics is distributed among mobile phones, computer, TV, tablet etc. you will be able to understand whether your video needs to be optimized for a certain video or not.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-devices.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 7\.  Likes and dislikes
 
  YouTube insights gauge the audience acceptance for your video by the number of likes and dislikes. Videos with a huge number of like implies that it is loved by people, though, the quality of video can't exactly be defined by the number of likes or dislikes. Even the best quality video created for asking opinions about a certain situation/issue might be good enough but still get dislikes.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-likes-and-dislikes.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 8\.  Subscribers
 
@@ -113,6 +113,10 @@ thumbnail: https://thmb.techidaily.com/cdd7fc426e2ad9d45bb7ca050714efc7a5191159c
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-annotations.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 10\.  Comments
 
  Audience engagement on any YouTube video can easily be gauged by using the vital aspect known as comments. Either it touched a chord in their heart, inspired or motivated them, or simply made them smile, the comments will say it all. Sometimes the audience simply taps 'Like' in place of commenting at their convenient.
@@ -125,6 +129,10 @@ thumbnail: https://thmb.techidaily.com/cdd7fc426e2ad9d45bb7ca050714efc7a5191159c
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-cards.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 12\.  Sharing
 
  This aspect sums up the amount of shares of the YouTube video across different social networks along with the share date. Google ranking is influenced with the share numbers, as higher the number more the chances of unique backlinks for your videos.
@@ -136,14 +144,6 @@ thumbnail: https://thmb.techidaily.com/cdd7fc426e2ad9d45bb7ca050714efc7a5191159c
  Favorites has been renamed to 'Videos in playlists'. Your reach broadens as people keep marking your videos as favorites on their playlist. This is visible to the public on the YouTube channel itself.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playlists.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to analyze your competitors
 
@@ -192,22 +192,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-channel-transformation-via-musical-additions/"><u>[Updated] 2024 Approved Channel Transformation via Musical Additions</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-best-in-class-textify-your-vlogs/"><u>[Updated] In 2024, Best in Class Textify Your Vlogs</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-learn-the-low-cost-way-of-designing-winning-youtube-ad-campaigns/"><u>[Updated] Learn the Low-Cost Way of Designing Winning YouTube Ad Campaigns</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-ultimate-non-popular-films-viewing-list-for-2024/"><u>[Updated] Ultimate Non-Popular Films Viewing List for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-advanced-techniques-for-title-artistry-in-adobe-ae/"><u>2024 Approved Advanced Techniques for Title Artistry in Adobe AE</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-unleashing-your-contents-potential-journey-towards-gaining-sponsorship-revenue/"><u>2024 Approved Unleashing Your Content's Potential Journey Towards Gaining Sponsorship Revenue</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/complete-resolution-steps-for-not-detected-cygwin1dll-mishap/"><u>Complete Resolution Steps for 'Not Detected' cygwin1.dll Mishap</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ce-visibility-and-engagement-vlogs-seo-arsenal-for-2024/"><u>Enhance Visibility & Engagement Vlog's SEO Arsenal for 2024</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-change-your-apple-id-password-on-your-apple-iphone-12-pro-max-by-drfone-ios/"><u>How To Change Your Apple ID Password On your Apple iPhone 12 Pro Max</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-vivo-s17t-to-mac-drfone-by-drfone-android/"><u>How to Mirror Vivo S17t to Mac? | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-content-curation-youtube-vs-tiktok-showdown/"><u>In 2024, Content Curation YouTube Vs. TikTok Showdown</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-how-to-add-music-to-instagram-reels/"><u>In 2024, How to Add Music to Instagram Reels?</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Oppo Reno 10 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-unleash-your-creativity-online-video-making-with-wevideo/"><u>New Unleash Your Creativity Online Video Making with WeVideo</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/sh-your-youtube-earnings-achieving-prosperity-at-the-50-written-excerpt-for-2024/"><u>Unleash Your YouTube Earnings Achieving Prosperity at the 50 Written Excerpt for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/bes-everlasting-titles-with-millions-of-viewers-for-2024/"><u>YouTube's Everlasting Titles with Millions of Viewers for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-expert-level-mp4-integrator-with-fb-compatibility/"><u>[New] In 2024, Expert-Level MP4 Integrator with FB Compatibility</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-final-step-guide-free-yourself-from-youtube-shorts/"><u>[Updated] Final Step Guide Free Yourself From YouTube Shorts</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-harmony-at-hand-free-audio-from-fb-for-2024/"><u>[Updated] Harmony at Hand Free Audio From FB for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-how-to-send-hidden-youtube-videos-using-google-login/"><u>[Updated] In 2024, How to Send Hidden YouTube Videos Using Google Login</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-steps-to-clear-out-your-youtube-watch-later-collection/"><u>[Updated] In 2024, Steps to Clear Out Your YouTube Watch Later Collection</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-transform-your-videos-secrets-of-effective-youtube-seo-tools-for-2024/"><u>[Updated] Transform Your Videos Secrets of Effective YouTube SEO Tools for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/enhance-your-live-broadcasts-with-manycam-best-virtual-camera-and-video-editing-tool/"><u>Enhance Your Live Broadcasts with ManyCam: Best Virtual Camera and Video Editing Tool</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-vivo-v27-pro-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Vivo V27 Pro Phone that is Locked?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-gionee-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For Gionee</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-samsung-galaxy-s24plus-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Samsung Galaxy S24+? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ssential-guide-to-embedding-youtube-into-gslides-for-2024/"><u>The Essential Guide to Embedding YouTube Into GSlides for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/the-ultimate-how-to-correcting-no-signal-detected-by-computermonitor-problems/"><u>The Ultimate How-To: Correcting No Signal Detected by Computer/Monitor Problems</u></a></li>
+<li><a href="https://fox-http.techidaily.com/zero-cost-strategies-for-altering-game-characters-vocal-presence-in-free-fire/"><u>Zero-Cost Strategies for Altering Game Characters' Vocal Presence in Free Fire</u></a></li>
 </ul></div>
 

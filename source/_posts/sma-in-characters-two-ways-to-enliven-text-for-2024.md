@@ -1,7 +1,7 @@
 ---
 title: "\"Charisma in Characters  Two Ways to Enliven Text for 2024\""
-date: 2024-08-22T21:59:03.208Z
-updated: 2024-08-23T21:59:03.208Z
+date: 2024-12-13T21:00:26.021Z
+updated: 2024-12-17T05:37:02.299Z
 tags:
   - ai video
   - ai youtube
@@ -52,9 +52,17 @@ Go to **Effects** from the standard toolbar, expand the **Filters** category fro
 
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4: Export the Final Output**
 
@@ -69,6 +77,14 @@ Double click the text track, go to the **Chroma Key** effect, select the **Color
 As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
 
@@ -122,20 +138,21 @@ Generating **bounce text** effect is much simpler when you use Wondershare Filmo
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -144,8 +161,22 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/oost-channels-to-partner-status-in-under-90-days-start-now-in-2024/"><u>[New] Boost Channels to Partner Status in Under 90 Days, Start Now, In 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-beats-and-banners-discovering-premium-dj-templates/"><u>[New] In 2024, Beats & Banners Discovering Premium DJ Templates</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-proven-methods-for-assessing-youtube-channel-profitability/"><u>[Updated] 2024 Approved Proven Methods for Assessing YouTube Channel Profitability</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-counterview-commentary-review/"><u>[Updated] CounterView Commentary Review</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-decoding-digital-dynamics-unveiling-the-secret-sauce-for-youtube-success-and-revenue-for-2024/"><u>[Updated] Decoding Digital Dynamics Unveiling the Secret Sauce for YouTube Success & Revenue for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-elevating-your-streaming-experience-switching-between-spotify-and-youtube-music/"><u>[Updated] Elevating Your Streaming Experience Switching Between Spotify & YouTube Music</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-discover-the-most-reliable-royalty-free-audio-libraries/"><u>2024 Approved Discover the Most Reliable Royalty-Free Audio Libraries</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-serene-strums-and-dance-steps-tiktoks-country-playlist/"><u>2024 Approved Serene Strums and Dance Steps TikTok's Country Playlist</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unlocking-youtubes-srt-files-three-easy-methods/"><u>2024 Approved Unlocking YouTube’s SRT Files Three Easy Methods</u></a></li>
+<li><a href="https://article-posts.techidaily.com/combine-audio-streams-into-powerpoint-flow-for-2024/"><u>Combine Audio Streams Into PowerPoint Flow for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-resolve-cwindowssystem32configsystemprofiledesktop-access-errors/"><u>How to Resolve C: Windows system32 config systemprofile Desktop Access Errors</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-airborne-broadcasting-how-to-stream-with-dji-drones/"><u>In 2024, Airborne Broadcasting How to Stream with DJI Drones</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-digital-domain-decisions-short-form-content/"><u>In 2024, Digital Domain Decisions Short-Form Content</u></a></li>
+<li><a href="https://article-tips.techidaily.com/reflection-photography-tips-for-iphone/"><u>Reflection Photography Tips for iPhone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nary-composer-dual-elements-conjoined/"><u>Visionary Composer Dual Elements Conjoined</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
