@@ -1,7 +1,7 @@
 ---
 title: "CodeGPT for Developers: How to Seamlessly Add It to Your Visual Studio Code Environment"
-date: 2024-08-08T07:38:43.581Z
-updated: 2024-08-09T07:38:43.581Z
+date: 2024-12-20T20:11:36.500Z
+updated: 2024-12-25T18:18:02.786Z
 tags:
   - chatgpt
   - open-ai
@@ -15,14 +15,15 @@ thumbnail: https://thmb.techidaily.com/54f82da67ed2494634e4d548a9b8c903250bdadd5
 
 ## Ready for GPT on Your Desktop? Discover This Free, Powerful Open-Source Option
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Quick Links
 
 * [What Is the Open-Source ChatGPT Desktop Application?](https://www.makeuseof.com/cant-wait-for-the-chatgpt-desktop-app-try-this-open-source-alternative-instead/#what-is-the-open-source-chatgpt-desktop-application)
 * [How to Install and Configure ChatGPT Desktop Application](https://www.makeuseof.com/cant-wait-for-the-chatgpt-desktop-app-try-this-open-source-alternative-instead/#how-to-install-and-configure-chatgpt-desktop-application)
 * [When Is the Official ChatGPT Desktop Version Launching?](https://www.makeuseof.com/cant-wait-for-the-chatgpt-desktop-app-try-this-open-source-alternative-instead/#when-is-the-official-chatgpt-desktop-version-launching)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -37,8 +38,9 @@ thumbnail: https://thmb.techidaily.com/54f82da67ed2494634e4d548a9b8c903250bdadd5
  But if you can't wait—like me!—you can try a free, open-source version instead.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What Is the Open-Source ChatGPT Desktop Application?
 
  ChatGPT users have long wanted a desktop version. The world's leading generative AI chatbot works great in a browser, but sometimes, a desktop app is more convenient.
@@ -54,14 +56,16 @@ thumbnail: https://thmb.techidaily.com/54f82da67ed2494634e4d548a9b8c903250bdadd5
  The project's development is currently paused as the official desktop versions are coming soon. The developer says, "I am currently looking for some differentiating features to develop version 2.0." Still, the latest version, V1.1.0, works fine at the time of writing.
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Install and Configure ChatGPT Desktop Application
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![chatgpt open source desktop version home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/05/chatgpt-open-source-desktop-version-home-page.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Head to the open-source[ChatGPT Desktop Application download page](https://github.com/lencx/ChatGPT/releases/tag/v1.1.0) . The latest version at the time of writing is V1.1.0, but you can check for a newer version.
 2. Download the applicable version for your operating system, then install it as per your operating system.
@@ -69,14 +73,12 @@ thumbnail: https://thmb.techidaily.com/54f82da67ed2494634e4d548a9b8c903250bdadd5
 
  Then, just sign in to ChatGPT as you usually would. All of your previous chats will be waiting for you, and you can choose from GPT-4, GPT-4o, DALL-E, and so on.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ![chatgpt open source desktop version makeuseof search result](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/05/chatgpt-open-source-desktop-version-makeuseof-search-result.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## When Is the Official ChatGPT Desktop Version Launching?
 
  The official ChatGPT Desktop app is already slowly rolling out to macOS users.
@@ -85,14 +87,11 @@ thumbnail: https://thmb.techidaily.com/54f82da67ed2494634e4d548a9b8c903250bdadd5
 
  Still, if you can't wait, you can give this open-source ChatGPT desktop version a try instead.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -101,4 +100,20 @@ thumbnail: https://thmb.techidaily.com/54f82da67ed2494634e4d548a9b8c903250bdadd5
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-streamlining-the-process-of-finding-your-own-musical-compilation-on-youtube/"><u>[New] In 2024, Streamlining the Process of Finding Your Own Musical Compilation on Youtube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nnovative-split-screen-videos-for-youtube-sharing/"><u>[New] Innovative Split-Screen Videos for YouTube Sharing</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-optimize-your-brand-presence-on-youtube-with-video-embellishments/"><u>[Updated] 2024 Approved Optimize Your Brand Presence on YouTube with Video Embellishments</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-rank-your-videos-right-top-tools-uncovered-for-youtube-success/"><u>[Updated] 2024 Approved Rank Your Videos Right - Top Tools Uncovered for YouTube Success</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-behind-the-scenes-insights-for-instagram-story-audience/"><u>[Updated] In 2024, Behind the Scenes Insights for Instagram Story Audience</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-voice-transcription-appraisal/"><u>[Updated] In 2024, Voice Transcription Appraisal</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-premium-peak-predictor-unveil-top-8-rankings-for-2024/"><u>[Updated] Premium Peak Predictor Unveil Top 8 Rankings for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/demystifying-creator-studio-a-practical-handbook-for-2024/"><u>Demystifying Creator Studio A Practical Handbook for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/explore-the-finest-ios-solutions-for-psp-emulation/"><u>Explore the Finest iOS Solutions for PSP Emulation</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-cutting-edge-content-creation-premier-android-editors/"><u>In 2024, Cutting-Edge Content Creation Premier Android Editors</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-oppo-a58-4g-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Oppo A58 4G FRP Without Computer</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-poco-x5-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Poco X5</u></a></li>
+</ul></div>
 

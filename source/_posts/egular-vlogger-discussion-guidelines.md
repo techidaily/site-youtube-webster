@@ -1,7 +1,7 @@
 ---
 title: "[New] Regular Vlogger Discussion Guidelines"
-date: 2024-08-08T07:38:47.738Z
-updated: 2024-08-09T07:38:47.738Z
+date: 2024-12-19T21:16:26.447Z
+updated: 2024-12-25T23:08:09.874Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/150a758dee3602d845be20dca449cfe34839f49d0
 
 # Daily Vlogging Ideas: What to Talk about While Vlogging?
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -36,8 +33,9 @@ How do you know [what you should talk about in your vlog](https://tools.techidai
 Before starting your daily vlogging, you have to figure out one important thing ahead of time.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Do you have a niche?
 
   You should have a niche. In a genre as broad as vlogging it is important to have some kind of hook that sets you apart from other vloggers. This can be an interest that you have, an industry you work in, or even a field of study you’re involved in at school. If you’re into technology, for example, you’ll always have a wealth of subjects to vlog about because all you’ll have to do is look at the day’s tech news and make a video reporting and commenting on it.
@@ -51,14 +49,15 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
 
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Snapshots of Your Day
 
@@ -75,6 +74,10 @@ _Flula is frequently puzzled by English expressions, like 'Party Pooper', and ne
 It does not matter what it is that is making you have this strong reaction (unless, again, it’s an actual person who might see your video and cause problems for you). If you’re mad about a real injustice in the world then that’s a great thing to talk about – you might even raise some awareness for the issue – but you can also rant about your favorite flavor of yogurt being cut and that’ll be engaging to viewers too.
 
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What did you learn today?
 
@@ -97,28 +100,22 @@ Sea monkeys can survive in space.
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
 <!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Customize Your Vlog Stories with Powerful Video Editor
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 **We’ve got a new eBook out!**
 
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -126,14 +123,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,4 +136,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-a-step-by-step-guide-to-removing-youtube-ads-across-platforms-for-2024/"><u>[New] A Step-by-Step Guide to Removing YouTube Ads Across Platforms for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-perfect-start-leading-free-video-openers-listed/"><u>[New] In 2024, Perfect Start Leading Free Video Openers Listed</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ncome-investigation-the-streamlined-3-part-method-to-assess-your-youtube-income-levels/"><u>[New] Income Investigation The Streamlined 3-Part Method to Assess Your YouTube Income Levels</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-downloading-with-confidence-your-vrecorder-guide/"><u>[Updated] Downloading with Confidence Your VRecorder Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-steering-clear-of-mundane-channel-names-in-a-crowded-space/"><u>[Updated] Steering Clear of Mundane Channel Names in a Crowded Space</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-obs-repair-camera-functioning-now/"><u>2024 Approved OBS Repair Camera Functioning Now</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-7-plus-to-roku-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone 7 Plus to Roku? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-unlocking-profit-the-step-by-step-guide-to-assess-your-youtube-earnings/"><u>In 2024, Unlocking Profit The Step-by-Step Guide to Assess Your YouTube Earnings</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/online-en-gratis-videomaterial-flv-in-mp3-kunt-je-zetten-movavi/"><u>Online en Gratis: Videomaterial FLV in MP3 Kunt Je Zetten - Movavi</u></a></li>
+<li><a href="https://windows11.techidaily.com/recover-missing-bluetooth-entries-on-windows-system/"><u>Recover Missing Bluetooth Entries on Windows System</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/simplified-steps-for-effective-text-communication-on-an-ipad/"><u>Simplified Steps for Effective Text Communication on an iPad</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ltimate-method-streaming-idevice-screens-on-youtube/"><u>The Ultimate Method Streaming iDevice Screens on YouTube</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/troubleshoot-and-solve-your-computers-d3dx940dll-absence-issues-easily/"><u>Troubleshoot & Solve Your Computer’s d3dx9_40.dll Absence Issues Easily</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/standing-satire-building-parodies-online-for-2024/"><u>Understanding Satire Building Parodies Online for 2024</u></a></li>
+</ul></div>
 

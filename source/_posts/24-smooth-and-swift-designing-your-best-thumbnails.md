@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Smooth & Swift  Designing Your Best Thumbnails\""
-date: 2024-08-15T14:23:54.246Z
-updated: 2024-08-16T14:23:54.246Z
+date: 2024-12-20T21:10:38.735Z
+updated: 2024-12-25T22:22:58.497Z
 tags:
   - ai video
   - ai youtube
@@ -43,6 +43,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step1](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
 
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
@@ -59,9 +63,17 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
 
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
@@ -74,6 +86,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
@@ -95,6 +111,10 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -103,14 +123,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,8 +136,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/rom-script-to-screenplay-expert-video-editing-insights-for-2024/"><u>[New] From Script to Screenplay Expert Video Editing Insights for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-capturing-movement-with-clarity-implementing-motion-blur-on-peoples-photos-with-picsart/"><u>[New] In 2024, Capturing Movement with Clarity Implementing Motion Blur on People's Photos with Picsart</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-dominating-the-index-youtube-seo-tools-that-work/"><u>[New] In 2024, Dominating the Index YouTube SEO Tools That Work</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-navigate-the-maze-of-mp4-cutters-for-mac-creators/"><u>[New] In 2024, Navigate the Maze of MP4 Cutters for Mac Creators</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-bringing-vision-to-life-the-art-of-post-color-enhancement/"><u>[Updated] Bringing Vision to Life The Art of Post-Color Enhancement</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-mastering-virality-in-instagram-clips/"><u>[Updated] In 2024, Mastering Virality in Instagram Clips</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-pro-thumbnails-made-simple-macos-style/"><u>[Updated] In 2024, Pro Thumbnails Made Simple MacOS Style</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-quick-overview-of-colour-difference-filming/"><u>[Updated] In 2024, Quick Overview of Colour Difference Filming</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-symphony-of-streams-efficiently-uploading-melodies/"><u>[Updated] Symphony of Streams Efficiently Uploading Melodies</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-perfect-iphone-photos-quick-editing-hacks/"><u>2024 Approved Perfect iPhone Photos Quick Editing Hacks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unheard-voices-on-youtube-livestream-success-beyond-1000-supporters/"><u>2024 Approved Unheard Voices on YouTube Livestream Success Beyond 1000 Supporters</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-unlock-your-creative-potential-best-free-premiere-pro-libraries/"><u>2024 Approved Unlock Your Creative Potential Best Free Premiere Pro Libraries</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ing-traffic-on-youtube-mastering-the-art-of-video-outros/"><u>Boosting Traffic on YouTube Mastering the Art of Video Outros</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/high-performance-7-cameras-for-cutting-edge-vlogging-tech/"><u>High-Performance 7 Cameras For Cutting-Edge Vlogging Tech</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-can-i-benefit-from-a-lenovo-scholarly-reduction/"><u>How Can I Benefit From a Lenovo Scholarly Reduction?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ey-into-the-future-with-youtubes-top-vr-cinematography/"><u>Journey Into the Future with YouTube’s Top VR Cinematography</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ts-to-superior-youtube-videos-mastering-post-upload-editing/"><u>Secrets to Superior YouTube Videos Mastering Post-Upload Editing</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->

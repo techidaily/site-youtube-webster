@@ -1,7 +1,7 @@
 ---
 title: "[New] Essential Techniques in Creating YouTube Thumbnails That Stand Out for 2024"
-date: 2024-12-16T04:08:36.397Z
-updated: 2024-12-17T03:06:15.142Z
+date: 2024-12-19T22:56:01.853Z
+updated: 2024-12-25T20:46:49.123Z
 tags:
   - ai video
   - ai youtube
@@ -44,12 +44,16 @@ Here are 5 easy tips for creating thumbnails that get views.
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Edit Your Videos Before Creating Video Thumbnails
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
 
@@ -60,11 +64,7 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -74,7 +74,7 @@ People feel automatically connected and drawn into images that make eye contact.
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Use Graphics/Emojis that are On Topic
@@ -83,15 +83,15 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 
 Make sure the images you choose are relevant to the topic of your video.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Make Your Text Huge
 
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
 
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
 
@@ -126,20 +126,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-achieving-flawless-fb-live-via-zoom-streaming-for-2024/"><u>[New] Achieving Flawless FB Live via Zoom Streaming for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/valuating-the-top-video-streaming-apps-for-phones-for-2024/"><u>[New] Evaluating the Top Video Streaming Apps for Phones for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-free-mindfulness-playlist-for-2024/"><u>[New] Free Mindfulness Playlist for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ow-to-see-your-subscribers-on-youtube-for-2024/"><u>[New] How to See Your Subscribers on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-essential-hash-strategies-for-optimizing-youtube-gameplay-videos/"><u>[New] In 2024, Essential Hash Strategies for Optimizing YouTube Gameplay Videos</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-the-ultimate-blueprint-for-successful-discord-live-streams/"><u>[Updated] 2024 Approved The Ultimate Blueprint for Successful Discord Live Streams</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-automatic-cycling-of-videos-on-iphone-ease/"><u>[Updated] In 2024, Automatic Cycling of Videos on iPhone Ease</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-vloggers-guide-top-5-audio-excellence-headphones/"><u>[Updated] In 2024, Vloggers’ Guide Top 5 Audio Excellence Headphones</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-how-to-make-a-cooking-video-in-steps-an-ultimate-guide/"><u>2024 Approved How to Make a Cooking Video in Steps - an Ultimate Guide</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/essential-visionos-development-tips-apples-expert-recommendations-unveiled-on-zdnet/"><u>Essential VisionOS Development Tips: Apple's Expert Recommendations Unveiled on ZDNet</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-use-life360-on-windows-pc-for-itel-p40plus-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Itel P40+? | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-youtube-instagram-connection-posting-video-content/"><u>In 2024, YouTube-Instagram Connection Posting Video Content</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/step-by-step-guide-transferring-pictured-data-into-excel-apps-on-smartphones/"><u>Step-by-Step Guide: Transferring Pictured Data Into Excel Apps on Smartphones</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>What Legendaries Are In Pokemon Platinum On Apple iPhone 12? | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/why-does-my-samsung-galaxy-a34-5g-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Samsung Galaxy A34 5G Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-key-to-successful-video-engagement-adding-interactive-elements-via-youtube-annotations/"><u>[New] The Key to Successful Video Engagement Adding Interactive Elements via YouTube Annotations</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-chortle-chamber-ideas-for-7-amusing-online-sessions/"><u>[Updated] Chortle Chamber Ideas for 7 Amusing Online Sessions</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-exploring-new-realms-of-engagement-in-facebook-ad-videos/"><u>[Updated] Exploring New Realms of Engagement in Facebook Ad Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-how-to-deal-with-youtube-trolls-and-negative-comments/"><u>[Updated] How To Deal with YouTube Trolls and Negative Comments</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-transforming-insta-video-to-mp3-audio/"><u>[Updated] Transforming Insta Video to Mp3 Audio</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unlocking-inshots-potential-with-your-own-songs/"><u>[Updated] Unlocking InShot's Potential with Your Own Songs</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-enhancing-reach-sharing-on-vimeo/"><u>2024 Approved Enhancing Reach Sharing on Vimeo</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-juggling-jargons-an-experts-guide-to-multiple-youtube-views/"><u>2024 Approved Juggling Jargons An Expert's Guide to Multiple YouTube Views</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-unlock-pip-in-edge-for-a-superior-browsing-experience/"><u>2024 Approved Unlock PIP in Edge for a Superior Browsing Experience</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/efficient-strategies-for-clearing-your-gpt-history/"><u>Efficient Strategies for Clearing Your GPT History</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-perfect-your-yt-artistry-the-ultimate-music-reaction-video-playbook/"><u>In 2024, Perfect Your YT Artistry The Ultimate Music Reaction Video Playbook</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-streamlined-search-for-personalized-song-collection-on-youtube/"><u>In 2024, Streamlined Search for Personalized Song Collection on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-thwart-bots-surge-in-authentic-youtube-interest/"><u>In 2024, Thwart Bots, Surge in Authentic YouTube Interest</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/solucion-definitiva-a-la-estabilizacion-de-video-en-diferentes-sistemas-operativos-y-dispositivos-moviles/"><u>Solución Definitiva a La Estabilización De Vídeo en Diferentes Sistemas Operativos Y Dispositivos Móviles</u></a></li>
 </ul></div>
 

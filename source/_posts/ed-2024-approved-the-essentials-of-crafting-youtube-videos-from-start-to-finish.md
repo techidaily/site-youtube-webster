@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Essentials of Crafting YouTube Videos From Start to Finish\""
-date: 2024-12-12T22:32:54.422Z
-updated: 2024-12-17T03:29:51.910Z
+date: 2024-12-19T20:04:42.542Z
+updated: 2024-12-25T16:46:56.274Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ You have a great idea for a video, but you’re just not sure how to express it 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Before You Write Your YouTube Script
 
 Here are some things to do before you start writing your script for YouTube:
@@ -56,24 +60,16 @@ Once you have gathered enough ideas for the YouTube video, the next step is to f
 
 Now that you're ready to sit down and write, here's what you do:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Just keep writing
@@ -102,15 +98,15 @@ While you are scripting and focusing on the information you want to deliver, it�
 
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## After Writing your YouTube Video Script
 
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
 
@@ -119,10 +115,14 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -145,20 +145,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-elevate-your-youtube-presence-with-audio/"><u>[New] 2024 Approved Elevate Your Youtube Presence with Audio</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-elite-gamers-showcase-premium-setups-unveiled/"><u>[New] 2024 Approved Elite Gamers' Showcase – Premium Setups Unveiled</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nraveling-the-economic-power-of-mr-beast/"><u>[New] Unraveling the Economic Power of Mr. Beast</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-optimizing-your-music-library-transitioning-from-spotify-to-youtube-music/"><u>[Updated] 2024 Approved Optimizing Your Music Library Transitioning From Spotify To YouTube Music</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-explore-the-pinnacle-of-editing-android-edition/"><u>[Updated] Explore the Pinnacle of Editing Android Edition</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-from-static-to-sprightly-bouncing-text-animations-for-2024/"><u>[Updated] From Static to Sprightly Bouncing Text Animations for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-top-8-choices-affordable-open-source-videoconferencing-apps/"><u>[Updated] In 2024, Top 8 Choices Affordable, Open Source Videoconferencing Apps</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-demystifying-the-instagram-selfie-process/"><u>2024 Approved Demystifying the Instagram Selfie Process</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-youtube-masterclass-creating-captivating-splitscreen-content/"><u>2024 Approved YouTube Masterclass Creating Captivating Splitscreen Content</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/banish-sims-monochrome-woes/"><u>Banish Sims' Monochrome Woes</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-farm-frontier-favorites-similar-titles-galore/"><u>In 2024, Farm Frontier Favorites Similar Titles Galore</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-maximizing-click-through-rates-with-youtube-images/"><u>In 2024, Maximizing Click-Through Rates with Youtube Images</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-turn-your-shorts-into-cash-effective-monetization-techniques/"><u>In 2024, Turn Your Shorts Into Cash Effective Monetization Techniques</u></a></li>
-<li><a href="https://discover-comparisons.techidaily.com/resolution-des-problemes-pourquoi-votre-fichier-excel-ne-saffiche-pas-sous-windows-10/"><u>Résolution Des Problèmes: Pourquoi Votre Fichier Excel Ne S'affiche Pas Sous Windows 10</u></a></li>
-<li><a href="https://common-error.techidaily.com/winning-the-battle-against-startup-glitches-on-your-windows-10-device/"><u>Winning the Battle Against Startup Glitches on Your Windows 10 Device</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-unseen-yet-seen-how-to-conceal-faces-and-objects-digitally/"><u>[New] 2024 Approved Unseen Yet Seen How to Conceal Faces and Objects Digitally</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-achieve-more-views-tailoring-and-scaling-youtube-images/"><u>[New] In 2024, Achieve More Views Tailoring and Scaling YouTube Images</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/op-picks-7-best-live-streaming-apps-to-upgrade-your-youtube-presence-iosandroid/"><u>[New] Top Picks 7 Best Live Streaming Apps to Upgrade Your YouTube Presence (iOS/Android)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-building-your-own-youtube-auto-subscribe-url/"><u>[Updated] 2024 Approved Building Your Own YouTube Auto-Subscribe URL</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-a-step-by-step-guide-to-using-youtubes-creative-commons-license/"><u>[Updated] In 2024, A Step-by-Step Guide to Using YouTube's Creative Commons License</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-the-secrets-behind-compelling-captions-for-captivating-tiktok-content/"><u>[Updated] In 2024, The Secrets Behind Compelling Captions for Captivating TikTok Content</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-advanced-techniques-in-xbox-gaming-recording-setup/"><u>2024 Approved Advanced Techniques in Xbox Gaming Recording Setup</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-instagrams-secrets-for-creating-must-watch-unboxings/"><u>2024 Approved Instagram's Secrets for Creating Must-Watch Unboxings</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/o-perfection-a-detailed-guide-on-youtube-short-video-making-for-2024/"><u>Cut to Perfection A Detailed Guide on YouTube Short Video Making for 2024</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/elevate-your-skills-with-in-depth-network-setup-techniques-for-hardware-lab-exercise-8-3/"><u>Elevate Your Skills with In-Depth Network Setup Techniques for Hardware Lab Exercise 8-3</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/guide-to-effective-nvidia-video-capture/"><u>Guide to Effective NVIDIA Video Capture</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/how-to-completely-remove-files-using-proven-wiping-algorithms/"><u>How to Completely Remove Files Using Proven Wiping Algorithms</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unveiling-the-truth-top-reasons-to-continue-using-your-iphone-14-instead-of-switching-to-iphone-16-pro-zdnet-perspectives/"><u>Unveiling the Truth: Top Reasons to Continue Using Your iPhone 14 Instead of Switching to iPhone 16 Pro | ZDNet Perspectives</u></a></li>
 </ul></div>
 

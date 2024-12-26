@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Searching Comments on YouTube"
-date: 2024-08-15T14:20:43.809Z
-updated: 2024-08-16T14:20:43.809Z
+date: 2024-12-24T21:05:31.500Z
+updated: 2024-12-25T16:38:37.856Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,10 @@ Are you trying to search for something on a document or a web page? You know how
 2. Managing and analyzing the vast number of comments can be difficult for as busy a platform as YouTube.
 
 So, if you want to search YouTube comments quickly, what can you do? We will show you in this blog.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Using the Built-in YouTube Studio Feature to Search Comments
 
@@ -61,6 +65,10 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 You can combine these additional filters to narrow your comments search for YouTube.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
 You can use the YouTube Comment Search browser extension supported by Google Chrome to help you search YouTube comments effortlessly. To use it, follow these steps below.
@@ -72,9 +80,6 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 5. Now type your keywords, press Enter, and YCS will show all comments having the keyword you typed.
 
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
 
@@ -102,9 +107,6 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
@@ -112,8 +114,9 @@ Did you post a comment on your favorite celebrity’s video? Do you think it may
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Use the Comment History feature to Search Comments?
 
 You can see all the comments you have posted in the Comment History in a few quick steps.
@@ -123,15 +126,13 @@ You can see all the comments you have posted in the Comment History in a few qui
 3. Click on the History option and then you will find the option called Comments on the right side of your YouTube History page. Click on it to see all your YouTube comments.
 
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
 If you are a creator on YouTube, the comments section becomes very important. Subscribers comment words of praise, encouragement, and feedback which help you grow. You may want to keep track of your most loyal followers. The best way to know that is by knowing who comments most on your videos.
@@ -154,8 +155,9 @@ YouTube is a global platform to share helpful and entertaining videos. The comme
 Find feedback or questions. Report offensive comments. If you are a regular YouTube user, use our tips and tricks to search comments quickly and grow your channel.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -164,14 +166,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -180,4 +179,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-5-exceptional-4k-gaming-screens/"><u>[New] 5 Exceptional 4K Gaming Screens</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-in-depth-look-at-video-apps-for-iphone-and-android-users/"><u>[New] An In-Depth Look at Video Apps for iPhone & Android Users</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-ignite-customer-interest-and-increase-revenue-top-15-tools-for-fb-data-analysis/"><u>[New] Ignite Customer Interest & Increase Revenue Top 15 Tools for FB Data Analysis</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-become-an-iconic-crafter-kapwings-meme-toolkit/"><u>[New] In 2024, Become an Iconic Crafter Kapwing's Meme Toolkit</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-navigating-vimeo-success-strategies-for-staff-picked-videos/"><u>[New] In 2024, Navigating Vimeo Success Strategies for Staff-Picked Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-real-time-engagement-tracker/"><u>[New] In 2024, Real-Time Engagement Tracker</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unleashing-potential-in-your-channel-through-studio/"><u>[New] Unleashing Potential in Your Channel Through Studio</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-a-close-look-at-t-series-revenue-from-online-channels/"><u>[Updated] In 2024, A Close Look at T-Series Revenue From Online Channels</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-perfecting-podcast-production-an-ultimate-tutorial-for-high-quality-zoom-recordings/"><u>[Updated] In 2024, Perfecting Podcast Production An Ultimate Tutorial for High-Quality Zoom Recordings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-savory-streams-the-best-food-channels-to-watch-for-2024/"><u>[Updated] Savory Streams The Best Food Channels to Watch for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-techniques-for-emptying-youtubes-keep-queue-for-2024/"><u>[Updated] Techniques for Emptying YouTube's Keep Queue for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-how-add-emojisstickers-to-videos-on-pcmacmobileonline/"><u>2024 Approved How Add Emojis/Stickers to Videos on PC/Mac/Mobile/Online</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-amplifying-video-clarity-on-youtube/"><u>In 2024, Amplifying Video Clarity on YouTube</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/transformar-imagens-png-em-arquivos-tiff-gratuitamente-no-movavi-instrucoes-passo-a-passo/"><u>Transformar Imagens PNG Em Arquivos TIFF Gratuitamente No Movavi - Instruções Passo a Passo</u></a></li>
+</ul></div>
 

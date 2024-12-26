@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, From Selfies to Subscribers  Jake Paul’s Online Odyssey\""
-date: 2024-12-15T18:13:16.403Z
-updated: 2024-12-16T19:33:13.260Z
+date: 2024-12-20T18:08:46.070Z
+updated: 2024-12-25T23:47:42.747Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,10 @@ There is a lot to learn about YouTube success from Jake Paul. With more than 300
 
 Twenty-three-year-old Jake Joseph Paul was born in Cleveland, Ohio, the U.S. on January 17, 1997, to realtor father Greg Paul and nurse mother, Pam Stepnick.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Logan Paul and Jake Paul
 
 He and his older brother, Logan, grew up in Westlake, Ohio, and played a lot of football together growing up. Jake's childhood dream was to play for the NFL. Thinking they might enjoy filming themselves playing football, their father got them a camera. With this camera, Jake and his brother began filming themselves doing skits, pranks, and scripted videos.
@@ -49,6 +53,10 @@ But before Jake fully invested his energy into training for the U.S. Navy SEALS,
 
 ![jake-paul-and-his-brother-logan-paul](https://images.wondershare.com/filmora/article-images/jake-paul-and-his-brother-logan-paul.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image resource: [BBC NEWS](https://www.bbc.com/news/av/world-us-canada-42548207/logan-and-jake-paul-the-brothers-dominating-social-media)
 
 Together with his older brother Logan, Jake also amassed a large following and eventually began receiving paid sponsorships, at which point Jake realized that he could make a career out of video content creation.
@@ -56,7 +64,7 @@ Together with his older brother Logan, Jake also amassed a large following and e
 Curious, young, and adventurous, at the age of seventeen, after discussing with his mother, Jake dropped out of high school, put aside his pursuit to join the Navy SEALs, and moved to Los Angeles without much of a plan.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Jake Paul and Disney
@@ -65,10 +73,14 @@ Not wasting a single day in L.A., Jake went straight to taking acting and improv
 
 ![Jake Paul and Disney](<https://images.wondershare.com/filmora/article-images/Jake> Paul disney-tubefilter.com.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image resource:tubefilter.com
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Team 10
@@ -101,25 +113,13 @@ Jake has a very good understanding of who his audience is. He knows that his aud
 
 Jake made a serious commitment to delivering audience-centered content. Jake moved into a house full of other teenagers also committed to content creation, and they all filmed themselves doing pranks and stunts every day.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Get [the ultimate guide to growing your YouTube subscribers](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Do you want to be a YouTuber? If you desire to be a YouTuber yet not knowing how to edit a video, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -142,22 +142,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-ultimate-guide-to-the-top-8-discreet-content-collectors/"><u>[New] 2024 Approved Ultimate Guide to the Top 8 Discreet Content Collectors</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ispelling-darkness-enhancing-youtube-views-for-2024/"><u>[New] Dispelling Darkness, Enhancing Youtube Views for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/he-editors-guide-to-enhancing-longer-youtube-video-content-with-chapters-for-2024/"><u>[New] The Editor's Guide to Enhancing Longer YouTube Video Content with Chapters for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/hich-video-platform-suits-you-better-tiktok-or-youtube-shorts/"><u>[New] Which Video Platform Suits You Better TikTok or YouTube Shorts?</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-assessing-cloud-storage-fees-comparisons-and-optimal-prices/"><u>[Updated] Assessing Cloud Storage Fees Comparisons & Optimal Prices</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-from-still-shots-to-moving-images-ipads-timelapse-magic/"><u>[Updated] From Still Shots to Moving Images IPad's Timelapse Magic</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-shortcut-to-go-to-tags-maximizing-your-youtube-impact/"><u>[Updated] Shortcut to Go-To Tags Maximizing Your YouTube Impact</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-iconic-gaming-themes-the-ultimate-template-collection/"><u>2024 Approved Iconic Gaming Themes The Ultimate Template Collection</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/bright-ideas-for-android-video-mastery/"><u>Bright Ideas for Android Video Mastery</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-icloud-from-iphone-12-mini-smoothly-by-drfone-ios/"><u>How To Remove iCloud From iPhone 12 mini Smoothly</u></a></li>
-<li><a href="https://program-issues.techidaily.com/how-to-restore-functionality-when-your-msi-bareknuckle-server-stops-responding/"><u>How to Restore Functionality When Your MSI Bareknuckle Server Stops Responding</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-samsung-galaxy-z-flip-5-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Samsung Galaxy Z Flip 5 to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-the-best-storytelling-techniques-to-grow-your-youtube-channel/"><u>In 2024, The Best Storytelling Techniques to Grow Your YouTube Channel</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/r-your-youtube-experience-with-premium-subscription/"><u>Master Your YouTube Experience with Premium Subscription</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-for-inspirational-daily-living-visual-stories/"><u>Steps for Inspirational Daily Living Visual Stories</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/mlit-splendor-hues-and-highlights-technique/"><u>Streamlit Splendor Hues and Highlights Technique</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-vision-ventures-a-complete-cms-selection-journey/"><u>Unified Vision Ventures A Complete CMS Selection Journey</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/xplore-sites-where-you-can-procure-youtube-affiliate-partnerships-for-2024/"><u>[New] Explore Sites Where You Can Procure Youtube Affiliate Partnerships for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-maximizing-fun-in-the-stardew-ginger-region/"><u>[New] Maximizing Fun in the Stardew Ginger Region</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-lg-27ud88-w-4k-usb-type-c-monitor-complete-review/"><u>[Updated] 2024 Approved LG 27UD88-W 4K USB Type-C Monitor Complete Review</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-audio-integration-your-youtube-playlist/"><u>[Updated] Audio Integration Your YouTube Playlist</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-channel-identity-made-simple-discover-the-10-best-banner-maker-apps-for-2024/"><u>[Updated] Channel Identity Made Simple Discover the 10 Best Banner Maker Apps for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-growth-by-numbers-tapping-into-youtube-analytics-power/"><u>[Updated] Growth by Numbers Tapping Into YouTube Analytics Power</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-elevate-your-video-game-with-fb-upload-on-pc-and-android/"><u>[Updated] In 2024, Elevate Your Video Game with FB Upload on PC and Android</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-seo-innovation-pivotal-tech-to-elevate-your-vids/"><u>[Updated] In 2024, SEO Innovation Pivotal Tech to Elevate Your Vids</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-loop-like-a-pro-detailed-methods-for-youtube-enthusiasts/"><u>[Updated] Loop Like a Pro Detailed Methods for YouTube Enthusiasts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-unlock-the-power-of-referrals-how-to-build-effective-youtube-links-for-2024/"><u>[Updated] Unlock the Power of Referrals How to Build Effective YouTube Links for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-dive-into-making-youtube-shorts-comprehensive-video-guide/"><u>2024 Approved Dive Into Making YouTube Shorts Comprehensive Video Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-unveiling-the-future-of-smartphone-video-with-s8s-4k/"><u>2024 Approved Unveiling the Future of Smartphone Video with S8’s 4K</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/fixing-windows-audio-pops-and-unexpected-sounds-simple-tips-and-tricks/"><u>Fixing Windows Audio Pops & Unexpected Sounds - Simple Tips & Tricks</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/getting-cyberpunk-2077-audio-working-troubleshooting-tips-for-windows-10-users/"><u>Getting Cyberpunk 2077 Audio Working: Troubleshooting Tips for Windows 10 Users</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-stop-frequent-crashing-issues-while-playing-lost-ark-on-your-computer/"><u>How to Stop Frequent Crashing Issues While Playing Lost Ark on Your Computer</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-clear-up-cloudy-captures-uncover-the-best-10-web-enhancers-ranked/"><u>In 2024, Clear Up Cloudy Captures Uncover the Best 10 Web Enhancers Ranked</u></a></li>
+<li><a href="https://article-tips.techidaily.com/mastering-the-mix-of-sound-and-slides-in-powerpoint-presentations/"><u>Mastering the Mix of Sound and Slides in PowerPoint Presentations</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-8-best-tripods-for-4k-camera/"><u>Top 8 Best Tripods for 4K Camera</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ling-tseries-income-stream-from-youtube-content-consumption-for-2024/"><u>Unveiling TSeries’ Income Stream From Youtube Content Consumption for 2024</u></a></li>
 </ul></div>
 

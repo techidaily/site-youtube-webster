@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Enhance Your Channel's Image  Adding Watermarks & Logos to Video Posts\""
-date: 2024-08-15T14:27:40.177Z
-updated: 2024-08-16T14:27:40.177Z
+date: 2024-12-18T21:48:42.727Z
+updated: 2024-12-25T23:44:58.845Z
 tags:
   - ai video
   - ai youtube
@@ -49,25 +49,28 @@ To add a watermark to your previously uploaded videos you will need to have crea
 * Sign in to your YouTube account. Click on the thumbnail image of your account at the top right corner. This will give you a drop down menu. Then Click on the small gear (indicating settings)
 
 ![youtube watermark](https://images.wondershare.com/filmora/article-images/youtube-watermark-setting.JPG)
+
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * This will lead you to setting center. Click on "view additional features"
 
 ![youtube watermark view additional features](https://images.wondershare.com/filmora/article-images/view-additional-features.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * To the left of the window, Click the third option of "branding"
 * Click on "add watermark". Then you can choose an image from your computer. After your image is uploaded, click save.
 
 ![add watermark to youtube](https://images.wondershare.com/filmora/article-images/add-watermark.JPG)
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Notes
 
 **YouTube watermark size**: Your watermark should be transparent, square, and larger than 50x50 pixels, which is the size it will be shrunk down to when it appears in the corner of your videos.
@@ -95,9 +98,6 @@ The following steps have to be taken to add a watermark:
 * Save the video
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 2\. [Windows movie maker](https://windows-movie-maker.en.softonic.com/)
 
@@ -133,8 +133,9 @@ The image should be in .PNG or .GIF format.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: How to Create a Transparent logo for Youtube Channel
 
 Do you want to make a transparent image as logo for your YouTube? If you want to brand your YouTube channel, we believe it is a must to add transparent logo for YouTube branding. Actually, you can do this in Filmora just with a green screen image. Check the steps below to know the secret.
@@ -146,25 +147,23 @@ Open Filmora. Choose **Create New Project**. Click import media files here in Me
 ![import video and image](https://images.wondershare.com/filmora/article-images/import-video-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Step 2: Import video and image to Filmora
 
 Right click on the image clip in the timeline. Choose **Green Screen**. You will see the image is transparent in the preview window. Now, you need to adjust some details. You can adjust edge thickness and edge feather to better edge. If the green screen background is not totally removed, drag tolerance to adjust it.
 
 ![youtube logo transparent image](https://images.wondershare.com/filmora/article-images/change-green-screen-effect.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ### Step 3: Scale the logo
 
 You can clip the image clip first and go to preview window to scale it down or up by dragging the green dot. You can put the YouTube logo at corner.
 
 ![transparent youtube logo for branding](https://images.wondershare.com/filmora/article-images/transparent-logo-for-youtube.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -175,14 +174,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -191,4 +187,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/nhance-video-visibility-using-creator-studio-wisdom/"><u>[New] Enhance Video Visibility Using Creator Studio Wisdom</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-lightning-fast-method-for-double-exposure-filming/"><u>[New] In 2024, Lightning-Fast Method for Double Exposure Filming</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-the-ultimate-list-of-influential-biz-channels-online/"><u>[New] In 2024, The Ultimate List of Influential Biz Channels Online</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-unveiling-our-exclusive-package-of-free-youtube-adornments/"><u>[New] In 2024, Unveiling Our Exclusive Package of Free YouTube Adornments</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ideo-monetization-showdown-dailymotion-vs-youtubes-financial-gains/"><u>[New] Video Monetization Showdown Dailymotion vs Youtube's Financial Gains</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-purchasing-options-choosing-premium-vs-standard-fixtures-and-whether-they-are-integrated-or-retrofit-options-can-alter-costs-for-2024/"><u>[Updated] __Purchasing Options__ Choosing Premium Vs. Standard Fixtures and Whether They Are Integrated or Retrofit Options Can Alter Costs for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-revolutionize-your-brand-presence-on-igtv-with-these-top-10-strategies/"><u>[Updated] 2024 Approved Revolutionize Your Brand Presence on IGTV with These Top 10 Strategies</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-critical-review-of-best-fb-video-plays/"><u>[Updated] In 2024, Critical Review of Best FB Video Plays</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-custom-coverage-made-simple-fast-track-your-youtube-shorts-design/"><u>[Updated] In 2024, Custom Coverage Made Simple Fast-Track Your YouTube Shorts Design</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-discover-the-art-of-youtube-playlist-shuffling/"><u>[Updated] In 2024, Discover the Art of YouTube Playlist Shuffling</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-youngest-millionaire-on-youtube-ryans-unprecedented-wealth-accumulation/"><u>2024 Approved Youngest Millionaire on YouTube Ryan's Unprecedented Wealth Accumulation</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/bypassing-ssleay32dll-not-found-easy-fixes-for-windows-users/"><u>Bypassing Ssleay32.dll Not Found: Easy Fixes for Windows Users</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/cutting-down-zooms-high-cpu-usage-proven-strategies-that-work/"><u>Cutting Down Zoom’s High CPU Usage - Proven Strategies That Work</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-step-by-step-guide-to-creating-breathtaking-tile-art/"><u>In 2024, Step-by-Step Guide to Creating Breathtaking Tile Art</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/round-the-clock-insight-detailed-look-at-google-podcast-for-2024/"><u>Round-the-Clock Insight Detailed Look at Google Podcast for 2024</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/the-ultimate-guide-to-preserving-dvd-quality-storage-best-practices/"><u>The Ultimate Guide to Preserving DVD Quality: Storage Best Practices</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/unveiling-the-secrets-of-gadgets-with-toms-guides/"><u>Unveiling the Secrets of Gadgets with Tom's Guides</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/unverzichtbare-tipps-zur-absicherung-ihrer-iphoto-mediathek-profi-leitfaden-fur-optimale-datensicherheit/"><u>Unverzichtbare Tipps Zur Absicherung Ihrer iPhoto-Mediathek: Profi-Leitfaden Für Optimale Datensicherheit</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/bes-opposite-end-video-retrospective-techniques/"><u>YouTube's Opposite End Video Retrospective Techniques</u></a></li>
+</ul></div>
 

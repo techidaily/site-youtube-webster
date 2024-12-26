@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Cultivating a Positive Mindset Against Cyberbullying for 2024"
-date: 2024-12-14T01:58:55.010Z
-updated: 2024-12-17T00:47:16.482Z
+date: 2024-12-19T19:54:34.588Z
+updated: 2024-12-25T16:40:50.662Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/e874e7774ed1bae47e14908261fcbf31de304eed1
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/e874e7774ed1bae47e14908261fcbf31de304eed1
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,22 +83,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-the-filmmakers-roadmap-creating-youtube-trailers-using-filmora/"><u>[New] 2024 Approved The Filmmaker's Roadmap Creating YouTube Trailers Using Filmora</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-unleash-creativity-with-youtube-clips-make-animation-gifs-easily/"><u>[New] 2024 Approved Unleash Creativity with YouTube Clips - Make Animation GIFs Easily</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-web-integration-adding-youtube-playlists-easily/"><u>[New] 2024 Approved Web Integration Adding YouTube Playlists Easily</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/on-tripod-techniques-for-still-cameras/"><u>[New] Non-Tripod Techniques for Still Cameras</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-socialvideo-saver-messenger-edition-for-2024/"><u>[New] SocialVideo Saver – Messenger Edition for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-strategies-for-improving-your-interview-prowess-for-2024/"><u>[New] Strategies for Improving Your Interview Prowess for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-androidios-resolve-youtube-freezing-for-2024/"><u>[Updated] Android/iOS Resolve YouTube Freezing for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-unveil-the-8-key-services-for-video-marketing-growth-for-2024/"><u>[Updated] Unveil the 8 Key Services for Video Marketing Growth for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-viral-visionaries-hashes-that-transform-short-videos-into-hits/"><u>[Updated] Viral Visionaries Hashes that Transform Short Videos Into Hits</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-implementing-luts-in-photoshop-cs6cc-an-in-depth-analysis/"><u>2024 Approved Implementing LUTs in Photoshop CS6/CC An In-Depth Analysis</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-maximizing-moolah-on-youtube-a-creators-handbook/"><u>2024 Approved Maximizing Moolah on YouTube A Creator's Handbook</u></a></li>
-<li><a href="https://fox-that.techidaily.com/how-apple-iphone-stores-images-can-you-retrieve-deleted-pics-unveiling-8-solutions/"><u>How Apple iPhone Stores Images: Can You Retrieve Deleted Pics? Unveiling 8 Solutions</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-lost-files-from-oppo-a78-by-fonelab-android-recover-data/"><u>How to retrieve lost files from Oppo A78?</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-sound-and-filter-integration-in-windows-10-photos-app/"><u>In 2024, Mastering Sound & Filter Integration in Windows 10 Photos App</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ltimate-guide-to-adding-youtube-media-to-google-slides-for-2024/"><u>The Ultimate Guide to Adding YouTube Media to Google Slides for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/top-15-apps-to-hack-wifi-password-on-motorola-moto-g04-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Motorola Moto G04</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/updated-effortless-mp3-audio-to-text-translation-explore-3-simplified-online-techniques/"><u>Updated Effortless MP3 Audio-to-Text Translation Explore 3 Simplified Online Techniques</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ssential-business-youtube-sites-you-must-follow/"><u>[New] Essential Business YouTube Sites You Must Follow</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-implementing-soft-decline-in-logic-pro-audio/"><u>[New] In 2024, Implementing Soft Decline in Logic Pro Audio</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-make-an-impression-with-youtube-clips-step-by-step-into-the-world-of-gif-making/"><u>[New] In 2024, Make an Impression With YouTube Clips Step-by-Step Into the World of Gif Making</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/op-10-simple-strategies-for-establishing-successful-biz-youtubes/"><u>[New] Top 10 Simple Strategies for Establishing Successful Biz YouTubes</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-channel-success-metrics-subscriber-and-play-buttons/"><u>[Updated] 2024 Approved Channel Success Metrics Subscriber & Play Buttons</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-professionals-playbook-merging-srt-captions-into-mp4/"><u>[Updated] In 2024, Professional's Playbook Merging SRT Captions Into MP4</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-premium-8k-vision-selecting-the-superior-cameras/"><u>2024 Approved Premium 8K Vision Selecting the Superior Cameras</u></a></li>
+<li><a href="https://program-issues.techidaily.com/easy-ways-to-fix-an-unresponsive-epic-games-launcher-on-any-device/"><u>Easy Ways to Fix an Unresponsive Epic Games Launcher on Any Device</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-green-walls-in-grey-buildings-a-step-towards-eco-cities/"><u>In 2024, Green Walls in Grey Buildings A Step Towards Eco-Cities</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/linkedin-pro-membership-what-you-get-back/"><u>LinkedIn Pro Membership: What You Get Back</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-quest-for-codec-perfection-is-av1-surpassing-vp9-in-2024/"><u>The Quest for Codec Perfection Is AV1 Surpassing VP9, In 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/top-ranking-mini-tablets-comprehensive-reviews-and-comparisons-techadvisor/"><u>Top-Ranking Mini Tablets : Comprehensive Reviews & Comparisons | TechAdvisor</u></a></li>
+<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-honor-100-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Honor 100 Hard Reset | Dr.fone</u></a></li>
 </ul></div>
 

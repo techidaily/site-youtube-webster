@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Green Walls in Grey Buildings  A Step Towards Eco-Cities\""
-date: 2024-12-12T22:09:56.034Z
-updated: 2024-12-16T16:29:43.339Z
+date: 2024-12-22T16:05:16.208Z
+updated: 2024-12-25T21:34:45.601Z
 tags:
   - ai video
   - ai youtube
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/04447bf719b4926e422f9096bc950555ee7a86c16
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Why YouTube channel description is important
@@ -68,10 +68,6 @@ thumbnail: https://thmb.techidaily.com/04447bf719b4926e422f9096bc950555ee7a86c16
 
  If you YouTube channel description are boring, chances are, visitors will no longer bother to view the contents. Create a powerful and enticing description that will trigger viewers to make a favorable action.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to edit your YouTube Channel Description \[Step by Step Tutorial\]
 
  This is actually a process that is pretty much straightforward, provided that you know how it can be done. Here are the simple steps that you should follow:
@@ -82,12 +78,16 @@ thumbnail: https://thmb.techidaily.com/04447bf719b4926e422f9096bc950555ee7a86c16
 ![Find My Channel ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Activate the "Customize the layout of your channel" option by entering the Setting button on the right corner of your Subscribe icon.
 
 ![Customize the layout of your channel](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Click on "About."
 
@@ -96,10 +96,6 @@ thumbnail: https://thmb.techidaily.com/04447bf719b4926e422f9096bc950555ee7a86c16
 * Then you can edit the channel description here
 
 ![Edit YouTube Channel Description ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Note:** In the newer YouTube version, click the option "CUSTOMIZE CHANNEL" and then you can change your channel description by clicking the About Tab.
 
@@ -115,7 +111,7 @@ thumbnail: https://thmb.techidaily.com/04447bf719b4926e422f9096bc950555ee7a86c16
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Bonus: Tips for YouTube Video Description
@@ -123,6 +119,10 @@ thumbnail: https://thmb.techidaily.com/04447bf719b4926e422f9096bc950555ee7a86c16
  Here we have also found out some useful tips for YouTube video description:
 
 ![YouTube description ](https://images.wondershare.com/filmora/article-images/youtube-description.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 1. Take full advantage of the First Line
 
@@ -157,19 +157,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-comprehensive-list-of-high-quality-game-entrance-makers-online/"><u>[New] 2024 Approved Comprehensive List of High-Quality Game Entrance Makers Online</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-the-foremost-audiovideo-makers-online-guidebook/"><u>[New] 2024 Approved The Foremost Audio/Video Makers Online Guidebook</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ilmmakers-choice-for-steady-videos-for-2024/"><u>[New] Filmmaker's Choice for Steady Videos for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/arnessing-powerful-tools-for-effective-youtubers-seo/"><u>[New] Harnessing Powerful Tools for Effective YouTubers' SEO</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/eamless-content-transfer-from-youtubers-to-fb-friends/"><u>[New] Seamless Content Transfer From YouTubers to FB Friends</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-srt-mastery-curating-the-best-mac-and-windows-turbo-boosts/"><u>[New] SRT Mastery Curating the Best Mac & Windows Turbo Boosts</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-detailed-instructions-for-embedding-and-displaying-youtube-playlists-online/"><u>[Updated] Detailed Instructions for Embedding and Displaying YouTube Playlists Online</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-where-is-youtube-video-manager-all-you-need-to-know-for-2024/"><u>[Updated] Where Is Youtube Video Manager? [All You Need to Know] for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-youtubes-go-to-lighting-kit-17-picks-reviewed/"><u>2024 Approved YouTube's Go-To Lighting Kit - #17 Picks Reviewed</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211379929-9780061853272-eternal-echoes/"><u>Eternal Echoes | Free Book</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/inside-the-battle-royale-analyzing-differences-between-google-palm-2-and-openais-advanced-gpt-4/"><u>Inside the Battle Royale: Analyzing Differences Between Google PALM 2 and OpenAI’s Advanced GPT-4</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-virtual-markets-with-confidence-and-caution/"><u>Navigating Virtual Markets with Confidence and Caution</u></a></li>
-<li><a href="https://win-answers.techidaily.com/step-by-step-guide-creating-effective-bar-charts-with-microsoft-excel/"><u>Step-by-Step Guide: Creating Effective Bar Charts with Microsoft Excel</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-verdict-on-amazon-luna-a-pleasant-surprise-in-streamed-gameplay-smoothness/"><u>The Verdict on Amazon Luna: A Pleasant Surprise in Streamed Gameplay Smoothness</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-crossfade-mastery-in-premiere-editing-tools-for-2024/"><u>[New] Crossfade Mastery in Premiere Editing Tools for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-expressive-sketches-for-fortnite-icons/"><u>[Updated] 2024 Approved Expressive Sketches for Fortnite Icons</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-captivating-storytelling-with-these-6-snapchat-video-editors-for-2024/"><u>[Updated] Captivating Storytelling with These 6 Snapchat Video Editors for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-maximize-income-a-simplified-3-step-process-for-youtube-revenue-monitoring-for-2024/"><u>[Updated] How To Maximize Income A Simplified 3-Step Process for YouTube Revenue Monitoring for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-an-easy-to-follow-guide-to-applying-cc-license-types/"><u>[Updated] In 2024, An Easy-to-Follow Guide to Applying CC License Types</u></a></li>
+<li><a href="https://howto.techidaily.com/bricked-your-samsung-galaxy-a14-4g-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Samsung Galaxy A14 4G? Heres A Full Solution | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/bulk-conversion-tactics-turning-opus-files-into-m4a-format/"><u>Bulk Conversion Tactics: Turning Opus Files Into M4A Format</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-comprehensive-techniques-for-gauging-yt-popularity-and-monetization/"><u>In 2024, Comprehensive Techniques for Gauging YT Popularity & Monetization</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-track-apple-iphone-6-location-without-installing-software-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Track Apple iPhone 6 Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-integrating-youtube-into-tv-sets-with-loop-features/"><u>In 2024, Integrating YouTube Into TV Sets with Loop Features</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ly-rendering-fortnite-cover-images-for-2024/"><u>Rapidly Rendering Fortnite Cover Images for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ely-growing-your-channels-popularity-a-one-million-goal-guide/"><u>Securely Growing Your Channel's Popularity A One-Million Goal Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ame-changer-creating-eye-catching-logo-templates/"><u>The Game-Changer Creating Eye-Catching Logo Templates</u></a></li>
 </ul></div>
 

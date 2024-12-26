@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Quick Overview of Colour Difference Filming"
-date: 2024-12-14T01:11:05.815Z
-updated: 2024-12-16T20:14:23.665Z
+date: 2024-12-21T22:03:47.470Z
+updated: 2024-12-25T22:53:25.205Z
 tags:
   - ai video
   - ai youtube
@@ -36,7 +36,7 @@ In this simple guide, we'll delve into the fundamentals of the **chroma key effe
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **How Does Chroma Key Work?**
@@ -44,7 +44,7 @@ In this simple guide, we'll delve into the fundamentals of the **chroma key effe
 ![green screen shooting](https://images.wondershare.com/filmora/article-images/2024/a-quick-guide-to-chroma-key-background-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Chroma Keying is done by singling out a specific color (usually green or blue) from the foreground, removing it, and replacing it with a different background (for example, a sunset). This process typically follows a series of steps:
@@ -64,10 +64,6 @@ This involves filming the subject against the **live chroma key background**. Du
 * Post-Processing:
 
 In post-production processing, the editor takes the keyed-out color and replaces it with the new background of their choice. This step creates the illusion that the subject is in a different setting or environment. The transparent areas become filled with the chosen background which, if done right, results in a cohesive and visually appealing composition.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Why Green?
 
@@ -112,10 +108,6 @@ Positioning/Camera
 Proper subject and camera placement are necessary to ensure an even color-keying process during post-production. To prevent shadow interference, the green screen should be smooth, tense, and without wrinkles or shadows.
 
 High-quality cameras are essential every time, especially for chroma keying. Images with better definition are easier to key, so camera quality significantly affects the outcome. Even if your camera isn’t the best, merely shooting well can ensure a clean color-keying process during editing, resulting in professional-looking visuals.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Recording Tips for Chroma Key
 
@@ -163,6 +155,14 @@ In this simple guide, we'll delve into the fundamentals of the **chroma key effe
 
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **How Does Chroma Key Work?**
 
 ![green screen shooting](https://images.wondershare.com/filmora/article-images/2024/a-quick-guide-to-chroma-key-background-2.jpg)
@@ -184,6 +184,10 @@ This involves filming the subject against the **live chroma key background**. Du
 * Post-Processing:
 
 In post-production processing, the editor takes the keyed-out color and replaces it with the new background of their choice. This step creates the illusion that the subject is in a different setting or environment. The transparent areas become filled with the chosen background which, if done right, results in a cohesive and visually appealing composition.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Why Green?
 
@@ -228,10 +232,6 @@ Positioning/Camera
 Proper subject and camera placement are necessary to ensure an even color-keying process during post-production. To prevent shadow interference, the green screen should be smooth, tense, and without wrinkles or shadows.
 
 High-quality cameras are essential every time, especially for chroma keying. Images with better definition are easier to key, so camera quality significantly affects the outcome. Even if your camera isn’t the best, merely shooting well can ensure a clean color-keying process during editing, resulting in professional-looking visuals.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Recording Tips for Chroma Key
 
@@ -290,19 +290,20 @@ Green screen photography produces excellent results, and its ease of use makes i
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-ai-powered-virtual-patient-interactions/"><u>[New] 2024 Approved AI-Powered Virtual Patient Interactions</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-adding-the-latest-social-media-snapchat-to-mac-for-2024/"><u>[New] Adding the Latest Social Media Snapchat to Mac for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-top-7-shooter-games-you-must-play-today/"><u>[New] Top 7 Shooter Games You Must Play Today</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-digital-dividends-the-creators-guide-to-monetization/"><u>[Updated] Digital Dividends The Creator's Guide to Monetization</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-kajis-wealth-kid-star-earnings-surpass-major-celebrities/"><u>[Updated] In 2024, Kaji’s Wealth Kid Star Earnings Surpass Major Celebrities</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-proven-strategies-for-successful-youtube-shorts/"><u>2024 Approved Proven Strategies for Successful YouTube Shorts</u></a></li>
-<li><a href="https://techtrends.techidaily.com/head-to-head-battle-google-pixel-smartwatch-vs-apple-watch-series-8-expert-review-and-buyers-dilemma/"><u>Head-to-Head Battle: Google Pixel Smartwatch Vs. Apple Watch Series 8 - Expert Review & Buyer's Dilemma</u></a></li>
-<li><a href="https://win-able.techidaily.com/how-to-stop-the-repeated-malfunctioning-and-crashing-of-wotb-a-solution-guide/"><u>How to Stop the Repeated Malfunctioning and Crashing of WotB: A Solution Guide</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-expert-advice-on-leveraging-youtubes-video-editor/"><u>In 2024, Expert Advice on Leveraging YouTube's Video Editor</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-nokia-g22-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Nokia G22 | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-what-you-want-to-know-about-two-factor-authentication-for-icloud-from-your-apple-iphone-13-mini-by-drfone-ios/"><u>In 2024, What You Want To Know About Two-Factor Authentication for iCloud From your Apple iPhone 13 mini</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/egic-branding-techniques-for-higher-youtube-followings/"><u>Strategic Branding Techniques for Higher YouTube Followings</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/top-8-youtube-images-that-captivate-and-convert-viewers-for-2024/"><u>Top 8 YouTube Images That Captivate and Convert Viewers for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/your-tactical-talks-into-a-thriving-youtube-trade/"><u>Turn Your Tactical Talks Into a Thriving YouTube Trade</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-top-7-video-recording-devices-for-professional-streaming-artists/"><u>[New] 2024 Approved Top 7 Video Recording Devices for Professional Streaming Artists</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ll-about-youtube-tv-your-comprehensive-resource-for-2024/"><u>[New] All About YouTube TV Your Comprehensive Resource for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-ascend-youtube-rankings-through-optimal-dating/"><u>[New] In 2024, Ascend YouTube Rankings Through Optimal Dating</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nitiate-your-journey-into-asmr-filming-essential-insights-revealed/"><u>[New] Initiate Your Journey Into ASMR Filming – Essential Insights Revealed</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-escalate-your-content-reach-leveraging-synergistic-youtube-outros-for-2024/"><u>[Updated] Escalate Your Content Reach Leveraging Synergistic YouTube Outros for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-bulk-buy-subscribers-cost-effective-growth-strategy/"><u>[Updated] In 2024, Bulk Buy Subscribers Cost-Effective Growth Strategy</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-screenflow-unleashed-a-comprehensive-macos-review/"><u>[Updated] In 2024, ScreenFlow Unleashed A Comprehensive macOS Review</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-step-by-step-guide-to-creating-curved-graphics/"><u>[Updated] Step-by-Step Guide to Creating Curved Graphics</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-from-capture-to-edit-elevating-your-immersive-video-experience-using-premiere-pro/"><u>2024 Approved From Capture to Edit Elevating Your Immersive Video Experience Using Premiere Pro</u></a></li>
+<li><a href="https://win-blog.techidaily.com/effective-strategies-for-troubleshooting-the-finals-failure-to-launch-insights/"><u>Effective Strategies for Troubleshooting 'The Finals' Failure to Launch - Insights</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-animatedapp-full-guide-24-edition/"><u>In 2024, AnimatedApp Full Guide '24 Edition</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-the-visionary-video-conclave/"><u>In 2024, The Visionary Video Conclave</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-stalled-2024-finals-step-by-step-guide-to-successful-launches/"><u>Troubleshooting Stalled 2024 Finals: Step-by-Step Guide to Successful Launches</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-video-editing-for-beginners-a-microsoft-guide-for-windows-users/"><u>Updated In 2024, Video Editing for Beginners A Microsoft Guide for Windows Users</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-protect-privacy-learn-how-to-blur-faces-in-photos-and-videos-with-these-10-free-apps/"><u>Updated Protect Privacy Learn How to Blur Faces in Photos and Videos with These 10 Free Apps</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Crafting Compelling Thumbnails to Captivate YouTube Viewers and Encourage Clicks"
-date: 2024-08-15T14:26:25.248Z
-updated: 2024-08-16T14:26:25.248Z
+date: 2024-12-23T00:04:40.125Z
+updated: 2024-12-25T19:55:27.743Z
 tags:
   - ai video
   - ai youtube
@@ -42,9 +42,6 @@ Here are 5 easy tips for creating thumbnails that get views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ## 1\. Have a Consistent Layout
 
 Your thumbnails all must look like part of the same set. You want viewers to recognize your videos like yours, and they are more likely to do that if you build up a standard layout that they can start associating with you.
@@ -52,14 +49,11 @@ Your thumbnails all must look like part of the same set. You want viewers to rec
 An example of a standard layout could be you in the middle of the screen wearing an expression that matches the theme of your video, with your title written underneath your face. Every individual thumbnail would still be different, but you and the text would always be in the same spot.
 
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **2\. Use Your Face**
 
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -67,8 +61,9 @@ People feel automatically connected and drawn into images that make eye contact.
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Use Graphics/Emojis that are On Topic
 
 Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
@@ -76,8 +71,9 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 Make sure the images you choose are relevant to the topic of your video.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Make Your Text Huge
 
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
@@ -85,8 +81,9 @@ If you use text in your thumbnail (you don’t have to) then it should be to add
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Keep it Clutter-Free
 
 It’s great to add text and emojis to your thumbnails, but you do need to be careful not to add too much. You never want your thumbnails to look cluttered. Viewers should be able to glance at your thumbnails and know exactly what kind of video to expect – that’s difficult to do if there’s too much to process.
@@ -99,20 +96,21 @@ Use these tips to make video thumbnails for YouTube, and tell us what kind of re
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -121,4 +119,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/new-rethink-periscope-6-innovative-video-apps-for-iphones-and-android/"><u>[New] Rethink Periscope 6 Innovative Video Apps for iPhones & Android</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-balancing-creativity-and-logic-in-gaming-videos/"><u>[Updated] 2024 Approved Balancing Creativity and Logic in Gaming Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-conveniently-connect-with-others-via-your-playlist/"><u>[Updated] In 2024, Conveniently Connect with Others via Your Playlist</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-honor-x7b-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Honor X7b? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/dynamic-title-creation-the-game-changer-for-2024/"><u>Dynamic Title Creation The Game Changer for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/graphics-card-shows-as-microsoft-basic-display-adapter-solved/"><u>Graphics Card Shows as Microsoft Basic Display Adapter [Solved]</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-convert-spotify-playlist-to-youtube-5-best-tools/"><u>In 2024, Convert Spotify Playlist To YouTube 5 Best Tools</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-maximizing-engagement-sharing-images-on-youtube/"><u>In 2024, Maximizing Engagement Sharing Images on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-unveiling-the-secret-of-affordable-video-ad-creation-on-youtube/"><u>In 2024, Unveiling the Secret of Affordable Video Ad Creation on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ess-screen-stretch-cycle-youtube-on-television-display/"><u>Seamless Screen Stretch Cycle YouTube on Television Display</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-motorola-razr-40-ultra-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Motorola Razr 40 Ultra Phone Hassle-Free</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/l-exclusive-video-snippets-all-at-zero-cost/"><u>Unveil Exclusive Video Snippets – All at Zero Cost!</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Behind the Scenes  Insider Knowledge for YouTube Video Production\""
-date: 2024-08-15T14:20:44.891Z
-updated: 2024-08-16T14:20:44.891Z
+date: 2024-12-22T17:20:58.817Z
+updated: 2024-12-25T23:52:06.085Z
 tags:
   - ai video
   - ai youtube
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/7dc3990d7127eb4697b62478b58e508110f384615
  We have mentioned before about [the equipment you should have to start your YouTube video shooting](https://tools.techidaily.com/wondershare/filmora/download/), however, being methodical in your approach to the video making process and knowing exactly what and where you are going to stage and record will increase the quality of the content. Focus on the technical aspects of your YouTube video before you actually start shooting and strive to be well prepared for all the challenges a day on the set may bring.
 
  These and other useful tips may help you make better videos for your YouTube channel, so let's explore different ways of improving your video making skills.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10 Tips for Shooting Better YouTube Videos
 
@@ -60,6 +64,10 @@ thumbnail: https://thmb.techidaily.com/7dc3990d7127eb4697b62478b58e508110f384615
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Posting vertically oriented videos to your YouTube channel will make you look unprofessional because portrait mode is never used for capturing videos. YouTubers who record their videos with Smartphones are more likely to fall into this trap, but all you need to do to avoid this is remember to hold the device horizontally.
 
  By switching to portrait mode, you'll be cropping the frame in a way, so you might unknowingly end up removing parts of the shot you wanted to record.
@@ -76,6 +84,10 @@ thumbnail: https://thmb.techidaily.com/7dc3990d7127eb4697b62478b58e508110f384615
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 8. Keep The Shot in Focus
 
  You can always keep the shot in focus by simply enabling the autofocus feature, but if you do so you won't be able to control where the focus is going to be. Pulling focus manually is an art that takes years to master, and you have to keep practicing it as much as you can in order to become good at it.
@@ -85,6 +97,10 @@ thumbnail: https://thmb.techidaily.com/7dc3990d7127eb4697b62478b58e508110f384615
 #### 9. Put The Camera on a Tripod
 
 ![Camera tripod ](https://images.wondershare.com/filmora/article-images/cartoni-omega-professional-tripod-system.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The footage you produce should be smooth and free of camera shakes. All video cameras pick up vibrations easily, so even the slightest movement or impact can ruin a shot. Putting the camera on a tripod is one of the best ways to stabilize the shot and avoid camera shaking.
 
@@ -108,20 +124,21 @@ thumbnail: https://thmb.techidaily.com/7dc3990d7127eb4697b62478b58e508110f384615
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -130,8 +147,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/ssential-techniques-in-creating-youtube-thumbnails-that-stand-out-for-2024/"><u>[New] Essential Techniques in Creating YouTube Thumbnails That Stand Out for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-mirror-of-society-top-100-inspiring-instagramcaptions/"><u>[New] In 2024, Mirror of Society Top 100 Inspiring #InstagramCaptions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-top-5-cozy-winter-scenes-for-video-aesthetics/"><u>[New] In 2024, Top 5 Cozy Winter Scenes for Video Aesthetics</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/aximizing-your-youtube-time-multi-stream-techniques/"><u>[New] Maximizing Your YouTube Time Multi-Stream Techniques</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-editors-edge-insider-strategies-to-supercharge-your-photos/"><u>[New] The Editor's Edge Insider Strategies to Supercharge Your Photos</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-slidecasting-simplified-a-modern-webcam-approach/"><u>[Updated] 2024 Approved Slidecasting Simplified A Modern, Webcam Approach</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-step-by-step-crafting-professional-valorant-thumbnails-for-youtube/"><u>[Updated] 2024 Approved Step-by-Step Crafting Professional Valorant Thumbnails for Youtube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-best-asmr-youtube-channels-you-should-know-for-2024/"><u>[Updated] Best ASMR YouTube Channels You Should Know for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-convert-twitter-vids-into-aacmp4-files-for-2024/"><u>[Updated] Convert Twitter Vids Into AAC/MP4 Files for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-sustainable-streaming-a-deep-dive-into-youtubes-financial-dynamics/"><u>[Updated] Sustainable Streaming A Deep Dive Into YouTube's Financial Dynamics</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-oneplus-nord-3-5g-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart OnePlus Nord 3 5G Without Power Button | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/comparing-the-m1-and-m3-macbook-pro-models-is-it-time-for-an-upgrade/"><u>Comparing the M1 and M3 MacBook Pro Models: Is It Time for an Upgrade?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-photos-from-honor-x9b-by-fonelab-android-recover-photos/"><u>Easy steps to recover deleted photos from Honor X9b.</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/essential-igtv-feeds-for-modern-viewers/"><u>Essential IGTV Feeds for Modern Viewers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-investigating-the-power-of-4-second-youtube-subscriptions/"><u>In 2024, Investigating the Power of 4-Second YouTube Subscriptions</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-maximize-engagement-and-impact-premier-tracking-applications-for-content-creators/"><u>In 2024, Maximize Engagement and Impact Premier Tracking Applications for Content Creators</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->

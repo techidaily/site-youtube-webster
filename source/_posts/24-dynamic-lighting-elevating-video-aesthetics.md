@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Dynamic Lighting  Elevating Video Aesthetics\""
-date: 2024-12-11T21:10:56.603Z
-updated: 2024-12-17T04:09:51.230Z
+date: 2024-12-24T20:59:18.721Z
+updated: 2024-12-25T20:14:48.039Z
 tags:
   - ai video
   - ai youtube
@@ -33,16 +33,12 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
@@ -58,10 +54,14 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -89,6 +89,10 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
@@ -96,7 +100,7 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -104,10 +108,6 @@ If you are using all of the lighting options available to you and your video sti
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -130,22 +130,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ropel-your-youtube-content-faster-render-and-efficient-upload-processes-for-2024/"><u>[New] Propel Your YouTube Content Faster Render & Efficient Upload Processes for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-the-ultimate-win10-strategy-for-successful-zoom-sessions-for-2024/"><u>[New] The Ultimate Win10 Strategy for Successful Zoom Sessions for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-sweep-up-viewers-the-science-behind-successful-youtube-shorts/"><u>[Updated] In 2024, Sweep Up Viewers The Science Behind Successful YouTube Shorts</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-the-earning-equation-on-youtube-daily-average-from-adsense-payouts-per-k-views/"><u>[Updated] In 2024, The Earning Equation on YouTube Daily Average From AdSense Payouts Per K Views</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-youtube-vs-vimeo-exploring-user-experience-variance-for-2024/"><u>[Updated] YouTube vs Vimeo Exploring User Experience Variance for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-mastering-customization-seamlessly-embedding-text-and-links-in-youtube-videos/"><u>2024 Approved Mastering Customization Seamlessly Embedding Text & Links in Youtube Videos</u></a></li>
-<li><a href="https://howto.techidaily.com/9-solutions-to-fix-xiaomi-redmi-note-13-proplus-5g-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Xiaomi Redmi Note 13 Pro+ 5G System Crash Issue | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>How to Simulate GPS Movement in AR games On Apple iPhone 6s? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-oppo-reno-8t-5g-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Oppo Reno 8T 5G Location without Installing Software? | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/navigating-the-download-of-fb-storied-videos-for-2024/"><u>Navigating the Download of FB Storied Videos for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/peak-of-digital-preservation-elite-storage-guide-for-2024/"><u>Peak of Digital Preservation Elite Storage Guide for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-and-effective-method-for-uploading-to-dailymotion-for-2024/"><u>Quick and Effective Method for Uploading to Dailymotion for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-fixes-todays-rapidly-watched-videos/"><u>Quick Fixes Today's Rapidly Watched Videos</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/resolving-playback-issues-with-the-corsair-virtuosity-gaming-headset-mic/"><u>Resolving Playback Issues with the Corsair Virtuosity Gaming Headset Mic</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ess-integration-offline-watching-of-youtube-via-ios-for-2024/"><u>Seamless Integration Offline Watching of YouTube via iOS for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/uncomplicating-your-steam-decks-cloud-functionality/"><u>Uncomplicating Your Steam Deck's Cloud Functionality</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/unveiling-the-gopro-superview-a-deep-dive-into-its-features-clarity-speed-adjustments-and-scope/"><u>Unveiling the GoPro SuperView: A Deep Dive Into Its Features - Clarity, Speed, Adjustments & Scope</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/hannel-name-magic-ideas-for-impactful-titles/"><u>[New] Channel Name Magic Ideas for Impactful Titles</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ow-to-use-creative-commons-copyright-licenses-for-2024/"><u>[New] How to Use Creative Commons Copyright Licenses for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-use-jump-cuts-in-your-vlog-for-2024/"><u>[New] How To Use Jump Cuts in Your Vlog for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-1k-sub-club-joining-the-youtube-success-circles/"><u>[New] In 2024, 1K Sub Club Joining the YouTube Success Circles</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-linkedin-luminaries-chatting-with-snapchat/"><u>[New] In 2024, LinkedIn Luminaries Chatting with Snapchat</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ransform-your-videography-youtubes-secret-to-stunning-greenscreens/"><u>[New] Transform Your Videography YouTube's Secret to Stunning Greenscreens</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-the-ultimate-guide-for-transforming-youtube-videos-into-animated-gifs/"><u>[Updated] 2024 Approved The Ultimate Guide for Transforming YouTube Videos Into Animated GIFs</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/44cq5bcc55so44os44ot44ol44o844cr44oh44k444ki44o844og44kj44o844k944ov44oi44km44kn44ki44gu5pplusu6luf44gq6lplusu6yer5p2h5lu244go44od44oq44k344o86kej6kqs/"><u>【専用レビュー】デジアーティーソフトウェアの柔軟な返金条件とポリシー解説</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-dominate-youtube-with-effective-content-strategies/"><u>2024 Approved Dominate YouTube with Effective Content Strategies</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-the-most-essential-5-earbuds-for-gaming/"><u>2024 Approved The Most Essential 5 Earbuds for Gaming</u></a></li>
+<li><a href="https://extra-information.techidaily.com/hexed-harmonics-can-you-really-change-your-tone-discover-other-ways/"><u>Hexed Harmonics Can You Really Change Your Tone? Discover Other Ways</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-after-format-on-13-ultra-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery after format on 13 Ultra</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-itel-a60s-by-drfone-android/"><u>In 2024, How to Bypass FRP on Itel A60s?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-key-players-in-asmr-youtube-world/"><u>In 2024, Key Players in ASMR YouTube World</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-mastering-youtube-stat-tracking-essentials/"><u>In 2024, Mastering YouTube Stat Tracking Essentials</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-vcs-vidcapture-review-full-examination/"><u>In 2024, VCS VidCapture Review Full Examination</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ior-asmr-video-curation-for-2024/"><u>Superior ASMR Video Curation for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/switching-the-on-screen-keyboard-onoff-in-windows-10-a-step-by-step-guide/"><u>Switching the On-Screen Keyboard On/Off in Windows 10: A Step-by-Step Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-pioneer-bdr-xd05b-key-drawbacks-in-its-blue-ray-burning-system-revealed/"><u>Unpacking the Pioneer BDR-XD05B - Key Drawbacks in Its Blue-Ray Burning System Revealed!</u></a></li>
 </ul></div>
 

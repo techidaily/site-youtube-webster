@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Avoid the Quake  Optimal Tripod Placement for Stellar Vlogs\""
-date: 2024-08-15T14:27:43.788Z
-updated: 2024-08-16T14:27:43.788Z
+date: 2024-12-20T16:12:18.892Z
+updated: 2024-12-25T18:31:02.418Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/141f2083ce8f9807f7858bc78fabb4787ff1855b3
 
  This article will explain how to use a tripod and then introduce you to four different types.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How To Set a Tripod for Vlogging
 
 #### 1\. Setting Up Your Tripod
@@ -52,10 +56,6 @@ thumbnail: https://thmb.techidaily.com/141f2083ce8f9807f7858bc78fabb4787ff1855b3
 
  On the go videos, are recorded at exterior locations, and a lot of YouTubers choose to shoot these types of videos handheld, but this approach makes it difficult to maintain the same shot composition for long. A Monopod, Gorillapod or just a simple selfie stick can make your job much easier because they stabilize the camera. In addition, shooting smooth panning shots without a tripod is as difficult as it sounds.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## Part 3: A Few Things You'll Need to Consider Before You Buy a Tripod
 
  There are thousands of different tripod models you can use for vlogging, but which model you're going to choose depends mostly on the type of vlog you want to make. If you are planning on shooting all of your videos in the studio-like conditions, then portability isn't such an important feature, while quite the opposite is true if you intend on filming all of your footage on outdoor locations.
@@ -72,10 +72,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  **Mobility:** The heavier a tripod is, the more stability it can provide, but carrying a tripod that weighs over 10 pounds to shoot sports or adventure vlogs can be a tiring endeavor. Although portability is a factor, it shouldn't prevent you from buying a high-quality tripod that will ensure your footage is perfectly smooth and stable.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 4: 4 Types of Tripods
 
 **Full-Sized Tripods:** are very sturdy, and as a result can be fairly heavy. Although you can take them a lot of places they are not convenient to carry for extended periods of time. They are the most reliable way to ensure you have absolutely no camera shake.
@@ -86,9 +82,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 **Table-Top Tripods:** are very small and easy to travel with. You can leave one in your camera bag or your glove box. Table-Top Tripods are meant to be set up on top of desks or other stable surfaces and may not be ideal for heavier cameras.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 5: The 5 Best Tripods For YouTube Vlogging
 
  Even if you know everything there is to know about tripods, the selection process can be daunting. That's why we've shortlisted the top 5 tripods on the market, in an effort to make finding the right tripod for your vlog videos as quick an easy as it can possibly be. Let's have a look.
@@ -98,8 +91,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 **Price:** $24.99
 
 ![ YouTube Vlogger Tripod ](https://images.wondershare.com/filmora/article-images/camrah-smartphone-tripod.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  An increasing number of Smartphones features powerful cameras that can record videos at high resolutions. Unfortunately, most iPhones and Android devices are lightweight, which makes it difficult to hold them perfectly still while shooting a video. CamRah Smartphone Tripod offers a perfect solution to this problem because it is easy to pack and you can carry it wherever you go, without needing the extra space.
@@ -122,8 +116,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 **Price:** $34.99
 
 ![ YouTube Vlogger Tripod ](https://images.wondershare.com/filmora/article-images/manfrotto-mini-tripod.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Yet another great option for shooting vlogs with a Smartphone. The Manfrotto Mini Travel Tripod kit is also an excellent choice for all vloggers who shoot their videos with compact cameras. The tripod weighs just 0.51lbs and it is 5.31 inches tall, which makes it a perfect travel companion. However, it can't support cameras heavier than 2.2lbs, so you have to carefully choose the camera you want to put on this tripod.
@@ -146,6 +141,10 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 **Price:** $22.50
 
 ![ YouTube Vlogger Tripod ](https://images.wondershare.com/filmora/article-images/joby-gorilla-pod.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  This tripod is a superstar in the vlogging community because it is flexible, easy to set up and it fits into a pocket. Joby Gorilla Pod's legs are segmented, so you can freely choose an angle from which you want to shoot, without having to worry about the camera's stability. You can use this tripod on flat and uneven surfaces equally effectively.
 
@@ -201,8 +200,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 * Not the best choice for action and adventure vlogs
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -211,14 +211,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -227,4 +224,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/rafting-content-for-specific-youtube-subsets/"><u>[New] Crafting Content for Specific Youtube Subsets</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ag-your-way-to-the-top-youtubes-viral-power-players-for-2024/"><u>[New] Tag Your Way to the Top YouTube's Viral Power Players for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-access-unlimited-stock-photos-via-four-noteworthy-youtubes/"><u>[Updated] In 2024, Access Unlimited Stock Photos via Four Noteworthy YouTubes</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-an-easy-to-follow-guide-adding-youtube-playlists-to-your-online-platform/"><u>[Updated] In 2024, An Easy-to-Follow Guide Adding YouTube Playlists to Your Online Platform</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-audio-aesthetics-high-quality-dj-template-videos-downloaded/"><u>[Updated] In 2024, Audio Aesthetics High-Quality DJ Template Videos Downloaded</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-syncing-your-youtube-watchlist-with-instagram-feed/"><u>[Updated] In 2024, Syncing Your YouTube Watchlist with Instagram Feed</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-techniques-in-motivating-viewers-with-lifestyle-vlogs/"><u>[Updated] In 2024, Techniques in Motivating Viewers with Lifestyle Vlogs</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ee-youtube-thumbnail-makers-to-make-your-own-video-thumbnail/"><u>12 FREE YouTube Thumbnail Makers to Make Your Own Video Thumbnail</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/te-your-content-youtube-video-editing-secrets-revealed-for-2024/"><u>Elevate Your Content YouTube Video Editing Secrets Revealed for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/how-to-add-music-to-facebook-videos-find-the-guide-here-for-2024/"><u>How to Add Music to Facebook Videos? Find The Guide Here for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/how-to-legally-watch-resurrections-of-the-matrix-on-popular-streaming-services/"><u>How to Legally Watch 'Resurrections of the Matrix' On Popular Streaming Services</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-boosting-income-via-youtube-ads-and-analytics-across-platforms/"><u>In 2024, Boosting Income via YouTube Ads & Analytics Across Platforms</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Lava Blaze Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/international-easter-wishes-translated/"><u>International Easter Wishes Translated</u></a></li>
+<li><a href="https://win11.techidaily.com/steps-to-fix-upgrade-failure-in-windows-11-error-0x800f0922/"><u>Steps to Fix Upgrade Failure in Windows 11 - Error 0X800f0922</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unlock-the-potential-how-to-choose-a-high-performance-tablet-based-on-its-chip/"><u>Unlock the Potential: How to Choose a High-Performance Tablet Based on Its Chip</u></a></li>
+</ul></div>
 

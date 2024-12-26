@@ -1,7 +1,7 @@
 ---
 title: "Charismatic Charm of Moving Text on Screen for 2024"
-date: 2024-08-15T14:26:59.793Z
-updated: 2024-08-16T14:26:59.793Z
+date: 2024-12-20T17:04:14.740Z
+updated: 2024-12-25T22:25:37.525Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/dc7ffd70cb73963a6e0b0477afa34122ac2690b6d
  Mar 27, 2024• Proven solutions
 
 Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
@@ -56,11 +60,19 @@ You can customize the default effect by double-clicking the shake filter in the 
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4: Export the Final Output**
 
 Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
 
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
 
@@ -70,9 +82,6 @@ As explained before, Wondeshare Filmora makes the entire process of creating and
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Method 2: Generate Animated Bouncing Texts Online
 
 If you don’t want any heavy and resource-intensive app on your PC merely for some special text effects, you can try any of the online solutions instead. The benefit of using any such web app is that all the processing is done on site’s server, and it is only a web browser and an Internet connection that you need to have at your side.
@@ -84,8 +93,9 @@ Some most trusted websites to generate **bounce text** are listed below:
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
@@ -113,8 +123,9 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 **Step 2: Customize the Text and Choose Animation Effect**
 
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
@@ -130,9 +141,6 @@ Click your preferred option from next to the **Download As** section to download
 Generating **bounce text** effect is much simpler when you use Wondershare Filmora or any of the online solutions as explained in Method 2\. While the former gives you more flexibility when it comes to customizations, the latter doesn’t require any app to be installed on your PC. In addition, many times the web apps offer their services for free, and therefore they are preferred by the novice users who are not much into post-production processes.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -140,14 +148,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -156,4 +161,21 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-eclipsing-fears-in-your-first-10-videos/"><u>[New] 2024 Approved Eclipsing Fears in Your First 10 Videos</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-quick-tutorial-incorporate-snap-camera-in-microsoft-teams-chats/"><u>[New] 2024 Approved Quick Tutorial Incorporate Snap Camera in Microsoft Teams Chats</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-uninterrupted-access-to-9-premium-christmas-films-enjoyment-at-zero-cost/"><u>[New] 2024 Approved Uninterrupted Access to 9 Premium Christmas Films Enjoyment at Zero Cost</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-exploring-subscriptions-the-value-of-youtube-premium/"><u>[Updated] 2024 Approved Exploring Subscriptions The Value of YouTube Premium</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-history-streams-that-will-transform-your-study-habits-for-2024/"><u>[Updated] History Streams That Will Transform Your Study Habits for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-premium-aerial-camera-crew-the-best-10-drones/"><u>[Updated] In 2024, Premium Aerial Camera Crew The Best 10 Drones</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/fy-video-dynamics-a-guide-to-perfecting-jump-cutting/"><u>Amplify Video Dynamics A Guide to Perfecting Jump Cutting</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/fostering-bonds-in-a-digital-age-using-chatai-tools/"><u>Fostering Bonds in a Digital Age Using ChatAI Tools</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-essential-mobile-media-apps-for-high-quality-photographyvideography/"><u>In 2024, Essential Mobile Media Apps for High-Quality Photography/Videography</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-5-from-infinix-smart-7-hd-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 5 from Infinix Smart 7 HD to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/pros-and-cons-of-webex-online-meeting-tool/"><u>Pros and Cons of WebEx Online Meeting Tool</u></a></li>
+<li><a href="https://driver-error.techidaily.com/re-establish-connection-between-seagate-and-windows-10/"><u>Re-Establish Connection Between Seagate & Windows 10</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/in-the-limelight-how-to-keep-youtube-cc-and-boost-views-for-2024/"><u>Stay in the Limelight How to Keep YouTube CC and Boost Views for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/virtual-frontiers-reviewed-must-have-vr-devices/"><u>Virtual Frontiers Reviewed Must-Have VR Devices</u></a></li>
+</ul></div>
 

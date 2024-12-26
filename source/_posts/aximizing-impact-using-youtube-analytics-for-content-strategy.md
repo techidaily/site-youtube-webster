@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Maximizing Impact  Using YouTube Analytics for Content Strategy\""
-date: 2024-08-15T14:27:28.396Z
-updated: 2024-08-16T14:27:28.396Z
+date: 2024-12-23T20:54:55.778Z
+updated: 2024-12-25T22:00:03.372Z
 tags:
   - ai video
   - ai youtube
@@ -57,6 +57,10 @@ In this article, I’m going to show you how to use YouTube Analytics to gain kn
 When you enter your YouTube Creator Studio, you will find the Analytics Tab on the left-hand-side menu. Click into it and you will see a whole list of features, each linking to its own dashboard.
 
 ![youtube-creator-sutdio](https://images.wondershare.com/filmora/youtube-creator-sutdio.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 But with all this information, it can get a little overwhelming for new YouTubers. Don’t sweat. Let’s walk through each section to identify:
 
@@ -114,6 +118,11 @@ The Realtime report is a fantastic tool for seeing the immediate performance of 
 
 ![performance-of-your-channel](https://images.wondershare.com/filmora/performance-of-your-channel.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **See Performance of Your 25 Most Recently Published Videos**
 
 In the Realtime dashboard, you will see the last 48 hours and last 60-minute performance of your 25 most recently published videos.
@@ -333,6 +342,11 @@ You will also see the Watch Time percentage that each video gets in comparison w
 
 ![data-split-by-age](https://images.wondershare.com/filmora/data-split-by-age.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Data Split by Gender:
 
 ![data-split-by-gender](https://images.wondershare.com/filmora/data-split-by-gender.jpg)  
@@ -343,6 +357,11 @@ Not only will you be able to see which region the majority of your viewerships a
 
 ![geographic-distribution](https://images.wondershare.com/filmora/geographic-distribution.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Additionally, you can click into specific videos on your channel and see how it is performing in different regions.
 
 #### **How to Use Demographics Report**
@@ -397,6 +416,11 @@ If you see that you are getting a lot of viewers coming from Suggested Videos, g
 
 ![video-suggesting-yours](https://images.wondershare.com/filmora/video-suggesting-yours.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **See What People Search For To Discover Your Video**
 
 By clicking into the YouTube search, you can see what viewers searched in order to find your video. This can be useful in understanding your viewers' mindset: were they trying to solve a problem or answer a question?
@@ -417,6 +441,11 @@ If you have a new video coming out and you want to promote it, understanding whe
 
 ![what-devices-your-viewers-are-watching-from](https://images.wondershare.com/filmora/what-devices-your-viewers-are-watching-from.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The way viewers watch content on their mobile phones is very different from the way they watch on television. By understanding how the majority of your viewers are watching your content, you can better design and structure your video.
 
 For example, if you see that you have a large following that watches your content on mobile, then it might not be a good idea to load your video with too much text, as it’ll be hard for them to read.
@@ -471,6 +500,11 @@ In addition to seeing the total Likes and Dislikes your channel received, in thi
 
 ![likes-and-dislikes](https://images.wondershare.com/filmora/likes-and-dislikes.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **Compare Likes and Dislikes with Other Metrics**
 
 See if there is a correlation between the channel’s performance and how viewers give Likes and Dislikes. Does increasing views get you more likes? Did a dip in views cause people to stop liking your videos?
@@ -553,6 +587,11 @@ This report shows you how frequently your audience is sharing your videos to the
 
 ![how-many-times-your-videos-have-been-shared](https://images.wondershare.com/filmora/how-many-times-your-videos-have-been-shared.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **See Which Sharing Service Is Most Popular For Your Channel**
 
 Know which platform your audience is most active on. Understanding this can help you tailor your content to be more shareable on those channels or you can discover your audience’s account on those services and thank them personality.
@@ -647,6 +686,11 @@ Because you can have multiple elements in the End Screen, you would want to see 
 
 ![most-popular-screen-elements-within-the-same-video](https://images.wondershare.com/filmora/most-popular-screen-elements-within-the-same-video.jpg)  
   
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **See Which Videos YouTube Chooses As Best For Viewers**
 
 In this report, you can also see the performance of different End Screen Element Types.
@@ -663,9 +707,11 @@ By clicking into the Best for Viewer section you can see the top-performing vide
 
 The End Screens report is great for letting you know which of your existing content the audience is interested in seeing after they finished watching one of your videos. As you learn more about your viewers and accumulate more videos, with the help of the End Screens report, you can determine which videos to use to increase Views and Watch Time.
   
+
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Conclusion**
 
 Television producers pay hundreds of thousands of dollars to data companies to get the same set of analytics that YouTube offers its creators for free.
@@ -677,14 +723,8 @@ Understanding how your videos are performing shines a light on your process, hel
 If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software Filmora, which is equipped with its own footage stock **[Wondershare Filmstock](https://tools.techidaily.com/wondershare/filmora/download/)** and will definitely enhance your productivity and helps you to make money by making videos much easier.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -692,14 +732,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -708,4 +745,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-essential-skillset-how-to-execute-screen-recording-on-mac/"><u>[New] In 2024, Essential Skillset How to Execute Screen Recording on Mac</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-instantaneous-accurate-image-browser-win11/"><u>[New] In 2024, Instantaneous, Accurate Image Browser Win11</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-top-5-ps3-emulation-software-pc-edition-2023-for-2024/"><u>[New] Top 5 Ps3 Emulation Software - PC Edition, 2023 for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-simplifying-the-process-of-deleting-youtube-files/"><u>[Updated] 2024 Approved Simplifying the Process of Deleting YouTube Files</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-tailored-thumbnails-aspect-ratios-for-maximum-clicks/"><u>[Updated] 2024 Approved Tailored Thumbnails Aspect Ratios for Maximum Clicks</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-elevate-video-production-the-audio-edition-on-youtube-for-2024/"><u>[Updated] Elevate Video Production The Audio Edition on YouTube for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-discover-prime-streaming-options-for-churches-today/"><u>[Updated] In 2024, Discover Prime Streaming Options for Churches Today</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-best-practices-for-measuring-igtv-video-effectiveness/"><u>2024 Approved Best Practices for Measuring IGTV Video Effectiveness</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-ideal-mics-for-bloggers-educators-and-entertainment-clips/"><u>2024 Approved Ideal Mics for Bloggers, Educators, & Entertainment Clips</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-prolific-photography-and-video-app-selection-iphone-vs-android/"><u>2024 Approved Prolific Photography & Video App Selection IPhone vs Android</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/cod-vanguard-pc-troubleshooting-eliminating-error-code-0x00001338-solution-inside/"><u>CoD Vanguard PC Troubleshooting: Eliminating Error Code 0X00001338 (Solution Inside)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-clicks-top-tags-for-gamers-content-for-2024/"><u>Crafting Clicks Top Tags for Gamers' Content for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-photos-from-meizu-21-by-fonelab-android-recover-photos/"><u>Easy steps to recover deleted photos from Meizu 21.</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-zte-axon-40-lite-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on ZTE Axon 40 Lite | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-11-best-location-changers-for-vivo-y78plus-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Vivo Y78+ | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-unlocking-customization-embedding-text-in-youtube-cards/"><u>In 2024, Unlocking Customization Embedding Text in YouTube Cards</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/creen-snapping-programs-for-content-sharing-for-2024/"><u>Key Screen-Snapping Programs for Content Sharing for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/r-selections-top-editors-for-professional-content-for-2024/"><u>Master Selections Top Editors For Professional Content for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-2024-ssd-picks-discover-from-cost-friendly-sata-to-ultra-speedy-nvme-drives/"><u>Top 2024 SSD Picks: Discover From Cost-Friendly SATA to Ultra-Speedy NVMe Drives</u></a></li>
+</ul></div>
 
