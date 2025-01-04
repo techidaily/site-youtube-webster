@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering Media Analysis  Evaluating Your Vs. Opponents' YouTube Content for 2024\""
-date: 2024-08-08T07:30:49.050Z
-updated: 2024-08-09T07:30:49.050Z
+date: 2025-01-02T03:12:01.974Z
+updated: 2025-01-04T06:02:47.160Z
 tags:
   - ai video
   - ai youtube
@@ -38,19 +38,16 @@ thumbnail: https://thmb.techidaily.com/d68b2c77d9bc6992a97b4d45a79ba7275bc346cfc
 
  Views along with watch time turn out to be the best bet. Watch time sums up the total amount of time spent (in terms of minutes) on your brand' videos. With the updated dashboard it becomes easy to get the YouTube analytics and gauge the video's performance. Using the average view duration, you can know whether your video is being watched till the end or not.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-views.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 2\.  Playback Location
 
  As 'Playback locations' of YouTube videos can reveal where does all the traffic come from, it would help your channel figure out for which location the video has fared well. It will guide you to reach the backlinks locations/sites. Knowing the popular locations for your YouTube video being played, you can know whether YouTube is the search engine or they have been diverted from somewhere else. Depending on the video playing locations, the views will be segregated in to embedded video, YouTube watch page, mobile devices, and YouTube channel page. Understanding location specific views would help you decide where should you focus to enhance the performance of your video.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playback-location.jpg)
 
 #### 3\.  Demographics
@@ -58,6 +55,10 @@ The ultimate burning program for all your needs!</a>
  The demographics page helps you get YouTube insights, using them you can know the audience in a gender and location specific manner. For local businesses targeting a certain region, YouTube analytics would prove to be a boon. You can also know the geography and device used by the viewers with this feature. Understanding the gender and location of people will help you create dedicated product videos that would be helpful to them.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-demographic.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 4\.  Traffic sources
 
@@ -69,10 +70,11 @@ The ultimate burning program for all your needs!</a>
 
  This data explains how far your video has engaged your audience. Along with views, the duration that a viewer is on your video weighs too. From the audience retention page, you can find out the specific time that a viewer has exited your video and see what made them do so. There are 2 types of audience retention features – absolute audience retention and relative audience retention.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-audience-retention.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 6\.  Devices
 
@@ -100,46 +102,39 @@ The ultimate burning program for all your needs!</a>
 
  While considering YouTube Analytics, it is essential to understand that there are annotations to guide viewers to your business site for more content. It is not necessary that the content is video only, it might include a blog post as well. This will let you understand the click through rate and 'close' rates for every annotation. This in turn will assist you in optimizing how to reach your audience and where to place the annotations.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-annotations.jpg)
 
 #### 10\.  Comments
 
  Audience engagement on any YouTube video can easily be gauged by using the vital aspect known as comments. Either it touched a chord in their heart, inspired or motivated them, or simply made them smile, the comments will say it all. Sometimes the audience simply taps 'Like' in place of commenting at their convenient.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-comments.jpg)
 
 #### 11\.  Cards
 
  Cards is a new feature in YouTube analytics and aimed at replacing annotations. This will improve user interactivity of any video and accelerate the engagement. They will act as call to action for informing visitors regarding playlists, videos, merchandising, fan funding, and associated website etc.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-cards.jpg)
 
 #### 12\.  Sharing
 
  This aspect sums up the amount of shares of the YouTube video across different social networks along with the share date. Google ranking is influenced with the share numbers, as higher the number more the chances of unique backlinks for your videos.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-sharing.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 13\.  Videos in playlists
 
  Favorites has been renamed to 'Videos in playlists'. Your reach broadens as people keep marking your videos as favorites on their playlist. This is visible to the public on the YouTube channel itself.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playlists.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to analyze your competitors
 
@@ -153,9 +148,6 @@ The ultimate burning program for all your needs!</a>
 
  InflueNex is a helpful influencer marketing tool for Analyzing, searching, and managing YouTubers. With the help of this YouTube analytics tool, you're able to learn your competitors' channels and videos with detailed information.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ![InflueNex YouTube Marketing Paltform ](https://images.wondershare.com/filmora/article-images/influenex-youtube-marketing-paltform.jpg)
 
 #### 2\. [Rival IQ](https://www.rivaliq.com/)
@@ -170,20 +162,21 @@ The ultimate burning program for all your needs!</a>
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -192,4 +185,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-5-secrets-to-preventing-blank-scenes-with-obs-recording/"><u>[New] In 2024, 5 Secrets to Preventing Blank Scenes with OBS Recording</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/kyrocket-engagement-key-seo-strategies-for-youtube-videos/"><u>[New] Skyrocket Engagement Key SEO Strategies for YouTube Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-10-best-youtube-music-reaction-video-and-how-to-make-one-for-2024/"><u>[Updated] 10 Best YouTube Music Reaction Video & How to Make One for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-expert-guide-to-video-to-audio-10-best-tools-reviewed/"><u>[Updated] 2024 Approved Expert Guide to Video-to-Audio #10 Best Tools Reviewed</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-viewer-recognition-the-play-button-reward-ribbon/"><u>[Updated] 2024 Approved Viewer Recognition The Play Button Reward Ribbon</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-retrospective-viewing-inventive-approaches-for-backward-youtube-content/"><u>[Updated] In 2024, Retrospective Viewing Inventive Approaches for Backward YouTube Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-live-stream-to-youtube-with-obs-step-by-step-guide-for-beginners-for-2024/"><u>[Updated] Live Stream to Youtube with OBS Step by Step Guide for Beginners for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-simplify-video-creation-making-engaging-youtube-trailers-in-filmora/"><u>[Updated] Simplify Video Creation Making Engaging YouTube Trailers in Filmora</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-supreme-boundless-data-depot/"><u>2024 Approved Supreme Boundless Data Depot</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-samsung-m2070-printer-drivers-fast-and-simple-installation/"><u>Download Samsung M2070 Printer Drivers: Fast and Simple Installation</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/how-to-setup-continuous-auto-video-in-fb-for-2024/"><u>How to Setup Continuous Auto-Video in Fb for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-vivo-y36i-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Vivo Y36i Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721469526526-resolve-your-iphones-or-ipads-predictive-emoji-glitches-top-7-quick-fixes/"><u>Resolve Your iPhone's or iPad's Predictive Emoji Glitches: Top 7 Quick Fixes</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/top-picks-for-your-pc-needs-at-toms-hardware-hub/"><u>Top Picks for Your PC Needs at Tom's Hardware Hub</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/troubleshooting-app-start-issue-qt-plugin-not-available/"><u>Troubleshooting App Start Issue: Qt Plugin Not Available</u></a></li>
+</ul></div>
 

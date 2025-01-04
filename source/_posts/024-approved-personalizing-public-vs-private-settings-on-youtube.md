@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Personalizing Public vs Private Settings on YouTube\""
-date: 2024-07-29T04:47:04.442Z
-updated: 2024-07-30T04:47:04.442Z
+date: 2025-01-02T22:14:08.499Z
+updated: 2025-01-04T03:03:48.730Z
 tags:
   - ai video
   - ai youtube
@@ -58,10 +58,11 @@ thumbnail: https://thmb.techidaily.com/e663bf23b6887cb8279b82d66477ecb71e4a937f5
 
  It won’t show up on searches, as related or suggested videos, or even when imbedded in other sites. This is the best setting for a video you need to share with only very specific people, if anyone. Below is a comparison table to know more about [privacy settings](https://support.google.com/youtube/answer/157177?co=GENIE.Platform%3DDesktop&hl=en&oco=1).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Change Privacy Settings
 
@@ -82,34 +83,34 @@ thumbnail: https://thmb.techidaily.com/e663bf23b6887cb8279b82d66477ecb71e4a937f5
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: Sharing Private Videos
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
  And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -117,14 +118,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -133,4 +131,17 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/levating-engagement-professional-tips-for-youtube-video-tweaks/"><u>[New] Elevating Engagement Professional Tips for YouTube Video Tweaks</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-demystifying-the-world-of-youtube-shorts/"><u>[Updated] In 2024, Demystifying the World of YouTube Shorts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-the-art-of-youtube-video-trailers-with-filmora-software/"><u>[Updated] In 2024, The Art of YouTube Video Trailers with Filmora Software</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-speech-logger-must-haves-for-mac-devices-our-picks-of-the-best-five/"><u>2024 Approved Speech Logger Must-Haves for Mac Devices Our Picks of the Best Five</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/essential-hardware-know-how-for-enthusiasts-curated-by-tom/"><u>Essential Hardware Know-How for Enthusiasts, Curated by Tom</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-on-realme-gt-neo-5-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Realme GT Neo 5 Devices</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-easy-tutorial-for-activating-icloud-from-apple-iphone-15-pro-safe-and-legal-by-drfone-ios/"><u>In 2024, Easy Tutorial for Activating iCloud from Apple iPhone 15 Pro Safe and Legal</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/maximizing-health-outcomes-the-9-key-ways-to-leverage-chatgpt-technology/"><u>Maximizing Health Outcomes: The 9 Key Ways to Leverage ChatGPT Technology</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-5-solar-charger-reviews-and-buying-guide-techradar/"><u>Top 5 Solar Charger Reviews & Buying Guide - TechRadar</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/lpuzzle-editor/"><u>VisualPuzzle Editor</u></a></li>
+</ul></div>
 

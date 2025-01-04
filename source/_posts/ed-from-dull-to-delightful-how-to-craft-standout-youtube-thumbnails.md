@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From Dull to Delightful  How To Craft Standout YouTube Thumbnails\""
-date: 2024-08-08T07:31:46.229Z
-updated: 2024-08-09T07:31:46.229Z
+date: 2025-01-02T21:31:28.899Z
+updated: 2025-01-03T22:00:26.990Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/e68430bcb106e10e6ed671e16682f01d022f0799c
 
 # How to Make Video Thumbnails for YouTube
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -46,22 +43,21 @@ Here are 5 easy tips for creating thumbnails that get views.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. Have a Consistent Layout
 
 Your thumbnails all must look like part of the same set. You want viewers to recognize your videos like yours, and they are more likely to do that if you build up a standard layout that they can start associating with you.
 
 An example of a standard layout could be you in the middle of the screen wearing an expression that matches the theme of your video, with your title written underneath your face. Every individual thumbnail would still be different, but you and the text would always be in the same spot.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **2\. Use Your Face**
 
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -69,8 +65,9 @@ People feel automatically connected and drawn into images that make eye contact.
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Use Graphics/Emojis that are On Topic
 
 Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
@@ -78,9 +75,9 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 Make sure the images you choose are relevant to the topic of your video.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Make Your Text Huge
 
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
@@ -99,20 +96,21 @@ Use these tips to make video thumbnails for YouTube, and tell us what kind of re
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -121,4 +119,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/arning-through-youtube-navigating-revenue-without-ads/"><u>[New] Earning Through YouTube Navigating Revenue Without Ads</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-control-over-your-ig-content-exposure/"><u>[New] In 2024, Control Over Your IG Content Exposure</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-secure-approach-verifying-your-youtube-login-details/"><u>[New] In 2024, Secure Approach Verifying Your YouTube Login Details</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/egal-download-how-to-safely-transfer-youtube-to-mp4/"><u>[New] Legal Download How to Safely Transfer YouTube to MP4</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/uick-guide-youtube-studio-the-editors-haven-for-2024/"><u>[New] Quick Guide YouTube Studio, The Editor's Haven for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-a-list-makeup-tutorials-who-to-watch/"><u>[Updated] 2024 Approved A-List Makeup Tutorials Who to Watch ?</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-spur-the-playback-of-vimeo-media/"><u>[Updated] 2024 Approved Spur the Playback of Vimeo Media</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-best-6-modern-homes-for-minecraft-enthusiasts/"><u>[Updated] Best 6 Modern Homes for Minecraft Enthusiasts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-innovating-engagement-integrate-thoughtful-chapters-into-your-youtube-videos-for-2024/"><u>[Updated] Innovating Engagement Integrate Thoughtful Chapters Into Your YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-master-browser-fb-vid-extractor-kit/"><u>[Updated] Master Browser FB Vid Extractor Kit</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-top-tier-strategies-for-flawless-srt-file-integration-on-vero-and-tumblr/"><u>[Updated] Top-Tier Strategies for Flawless SRT File Integration on Vero & Tumblr</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unveiling-best-video-software-vlc-against-mx/"><u>[Updated] Unveiling Best Video Software VLC Against MX</u></a></li>
+<li><a href="https://extra-information.techidaily.com/an-introduction-to-simple-and-effective-hdr-methods-for-2024/"><u>An Introduction to Simple and Effective HDR Methods for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nderappreciated-film-phenoms-of-this-year/"><u>The Underappreciated Film Phenoms of This Year</u></a></li>
+<li><a href="https://win-docs.techidaily.com/top-agentstva-po-optimizacii-pryamogo-trafika-seo-v-nyu-jorke-kak-uluchshit-vashu-onlajn-vidimost/"><u>Топ-Агентства По Оптимизации Прямого Трафика (SEO) В Нью-Йорке: Как Улучшить Вашу Онлайн Видимость</u></a></li>
+</ul></div>
 

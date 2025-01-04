@@ -1,7 +1,7 @@
 ---
 title: "\"Maximize Engagement  A Comprehensive Thumbnail Guidebook\""
-date: 2024-08-08T07:32:18.340Z
-updated: 2024-08-09T07:32:18.340Z
+date: 2024-12-28T23:29:16.145Z
+updated: 2025-01-03T16:38:06.774Z
 tags:
   - ai video
   - ai youtube
@@ -42,14 +42,12 @@ In order to create a custom video thumbnail, you’ll need a program to put it t
 
 Here are some examples of popular thumbnail styles.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
  ![Popular YouTube Thumbnail Layout](https://images.wondershare.com/filmora/article-images/popular-youtube-thumbnail-layout.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. The Classic Thumbnail (Photo or Screenshot)
 
 A photo that shows what happens in your video – whether that means the finished ‘look’ from your makeup tutorial or you posing in front of the landmark you shot your travel vlog in front of – is a great way to let viewers know what to expect. While curiosity can be a big motive behind clicking on a video thumbnail (or anything online), when people have searched for a specific topic they want to be convinced that your video has what they’re looking for.
@@ -76,10 +74,6 @@ You should also avoid fonts that are harder to read. Fonts with a lot of curves 
 
 Another tactic used in successful thumbnails is to add small graphics, like emojis or small images (i.e. pumpkins for a Halloween video), which are related to your video’s content. As with text, you don’t want to overload your thumbnail with images, but they’re a great way to add something eye-catching that’s a bit different from competing thumbnails.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### 2\. The Emotional Laser (Background + Face Reacting)
 
 One increasingly popular style of YouTube thumbnail is what we’re going to call the ‘Emotional Laser’. It’s bright (like, blindingly bright), it communicates a clear feeling, and it creates high expectations for how exciting the video’s content is going to be.
@@ -87,6 +81,10 @@ One increasingly popular style of YouTube thumbnail is what we’re going to cal
 The three main elements of the Emotional Laser thumbnail are a background (usually bright), your face on the right wearing an over-pronounced expression, and either the thing your expression is in reaction to (i.e. food, a product, the topic of your video in text) or reinforcement of your emotion (i.e an emoji or question marks) on the left.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### #1. Ham It Up (Take Your Reaction Photo)
 
@@ -127,9 +125,6 @@ YouTube recommends that thumbnail images have a resolution of **1280x720px**, an
 
 Make sure that all of your thumbnails adhere to YouTube’s Community guidelines. Anything sexually suggestive, violent, or otherwise graphic could result in your video being age-restricted.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: YouTube Thumbnail Makers
 
 You don’t have to go out and buy a photo editor like Photoshop to make custom video thumbnails (although it’s a good thing to use if you already have it). Here are two free online programs you can use instead:
@@ -145,8 +140,9 @@ You can make changes to the colors in your Spark thumbnail easily by selecting a
 Click to check more [YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 4: How to Make Thumbnails That Get Clicks (Without Clickbait!)
 
 Here are the top 10 best practices for creating effective YouTube thumbnails:
@@ -185,6 +181,10 @@ Type your video’s title or topic into the search engine on YouTube and look at
 
 Generally, if most of the thumbnails have the same layout, you’ll want to mimic that layout. Where you can break from the crowd is in the colors, fonts, and graphics you use.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 5: Animated YouTube Thumbnails
 
 Whether or not you upload a custom thumbnail to YouTube, YouTube’s A.I will choose what it thinks are the 3 juiciest seconds of your video (you cannot choose for yourself) and play them as a GIF-like animation when people mouseover your video thumbnails.
@@ -193,14 +193,15 @@ As of now, this only works in the Google Chrome desktop browser. Videos have to 
 
 Alright, now that you know everything about YouTube thumbnails, go make one! Tell us in the comments what you’re going to do to make your video thumbnails stand out.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ### Touch Up YouTube Videos with Effects & Elements in Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface. Download the free trial version and get started now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -210,14 +211,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -226,4 +224,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-speak-and-record-iphone-voice-memo-basics/"><u>[New] 2024 Approved Speak and Record IPhone Voice Memo Basics</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ce-your-edits-in-depth-guide-to-high-quality-youtube-videos/"><u>[New] Ace Your Edits In-Depth Guide to High-Quality YouTube Videos</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-iphone-lens-wizardry-secrets-to-selecting-perfect-positions/"><u>[New] IPhone Lens Wizardry Secrets to Selecting Perfect Positions</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ime-taming-learn-youtube-video-length-cuts/"><u>[New] Time Taming Learn YouTube Video Length Cuts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ave-goodbye-to-costs-with-our-50-free-banners-offer-for-2024/"><u>[New] Wave Goodbye to Costs with Our 50 Free Banners Offer for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-unlocking-simplicity-your-guide-to-direct-signup-buttons/"><u>[Updated] 2024 Approved Unlocking Simplicity Your Guide to Direct Signup Buttons</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-achieve-sharpness-camera-tips-without-a-tripod/"><u>[Updated] Achieve Sharpness Camera Tips Without a Tripod</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-creative-channel-titling-techniques-for-growth/"><u>[Updated] In 2024, Creative Channel Titling Techniques for Growth</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-essential-gear-for-video-blogging-top-rated-camera-lenses-revealed/"><u>[Updated] In 2024, Essential Gear for Video Blogging Top-Rated Camera Lenses Revealed</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-into-other-worlds-androids-cutting-edge-15-simulation-list/"><u>[Updated] Into Other Worlds Android's Cutting-Edge 15 Simulation List</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-strategies-for-personalizing-your-youtube-shorts-templates/"><u>2024 Approved Strategies for Personalizing Your YouTube Shorts Templates</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722966678210-fixing-amd-vega-64-graphics-card-issues-with-the-newest-windows-drivers-your-solution-here/"><u>Fixing AMD Vega 64 Graphics Card Issues with the Newest Windows Drivers – Your Solution Here</u></a></li>
+<li><a href="https://program-issues.techidaily.com/getting-dolby-atmos-up-and-running-again-on-microsofts-latest-operating-systems/"><u>Getting Dolby Atmos Up and Running Again on Microsoft's Latest Operating Systems</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ians-of-the-most-watched-youtube-edition-for-2024/"><u>Guardians of the Most Watched YouTube Edition for 2024</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-2024-approved-how-to-stream-on-twitch-the-ultimate-guide/"><u>New 2024 Approved How to Stream on Twitch The Ultimate Guide</u></a></li>
+<li><a href="https://fox-access.techidaily.com/polishing-screens-incorporating-filters-in-video-for-2024/"><u>Polishing Screens Incorporating Filters in Video for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/wolcen-lords-of-mayhem-game-release-issues-resolved/"><u>Wolcen - Lords of Mayhem Game Release Issues Resolved?</u></a></li>
+</ul></div>
 

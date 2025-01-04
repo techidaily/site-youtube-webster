@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  YouTube Analytics – How to Analyze Your and Competitor's YouTube Video\""
-date: 2024-08-08T07:38:32.933Z
-updated: 2024-08-09T07:38:32.933Z
+date: 2025-01-02T17:11:10.895Z
+updated: 2025-01-04T08:03:46.817Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/98a99e3eeb7551ca233212f1d8efc0e3f75521fee
 
 # YouTube Analytics – How to analyze your and Competitor's YouTube Video
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -29,9 +26,6 @@ thumbnail: https://thmb.techidaily.com/98a99e3eeb7551ca233212f1d8efc0e3f75521fee
 
  Tracking your brand's YouTube metrics is not enough to ensure success in YouTube. Unless you garner deep insights of your competitors. You must be thinking how can you gauge their company insights using YouTube and track the data movement as well. There is nothing to worry about, we have got you covered. We will show you how to analyze your own channel as well as that of your competitors' YouTube analytics. Let's now explore about it!
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to analyze your own YouTube channel/video?
 
  It is important to have reliable YouTube analytics tools for your brand, as videos on YouTube are searchable through Google. They contribute to generate organic traffic for you using both Google and YouTube as a medium. YouTube has a default dedicated analytics mechanism to measure how the video fares in YouTube to gain the most out of it.
@@ -44,10 +38,11 @@ thumbnail: https://thmb.techidaily.com/98a99e3eeb7551ca233212f1d8efc0e3f75521fee
 
  Views along with watch time turn out to be the best bet. Watch time sums up the total amount of time spent (in terms of minutes) on your brand' videos. With the updated dashboard it becomes easy to get the YouTube analytics and gauge the video's performance. Using the average view duration, you can know whether your video is being watched till the end or not.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-views.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 2\.  Playback Location
 
@@ -59,9 +54,6 @@ thumbnail: https://thmb.techidaily.com/98a99e3eeb7551ca233212f1d8efc0e3f75521fee
 
  The demographics page helps you get YouTube insights, using them you can know the audience in a gender and location specific manner. For local businesses targeting a certain region, YouTube analytics would prove to be a boon. You can also know the geography and device used by the viewers with this feature. Understanding the gender and location of people will help you create dedicated product videos that would be helpful to them.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-demographic.jpg)
 
 #### 4\.  Traffic sources
@@ -74,25 +66,21 @@ thumbnail: https://thmb.techidaily.com/98a99e3eeb7551ca233212f1d8efc0e3f75521fee
 
  This data explains how far your video has engaged your audience. Along with views, the duration that a viewer is on your video weighs too. From the audience retention page, you can find out the specific time that a viewer has exited your video and see what made them do so. There are 2 types of audience retention features – absolute audience retention and relative audience retention.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-audience-retention.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 6\.  Devices
 
  It is important to know which device is being used to watch the video. The metrics is distributed among mobile phones, computer, TV, tablet etc. you will be able to understand whether your video needs to be optimized for a certain video or not.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-devices.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 7\.  Likes and dislikes
 
@@ -116,6 +104,10 @@ thumbnail: https://thmb.techidaily.com/98a99e3eeb7551ca233212f1d8efc0e3f75521fee
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-annotations.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 10\.  Comments
 
  Audience engagement on any YouTube video can easily be gauged by using the vital aspect known as comments. Either it touched a chord in their heart, inspired or motivated them, or simply made them smile, the comments will say it all. Sometimes the audience simply taps 'Like' in place of commenting at their convenient.
@@ -126,9 +118,6 @@ thumbnail: https://thmb.techidaily.com/98a99e3eeb7551ca233212f1d8efc0e3f75521fee
 
  Cards is a new feature in YouTube analytics and aimed at replacing annotations. This will improve user interactivity of any video and accelerate the engagement. They will act as call to action for informing visitors regarding playlists, videos, merchandising, fan funding, and associated website etc.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-cards.jpg)
 
 #### 12\.  Sharing
@@ -141,14 +130,12 @@ thumbnail: https://thmb.techidaily.com/98a99e3eeb7551ca233212f1d8efc0e3f75521fee
 
  Favorites has been renamed to 'Videos in playlists'. Your reach broadens as people keep marking your videos as favorites on their playlist. This is visible to the public on the YouTube channel itself.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playlists.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to analyze your competitors
 
  Although, you can't see the dashboard data of your competitor, there are still some ways to observe and study your competitors' successful videos and from their views, favorites, ratings, and comments find out the driving force behind it.
@@ -161,9 +148,6 @@ thumbnail: https://thmb.techidaily.com/98a99e3eeb7551ca233212f1d8efc0e3f75521fee
 
  InflueNex is a helpful influencer marketing tool for Analyzing, searching, and managing YouTubers. With the help of this YouTube analytics tool, you're able to learn your competitors' channels and videos with detailed information.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![InflueNex YouTube Marketing Paltform ](https://images.wondershare.com/filmora/article-images/influenex-youtube-marketing-paltform.jpg)
 
 #### 2\. [Rival IQ](https://www.rivaliq.com/)
@@ -178,20 +162,21 @@ thumbnail: https://thmb.techidaily.com/98a99e3eeb7551ca233212f1d8efc0e3f75521fee
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -200,4 +185,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-weaving-a-cinematic-tapestry-for-teasers/"><u>[New] Weaving a Cinematic Tapestry for Teasers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-direct-youtube-to-dazzling-gif-creation-with-no-downloads/"><u>[Updated] 2024 Approved Direct YouTube to Dazzling Gif Creation with No Downloads</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-media-script-synthesizer/"><u>[Updated] 2024 Approved Media Script Synthesizer</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-10plus-top-free-youtube-image-extractors/"><u>[Updated] In 2024, 10+ Top FREE YouTube Image Extractors</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-cutting-edge-of-cinematography-kinemasters-zoom-excellence-for-2024/"><u>[Updated] The Cutting Edge of Cinematography Kinemaster’s Zoom Excellence for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-plotting-pioneering-partings/"><u>2024 Approved Plotting Pioneering Partings</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-step-by-step-integrating-comments-in-youtube-videos/"><u>2024 Approved Step-by-Step Integrating Comments in YouTube Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/s-10-free-thumbnail-downloader-apps/"><u>Access 10 Free Thumbnail Downloader Apps</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/cutting-edge-components-in-desktops/"><u>Cutting-Edge Components in Desktops</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/egular-are-youtube-monetization-payments-in-2024/"><u>How Regular Are YouTube Monetization Payments, In 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-nokia-c110-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Nokia C110 to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-analyzing-why-youtube-features-specific-comments/"><u>In 2024, Analyzing Why YouTube Features Specific Comments</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-tecno-spark-10-4g-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Tecno Spark 10 4G Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/overcome-audio-lag-in-your-bluetooth-setup-effective-strategies-inside/"><u>Overcome Audio Lag in Your Bluetooth Setup – Effective Strategies Inside</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722778096489-the-definitive-guide-to-the-new-m1-powered-macbook-pro-16-inch-apples-finest-in-2-cufflinks/"><u>The Definitive Guide to the New M1 Powered MacBook Pro 16 Inch - Apple's Finest in 2 Cufflinks.</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-cartoon-video-creation-made-easy-top-10-tools-for-beginners-for-2024/"><u>Updated Cartoon Video Creation Made Easy Top 10 Tools for Beginners for 2024</u></a></li>
+</ul></div>
 

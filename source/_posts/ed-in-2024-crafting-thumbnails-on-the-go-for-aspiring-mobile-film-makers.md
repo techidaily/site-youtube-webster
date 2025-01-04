@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Crafting Thumbnails on the Go  For Aspiring Mobile Film Makers\""
-date: 2024-12-20T17:23:36.550Z
-updated: 2024-12-25T19:16:02.779Z
+date: 2024-12-29T17:36:14.149Z
+updated: 2025-01-04T02:59:09.287Z
 tags:
   - ai video
   - ai youtube
@@ -53,10 +53,6 @@ Step3 Tap the **Filters** button to access the filter effects. **Scroll** throug
 
 ![ios photo filter](https://images.wondershare.com/filmora/article-images/ios-photo-filter.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step4 To write or draw on the image, **tap** the **Markup** button. This will open a toolbar with a variety of drawing and text tools. Use these tools to add your personal touch to the thumbnail.
 
 ![ios photo markup](https://images.wondershare.com/filmora/article-images/ios-photo-markup.JPG)
@@ -94,13 +90,13 @@ Step2 Tap the **"+"** icon to **add** an image from your gallery.
 
 ![pixellab add image](https://images.wondershare.com/filmora/article-images/pixellab-add-image.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Edit the image using the available tools, such as cropping, rotating, and adjusting the color and lighting.
 
 ![pixellab editing options](https://images.wondershare.com/filmora/article-images/pixellab-editing-options.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step4 Add text to the image and **customize** it to your liking.
 
@@ -146,7 +142,7 @@ Step3 Tap on the video and tap the "**Edit**" button in the top right corner of 
 ![youtube edit video](https://images.wondershare.com/filmora/article-images/youtube-edit-video.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step4 Tap the **Custom thumbnail** button and **upload** the image you want to use from your photo library.
@@ -158,7 +154,7 @@ Step5 Tap Save in the top right corner to upload the thumbnail to your video.
 ![youtube save thumbnail](https://images.wondershare.com/filmora/article-images/youtube-save-thumbnail.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 That's it! Your new thumbnail will now be displayed on your YouTube video, helping it stand out and attract more views. You can repeat this process for other videos if you want to add a custom thumbnail.
@@ -183,10 +179,6 @@ Step1 Launch Filmora, add the picture to the timeline and **select** the AI Port
 
 ![filmora interface](https://images.wondershare.com/filmora/article-images/filmora-interface.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Scale up and reposition the photo.
 
 ![filmora import image](https://images.wondershare.com/filmora/article-images/filmora-import-image.JPG)
@@ -198,10 +190,6 @@ Step3 Add a new background to the track below the picture. **Use** the other edi
 Step4 When you are done editing the thumbnail, take a **snapshot** by clicking the camera icon.
 
 ![filmora take a snapshot](https://images.wondershare.com/filmora/article-images/filmora-take-screenshot.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step5 Locate the thumbnail in your local drive.
 
@@ -243,6 +231,10 @@ Whether you create your thumbnails on your mobile device or your computer, use a
 
 This method is best for users looking for a quick and easy way to create a thumbnail on the go and doesn't need many customization options. It's also a good option for users needing computer or graphic design software access. If you're looking for more advanced customization options or higher image quality, consider using other methods or software.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Method 2\. Make YouTube Thumbnails on Android/iPhone With Third-Party Apps
 
 In addition to using the built-in Photos app on your iPhone or Android device, there are also many third-party apps that you can use to create YouTube thumbnails. Some popular options include Canva, Adobe Spark, and FotoJet. These apps offer a wider range of customization options and design templates, making it easy to create professional-looking thumbnails even if you have yet to gain graphic design experience.
@@ -262,10 +254,6 @@ Step2 Tap the **"+"** icon to **add** an image from your gallery.
 Step3 Edit the image using the available tools, such as cropping, rotating, and adjusting the color and lighting.
 
 ![pixellab editing options](https://images.wondershare.com/filmora/article-images/pixellab-editing-options.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step4 Add text to the image and **customize** it to your liking.
 
@@ -302,6 +290,10 @@ Step1 Open the YouTube app on your mobile device and sign in to your account.
 
 ![youtube install](https://images.wondershare.com/filmora/article-images/youtube-home.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Tap on the **My Videos** tab to view a list of your uploaded videos.
 
 ![youtube select video](https://images.wondershare.com/filmora/article-images/youtube-select-video.JPG)
@@ -314,19 +306,15 @@ Step4 Tap the **Custom thumbnail** button and **upload** the image you want to u
 
 ![youtube upload thumbnail](https://images.wondershare.com/filmora/article-images/youtube-upload-thumbnail.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step5 Tap Save in the top right corner to upload the thumbnail to your video.
 
 ![youtube save thumbnail](https://images.wondershare.com/filmora/article-images/youtube-save-thumbnail.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 That's it! Your new thumbnail will now be displayed on your YouTube video, helping it stand out and attract more views. You can repeat this process for other videos if you want to add a custom thumbnail.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## It May Interest You – Make YouTube Thumbnails on Windows/Mac
 
@@ -352,9 +340,17 @@ Step2 Scale up and reposition the photo.
 
 ![filmora import image](https://images.wondershare.com/filmora/article-images/filmora-import-image.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Add a new background to the track below the picture. **Use** the other editing tools in Filmora to customize the image as desired, such as adding text, graphics, and special effects.
 
 ![filmora editing options](https://images.wondershare.com/filmora/article-images/filmora-editing-options.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step4 When you are done editing the thumbnail, take a **snapshot** by clicking the camera icon.
 
@@ -380,6 +376,10 @@ There are many different apps and tools that YouTubers use to create thumbnails 
 
 If you're looking for a quick and easy way to create a thumbnail on your mobile device, start with the built-in Photos app or a third-party app like Canva. If you need more advanced customization options or are comfortable with graphic design software, consider using Adobe Photoshop or another tool.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Q2\. What Is YouTube Thumbnail Size?
 
 The recommended size for YouTube thumbnails is 1280 x 720 pixels. This size balances quality and file size, ensuring that your thumbnail looks sharp and loads quickly. It's also important to note that YouTube thumbnails are displayed at different sizes depending on the device and context in which they are viewed.
@@ -393,7 +393,7 @@ There is no one-size-fits-all answer to this question, as the thumbnail that get
 However, the key to getting clicks on your thumbnail is to make it visually appealing and relevant to your video. Experiment with different thumbnail designs and track which ones get the most clicks to help you identify what works best for your channel.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -423,15 +423,21 @@ Whether you create your thumbnails on your mobile device or your computer, use a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-in-depth-look-at-voice-altering-software-for-video-makers/"><u>[Updated] 2024 Approved In-Depth Look at Voice Altering Software for Video Makers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-unveiling-profit-potential-the-systematic-triad-technique-for-youtube-earning-analysis/"><u>[Updated] 2024 Approved Unveiling Profit Potential The Systematic Triad Technique for YouTube Earning Analysis</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-digital-wealth-creation-through-video-networking/"><u>[Updated] Digital Wealth Creation Through Video Networking</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-unveiling-the-mysteries-of-ig-metrics-an-essential-toolkit-for-marketers/"><u>[Updated] Unveiling the Mysteries of IG Metrics An Essential Toolkit for Marketers</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-honor-magic-5-lite-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Honor Magic 5 Lite?</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/hd-wallpaper-collections-anne-hathaways-stunning-portraits-by-yl-computing/"><u>HD Wallpaper Collections: Anne Hathaway's Stunning Portraits by YL Computing</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-cutting-and-compositing-for-youtube-videos-using-premiere-pro/"><u>In 2024, Cutting and Compositing for YouTube Videos Using Premiere Pro</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/mend-cracked-mpeg-files-a-simple-tool-for-fixing-broken-video-playback/"><u>Mend Cracked MPEG Files: A Simple Tool for Fixing Broken Video Playback</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/revolutionize-your-video-editing-the-top-free-adobe-premiere-plugins/"><u>Revolutionize Your Video Editing The Top Free Adobe Premiere Plugins</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/techniques-for-selective-youtube-video-downloading-for-2024/"><u>Techniques for Selective YouTube Video Downloading for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/inding-the-perfect-dj-template-video-download-for-your-events-for-2024/"><u>[New] Finding the Perfect DJ Template Video Download for Your Events for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-diy-digital-footprint-creating-youtube-thumbnails-from-mobile-devices-for-2024/"><u>[Updated] DIY Digital Footprint Creating YouTube Thumbnails From Mobile Devices for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-start-with-strategy-launching-an-online-dominant-gaming-channel-for-2024/"><u>[Updated] Start with Strategy Launching an Online Dominant Gaming Channel for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-top-tips-for-masterful-looped-videos-on-instagram/"><u>[Updated] Top Tips for Masterful Looped Videos on Instagram</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-yt-thumbnails-downloading-via-browser-app-and-command-line-for-2024/"><u>[Updated] YT Thumbnails Downloading via Browser, App & Command Line for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-elevate-your-video-visibility-11-secrets-of-successful-seo/"><u>2024 Approved Elevate Your Video Visibility 11 Secrets of Successful SEO</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/bring-your-logitech-g430-microphone-back-to-life-essential-fixes-for-non-functional-issues/"><u>Bring Your Logitech G430 Microphone Back to Life: Essential Fixes for Non-Functional Issues</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-history-uncovered-your-guide-to-online-video-retrieval-for-2024/"><u>Deleted History Uncovered Your Guide to Online Video Retrieval for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-manually-resolve-dvd-bd-or-cd-drive-malfunctions-and-jammed-trays/"><u>How To Manually Resolve DVD, BD or CD Drive Malfunctions & Jammed Trays</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-lava-yuva-3-pro-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Lava Yuva 3 Pro to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-a-step-by-step-guide-for-meet-custom-filters-and-effects/"><u>In 2024, A Step-by-Step Guide for Meet Custom Filters & Effects</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-fast-favorites-todays-highest-youtube-tracks/"><u>In 2024, Fast Favorites Today's Highest Youtube Tracks</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/revive-your-computers-dead-usb-connectors-in-windows/"><u>Revive Your Computer's Dead USB Connectors in Windows</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-asus-rog-gt-ac5300-perfect-for-gaming-and-high-tech-devotees/"><u>The Ultimate Guide to the Asus ROG GT-AC5300 - Perfect for Gaming & High-Tech Devotees</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-6-uses-for-chatgpts-code-interpreter/"><u>Top 6 Uses for ChatGPT's Code Interpreter</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unleash-your-full-potential-top-ideas-for-productive-podcast-sessions-for-2024/"><u>Unleash Your Full Potential Top Ideas for Productive Podcast Sessions for 2024</u></a></li>
 </ul></div>
 

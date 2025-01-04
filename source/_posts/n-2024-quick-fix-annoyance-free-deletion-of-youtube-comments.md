@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Quick Fix  Annoyance-Free Deletion of Youtube Comments\""
-date: 2024-12-18T21:49:36.765Z
-updated: 2024-12-25T19:03:54.024Z
+date: 2024-12-28T02:36:18.824Z
+updated: 2025-01-03T19:28:36.707Z
 tags:
   - ai video
   - ai youtube
@@ -42,7 +42,7 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Delete YouTube Comments from Desktop?
@@ -56,10 +56,6 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -69,6 +65,10 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 3. Select the video from where you want to delete a comment. Scroll down to reach the desired comment.
 4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from YouTube?
 
@@ -125,12 +125,16 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
@@ -139,10 +143,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
@@ -150,7 +150,7 @@ YouTube can be an unsafe place with unwanted comments everywhere. In this blog, 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -174,24 +174,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/nhance-privacy-and-speed-the-best-7-android-adblocks-for-2024/"><u>[New] Enhance Privacy & Speed The Best 7 Android AdBlocks for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-shoot-cool-vids-from-scratch-with-your-mac-newcomers-guide/"><u>[New] In 2024, Shoot Cool Vids From Scratch with Your Mac, Newcomers Guide</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-triumph-through-tales-3-crucial-strategies-for-channels/"><u>[New] In 2024, Triumph Through Tales 3 Crucial Strategies for Channels</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-supercharge-view-counts-through-strategic-video-time-stamping/"><u>[Updated] 2024 Approved Supercharge View Counts Through Strategic Video Time-Stamping</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-x-sonic-recorder-desktop-format/"><u>[Updated] 2024 Approved X-Sonic Recorder Desktop Format</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-exploring-the-fundamentals-of-av1-encoding/"><u>[Updated] Exploring the Fundamentals of AV1 Encoding</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-ensure-vivid-gameplay-tips-to-eliminate-darkness-on-obs-captures/"><u>[Updated] In 2024, Ensure Vivid Gameplay Tips to Eliminate Darkness on OBS Captures</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-turning-youtube-sounds-into-text-an-in-depth-no-cost-course/"><u>[Updated] In 2024, Turning YouTube Sounds Into Text An In-Depth, No-Cost Course</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-obs-live-broadcasting-on-instagram-for-2024/"><u>[Updated] OBS Live Broadcasting on Instagram for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-post-publish-editing-elevating-your-youtube-content/"><u>[Updated] Post-Publish Editing Elevating Your YouTube Content</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-stepwise-journey-to-excellence-in-voice-memos-for-2024/"><u>[Updated] Stepwise Journey to Excellence in Voice Memos for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-all-about-firefoxs-split-screen-feature/"><u>2024 Approved All About Firefox's Split Screen Feature</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-building-a-sports-channel-via-macos-step-by-step-guide/"><u>2024 Approved Building a Sports Channel via macOS Step by Step Guide</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-youtube-shorts-and-tiktok-which-one-is-better-for-personal-usage/"><u>2024 Approved YouTube Shorts & TikTok Which One Is Better for Personal Usage?</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/breaking-barriers-free-gpt-4-for-all/"><u>Breaking Barriers: Free GPT-4 for All</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/how-free-speech-misinterpretations-by-musk-and-tesla-aspirations-pose-a-threat-to-indian-minorities-insights-from-zdnet/"><u>How Free Speech Misinterpretations by Musk and Tesla Aspirations Pose a Threat to Indian Minorities | Insights From ZDNET</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-step-by-step-guide-to-adjust-youtube-video-speeds-on-the-fly/"><u>In 2024, Step-By-Step Guide to Adjust YouTube Video Speeds on the Fly</u></a></li>
-<li><a href="https://driver-download.techidaily.com/1722960827352-upgrade-your-headphones-now-instant-nahimic-driver-enhancement/"><u>Upgrade Your Headphones Now - Instant Nahimic Driver Enhancement</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/be-videography-essentials-7-free-audio-choices-for-2024/"><u>YouTube Videography Essentials - 7 Free Audio Choices for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-perfect-your-visual-storytelling-inserting-titles-into-photo-videos-on-windows/"><u>[New] In 2024, Perfect Your Visual Storytelling Inserting Titles Into Photo Videos on Windows</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/igrating-spotify-written-content-for-a-streamlined-youtube-music-experience/"><u>[New] Migrating Spotify' Written Content for a Streamlined YouTube Music Experience</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/remier-roundup-2023s-top-free-video-editing-apps/"><u>[New] Premier Roundup 2023'S Top Free Video Editing Apps</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/top-youtube-shorts-forever-a-step-by-step-guide-for-2024/"><u>[New] Stop YouTube Shorts Forever A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/treamline-your-craft-expert-tutorials-in-youtube-studio-editor-for-2024/"><u>[New] Streamline Your Craft Expert Tutorials in YouTube Studio Editor for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-transformative-guide-gifs-becoming-stickers-on-discord-whatsapp-and-telegram/"><u>[Updated] Transformative Guide GIFs Becoming Stickers on Discord, WhatsApp & Telegram</u></a></li>
+<li><a href="https://change-location.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/43173708-channel-milestone-hurdle-cross-the-10k-view-threshold-fast/"><u>Channel Milestone Hurdle – Cross the 10K View Threshold Fast!</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/creating-a-safe-mc-habitat-plan-6-for-2024/"><u>Creating a Safe MC Habitat Plan #6 for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/vering-2023s-cinematic-hidden-gems/"><u>Discovering 2023'S Cinematic Hidden Gems</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-the-soft-bricked-lava-storm-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Lava Storm 5G? | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-resolve-continuous-crashes-in-genshin-impact-for-your-computer/"><u>How to Resolve Continuous Crashes in Genshin Impact for Your Computer</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On Motorola Edge 2023? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ring-tripod-setup-in-vlogging-for-2024/"><u>Mastering Tripod Setup in Vlogging for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/t-mastery-on-youtube-a-cross-device-guide/"><u>Profit Mastery on YouTube A Cross-Device Guide</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/simple-solutions-to-fix-android-systemui-has-stopped-error-for-honor-magic-5-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Simple Solutions to Fix Android SystemUI Has Stopped Error For Honor Magic 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-5-simple-tips-to-boost-your-facebook-productivity/"><u>Top 5 Simple Tips to Boost Your Facebook Productivity</u></a></li>
+<li><a href="https://techidaily.com/video-file-repair-how-to-fix-corrupted-video-files-of-infinix-note-30-5g-by-stellar-video-repair-mobile-video-repair/"><u>Video File Repair - How to Fix Corrupted video files of Infinix Note 30 5G?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/be-marketing-boosted-by-free-downloadable-templates-for-2024/"><u>YouTube Marketing Boosted by Free Downloadable Templates for 2024</u></a></li>
 </ul></div>
 

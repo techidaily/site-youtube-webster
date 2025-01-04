@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  The Sprinkle of Life in Your Text Animations\""
-date: 2024-07-29T04:47:11.731Z
-updated: 2024-07-30T04:47:11.731Z
+date: 2024-12-28T04:27:29.088Z
+updated: 2025-01-03T21:09:02.575Z
 tags:
   - ai video
   - ai youtube
@@ -27,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/69f2f1d0be799b84094434c96c9ff028c4a80dbd7
 Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
 When talking about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), the application is populated with several presets for texts and titles, animations, effects, filters, and much more.
@@ -47,23 +48,29 @@ Click **Titles** from the standard toolbar at the top, and click and drag your p
 
 In the timeline, double-click the title you just added, use the upper-left section to edit the text, go to the **Animation** tab from the left pane, scroll down the list, and double-click the **Up Down 1** or **Up Down 2** preset to apply the bounce effect to the credits. Click **OK** to save the changes and to get back to the main window.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3: Add Shake Filters**
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4: Export the Final Output**
 
@@ -89,18 +96,6 @@ Some most trusted websites to generate **bounce text** are listed below:
 
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
@@ -127,23 +122,6 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 
 **Step 2: Customize the Text and Choose Animation Effect**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
 
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
@@ -158,10 +136,11 @@ Click your preferred option from next to the **Download As** section to download
 
 Generating **bounce text** effect is much simpler when you use Wondershare Filmora or any of the online solutions as explained in Method 2\. While the former gives you more flexibility when it comes to customizations, the latter doesn’t require any app to be installed on your PC. In addition, many times the web apps offer their services for free, and therefore they are preferred by the novice users who are not much into post-production processes.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -169,14 +148,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -185,4 +161,16 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/onetizing-mastery-comparing-streaming-giants-strategies-for-2024/"><u>[New] Monetizing Mastery Comparing Streaming Giants' Strategies for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-best-5-non-youtube-editing-tools-for-vids/"><u>2024 Approved Best 5 Non-YouTube Editing Tools for Vids</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-navigating-green-screen-integration-in-post-production/"><u>2024 Approved Navigating Green Screen Integration in Post-Production</u></a></li>
+<li><a href="https://win11.techidaily.com/curing-frozen-windows-desktop-context-options/"><u>Curing Frozen Windows Desktop Context Options</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-crafting-perfect-ad-videos-on-youtube-without-expense/"><u>In 2024, Crafting Perfect Ad Videos on YouTube Without Expense</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-no-cash-needed-for-youtube-audio-check-out-this-list-of-23-crackers/"><u>In 2024, No Cash Needed for YouTube Audio? Check Out This List of 23 Crackers</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-15-apps-to-hack-wifi-password-on-xiaomi-redmi-12-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Xiaomi Redmi 12</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/transform-your-igtv-backgrounds-with-style-for-2024/"><u>Transform Your IGTV Backgrounds with Style for 2024</u></a></li>
+<li><a href="https://discover-help.techidaily.com/ultimate-troubleshooting-tips-for-overcoming-the-perplexing-0xc00001error-in-windows/"><u>Ultimate Troubleshooting Tips for Overcoming the Perplexing 0xC00001_Error in Windows</u></a></li>
+</ul></div>
 

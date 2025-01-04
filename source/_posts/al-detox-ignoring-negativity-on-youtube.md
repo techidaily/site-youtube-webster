@@ -1,7 +1,7 @@
 ---
 title: "\"Digital Detox  Ignoring Negativity on YouTube\""
-date: 2024-08-08T07:33:31.227Z
-updated: 2024-08-09T07:33:31.227Z
+date: 2024-12-30T08:25:02.307Z
+updated: 2025-01-03T22:13:23.080Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/f4454436a06ba033a7b99f5b7a9f44fe470868599
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/f4454436a06ba033a7b99f5b7a9f44fe470868599
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,10 +56,11 @@ thumbnail: https://thmb.techidaily.com/f4454436a06ba033a7b99f5b7a9f44fe470868599
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -69,14 +68,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -85,4 +81,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/oosting-youtube-popularity-two-simple-strategies/"><u>[New] Boosting YouTube Popularity Two Simple Strategies</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-captivating-channels-spotlight-on-the-most-popular-female-creators-for-2024/"><u>[New] Captivating Channels Spotlight on the Most Popular Female Creators for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-elevating-your-contents-reach-without-breaching-laws/"><u>[New] In 2024, Elevating Your Content's Reach Without Breaching Laws</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-fresh-alternative-films-to-dive-into-7-favorites/"><u>[Updated] In 2024, Fresh Alternative Films to Dive Into, #7 Favorites</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-the-market-with-them-best-video-for-stocks-for-2024/"><u>[Updated] In the Market with Them Best Video for Stocks for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-precision-in-performance-utilizing-social-blade-for-youtube-data/"><u>2024 Approved Precision in Performance Utilizing Social Blade for YouTube Data</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-realme-gt-neo-5-se-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Realme GT Neo 5 SE to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Oppo A78 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/is-it-time-to-upgrade-an-in-depth-review-comparing-googles-new-pixel-watch-with-apples-series-9-techradar/"><u>Is It Time to Upgrade? An In-Depth Review Comparing Google's New Pixel Watch with Apple's Series 9 | TechRadar</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/online-privacy-prevent-openai-scrape-attempts/"><u>Online Privacy: Prevent OpenAI Scrape Attempts</u></a></li>
+<li><a href="https://win-answers.techidaily.com/pcgopro/"><u>PC上で分離したGoPro映像ファイルを統合する方法</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/le-sounds-standout-background-scores-for-yt-shorts-for-2024/"><u>Sparkle Sounds Standout Background Scores For YT Shorts for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/tecnicas-de-sobreposicao-de-videos-para-apresentacoes-e-plataformas-como-o-youtube-um-tutorial-detalhado/"><u>Técnicas De Sobreposição De Vídeos Para Apresentações E Plataformas Como O YouTube - Um Tutorial Detalhado</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/windows-11-search-not-working-try-these-fixes/"><u>Windows 11 Search Not Working? Try These Fixes</u></a></li>
+</ul></div>
 

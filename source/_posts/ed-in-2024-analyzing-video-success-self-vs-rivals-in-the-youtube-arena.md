@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Analyzing Video Success  Self Vs. Rivals in the YouTube Arena\""
-date: 2024-12-23T19:25:06.386Z
-updated: 2024-12-25T23:01:45.925Z
+date: 2025-01-02T01:15:43.041Z
+updated: 2025-01-04T06:31:48.173Z
 tags:
   - ai video
   - ai youtube
@@ -31,10 +31,6 @@ thumbnail: https://thmb.techidaily.com/18d1ae3b93316df7253b6d9ca3430e2e7b9da85a6
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to analyze your own YouTube channel/video?
 
  It is important to have reliable YouTube analytics tools for your brand, as videos on YouTube are searchable through Google. They contribute to generate organic traffic for you using both Google and YouTube as a medium. YouTube has a default dedicated analytics mechanism to measure how the video fares in YouTube to gain the most out of it.
@@ -56,7 +52,7 @@ thumbnail: https://thmb.techidaily.com/18d1ae3b93316df7253b6d9ca3430e2e7b9da85a6
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playback-location.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 3\.  Demographics
@@ -72,7 +68,7 @@ thumbnail: https://thmb.techidaily.com/18d1ae3b93316df7253b6d9ca3430e2e7b9da85a6
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-traffic-source.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 5\.  Audience Retention
@@ -80,10 +76,6 @@ thumbnail: https://thmb.techidaily.com/18d1ae3b93316df7253b6d9ca3430e2e7b9da85a6
  This data explains how far your video has engaged your audience. Along with views, the duration that a viewer is on your video weighs too. From the audience retention page, you can find out the specific time that a viewer has exited your video and see what made them do so. There are 2 types of audience retention features – absolute audience retention and relative audience retention.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-audience-retention.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 6\.  Devices
 
@@ -104,7 +96,7 @@ thumbnail: https://thmb.techidaily.com/18d1ae3b93316df7253b6d9ca3430e2e7b9da85a6
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-subscribers.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The subscription stream enables your audience to get suggestions for new videos from your channel and offer better exposure to the service and products you offer.
@@ -117,11 +109,19 @@ thumbnail: https://thmb.techidaily.com/18d1ae3b93316df7253b6d9ca3430e2e7b9da85a6
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-annotations.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 10\.  Comments
 
  Audience engagement on any YouTube video can easily be gauged by using the vital aspect known as comments. Either it touched a chord in their heart, inspired or motivated them, or simply made them smile, the comments will say it all. Sometimes the audience simply taps 'Like' in place of commenting at their convenient.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-comments.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 11\.  Cards
 
@@ -135,15 +135,15 @@ thumbnail: https://thmb.techidaily.com/18d1ae3b93316df7253b6d9ca3430e2e7b9da85a6
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-sharing.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 13\.  Videos in playlists
 
  Favorites has been renamed to 'Videos in playlists'. Your reach broadens as people keep marking your videos as favorites on their playlist. This is visible to the public on the YouTube channel itself.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playlists.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to analyze your competitors
 
@@ -192,16 +192,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ssential-tips-for-creating-compelling-free-ads-on-youtube/"><u>[New] Essential Tips for Creating Compelling Free Ads on YouTube</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/rofile-pictures-download-for-free/"><u>[New] Profile Pictures - Download for FREE</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-raise-the-bar-pivotal-youtube-seo-enhancers/"><u>[New] Raise the Bar Pivotal YouTube SEO Enhancers</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-the-perfect-pixel-a-guide-to-captivating-pc-gaming-moments/"><u>[New] The Perfect Pixel A Guide to Captivating PC Gaming Moments</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-write-striking-introductions-insights-and-demonstrations/"><u>[New] Write Striking Introductions Insights & Demonstrations</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-joshis-playbook-the-path-to-earnings-on-youtube/"><u>[Updated] 2024 Approved Joshi's Playbook The Path to Earnings on Youtube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-cost-effective-audio-equipment-for-newcomers/"><u>[Updated] Cost-Effective Audio Equipment for Newcomers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-streamline-your-youtube-channel-url-with-these-tips/"><u>[Updated] In 2024, Streamline Your YouTube Channel URL with These Tips</u></a></li>
-<li><a href="https://win-blog.techidaily.com/mastering-apex-legends-eliminating-the-error-code-leaf-in-the-new-update/"><u>Mastering Apex Legends: Eliminating the Error Code 'Leaf' In the New Update</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/quick-fix-turn-off-the-mobile-interface-win-11/"><u>Quick Fix: Turn Off the Mobile Interface (Win 11)</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Nokia XR21? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-perfect-playback-overcoming-mutes-on-linkedin-video-posts/"><u>[New] 2024 Approved Perfect Playback Overcoming Mutes on LinkedIn Video Posts</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-acclaimed-selections-discover-the-best-10-vimeo-file-harvesters-for-2024/"><u>[New] Acclaimed Selections Discover the Best 10 Vimeo File Harvesters for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-time-travel-for-video-views-youtube-upside-down-guide/"><u>[New] In 2024, Time Travel for Video Views YouTube Upside-Down Guide</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-top-incredible-browser-game-hacks/"><u>[Updated] 2024 Approved Top Incredible Browser Game Hacks</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-comprehensive-analysis-of-video-editing-powerdirector-pro-suite-review-for-2024/"><u>[Updated] Comprehensive Analysis of Video Editing PowerDirector Pro Suite Review for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-crafting-thumbnails-on-the-go-for-aspiring-mobile-film-makers/"><u>[Updated] In 2024, Crafting Thumbnails on the Go For Aspiring Mobile Film Makers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-precision-problem-solving-for-youtube-short-success-for-2024/"><u>[Updated] Precision Problem-Solving for YouTube Short Success for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-whats-youtube-creative-commons-and-how-to-use-it-to-make-video/"><u>2024 Approved What's YouTube Creative Commons and How to Use It to Make Video</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/a-guide-to-sustaining-longer-gopro-battery-life/"><u>A Guide to Sustaining Longer GoPro Battery Life</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-poco-m6-5g-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Poco M6 5G is off? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/al-audience-accolades-for-content-makers/"><u>Digital Audience Accolades for Content Makers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-diy-guide-zero-cost-youtube-intros-and-template-usage/"><u>In 2024, DIY Guide Zero Cost YouTube Intros & Template Usage</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-pioneering-proficiency-the-complete-guide-to-music-and-media-fusion-on-youtube/"><u>In 2024, Pioneering Proficiency The Complete Guide to Music & Media Fusion on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-the-ultimate-platform-question-whos-the-best-vimeo-or-youtubeplusdailymotion/"><u>In 2024, The Ultimate Platform Question Who's the Best - Vimeo or YouTube+Dailymotion?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/perfect-poster-design-removing-borders-from-canva-images/"><u>Perfect Poster Design Removing Borders From Canva Images</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-unleash-the-power-of-mp4-to-mp3-conversion-on-your-mobile/"><u>Updated In 2024, Unleash the Power of MP4 to MP3 Conversion on Your Mobile</u></a></li>
 </ul></div>
 

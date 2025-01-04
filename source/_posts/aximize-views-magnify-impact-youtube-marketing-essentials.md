@@ -1,7 +1,7 @@
 ---
 title: "[New] Maximize Views, Magnify Impact (YouTube Marketing Essentials)"
-date: 2024-08-08T07:33:48.553Z
-updated: 2024-08-09T07:33:48.553Z
+date: 2024-12-28T21:46:14.218Z
+updated: 2025-01-03T18:17:44.628Z
 tags:
   - ai video
   - ai youtube
@@ -30,9 +30,6 @@ We all want our videos to get a lot of views, and in turn, lead to more subscrib
 
 In this article, we will give you[a checklist](https://drive.google.com/file/d/1S1HmRcFwFVA-DtbFBStNZ3jOsYDNvDhj/view?usp=sharing), which you should have with you at the very beginning of creating a YouTube video: the ideation stage. As you go through your process, check off each task. By doing so, you can ensure that you have given the video the best chance to rank high and be discovered.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **How to Optimize Your Video to Rank Higher on YouTube?**
 
 1. [Keep Your Audience's Attention](#a)
@@ -46,11 +43,11 @@ Even though your view count is going up, it doesn’t mean your audience is watc
 
 Audience Retention is an important metric to keep an eye on after every video you’ve published.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![low-audience-retention](https://images.wondershare.com/filmora/article-images/measurign-audience-retention.png.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Before you start your next project, take a look back at the Audience Retention of your previous videos.  
 
@@ -66,23 +63,15 @@ If you want to see how your Audience Retention is performing, the Average Percen
 
 If you get above **60%** Average Percentage Viewed, you should feel very proud. In our modern world with our short attention span, that is considered good retention.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![audience-retention-one](https://images.wondershare.com/filmora/audience-retention-one.png)
 
 In the example above, we see that on average, a viewer will only see 44% of the video. For the video below, we see that it only has 30% of the video viewed. Overall, the first video is performing better.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ![audience-retention-two](https://images.wondershare.com/filmora/audience-retention-two.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 There is also a dip that happens at the beginning in the second example, which indicates that viewers are skipping forward and about 20% then deciding it’s not worth continuing. It’s good data to help you improve your introduction and the hook.
 
@@ -110,9 +99,6 @@ Knowing how to structure your video will allow you to be strategic as you build 
 
 Many viewers find YouTube videos via search, and if you aren’t using the appropriate keywords, then YouTube won’t be able to identify your content and display it for your viewers.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ### **Where Do Keywords Appear on YouTube?**
 
 **\- Title:** Have keywords at the beginning of the title and limit them up to approximately 60 characters so it appears in full in search.
@@ -121,9 +107,6 @@ Many viewers find YouTube videos via search, and if you aren’t using the appro
 
 **\- Descriptions:** Put important information and keywords at the beginning of the description so both searcher and the search engine understands what the video is about.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ### **Why Keywords Matter**
 
 keyword arrangement is an integral part of **YouTube optimization** because the robots behind YouTube don’t associate the value of the actual video content with what the viewer is actually seeking. You should pay attention to the relevance of keywords.
@@ -142,27 +125,22 @@ Here is how you can see what keywords were used to find your video:
 
 ![traffic-source](https://images.wondershare.com/filmora/article-images/traffic-source-youtube-search.png.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you want to find some new keywords for your upcoming video, you will need to do some research.
 
 **1\. Enter Keywords You Want to Rank for In YouTube Search:** This allows you to see what the most popular phrases are in the YouTube search engine.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![search-for-keywords](https://images.wondershare.com/filmora/search-for-keywords.png)
 
 **2\. Study the Competitors:** See which videos are ranking high for your search term. Use a tool called [VidIQ](https://vidiq.com/)to see the keywords that the top videos are performing.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![vidlq-tool](https://images.wondershare.com/filmora/vidlq-tool.jpg)
 
 **3\. Search for Related Keywords and Evaluate Relevancy:** A tool called [Ubersuggest](https://neilpatel.com/ubersuggest/)can help you find related keywords and allow you to identify the search volume, cost per click (aka CPC is used for determining the budget for paid search), and the competitiveness of the word or phrase.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![ubersuggest](https://images.wondershare.com/filmora/ubersuggest.jpg)
 
 **Search volume:** The number of searches with that particular keyword. The higher the number the more popular it is. You should aim to use keywords with a high search volume.
@@ -174,6 +152,10 @@ If you want to find some new keywords for your upcoming video, you will need to 
 **4\. Come Up With Content Related to Those Keywords:** To come up with topic ideas around a keyword, you can use a tool called [Answer the Public](https://answerthepublic.com/), which gives you all the most popular questions searched online.
 
 ![answer-the-public](https://images.wondershare.com/filmora/answer-the-public.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **3\. Engage Your Audience:**
 
@@ -202,8 +184,9 @@ Here is an example of how it would work:
 It’s all about creating a community and that is what YouTube encourages.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **4\. Upload YouTube Video in Proper Length:**
 
 YouTube puts a lot of weight on watch time, and in addition to that, it puts more weight on session watch time.
@@ -222,11 +205,12 @@ If your format allows, go for a longer video instead of a shorter one. But the m
 
 ![related-videos-for-your-audience](https://images.wondershare.com/filmora/related-videos-for-your-audience.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Playlist**: If you have multiple videos that fit a specific topic, add them to a playlist so the viewer can enjoy them all in one viewing.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![add-videos-of-the-same-topic-to-a-playlist](https://images.wondershare.com/filmora/add-videos-of-the-same-topic-to-a-playlist.jpg)
 
 #### **Key Takeaways:**
@@ -263,7 +247,15 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -271,14 +263,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -287,4 +276,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-gamings-new-leaders-1-ranked-4k-laptops/"><u>[New] Gaming's New Leaders #1 Ranked 4K Laptops</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-indulge-with-top-youtube-movies-guides/"><u>[New] In 2024, Indulge with Top YouTube Movies Guides</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-streamline-sound-capture-using-audacity-efficiently-on-a-mac-for-2024/"><u>[New] Streamline Sound Capture Using Audacity Efficiently on a Mac for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-video-constructor-suite/"><u>[Updated] 2024 Approved Video Constructor Suite</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-decoding-youtube-cpm-for-content-creators-success-for-2024/"><u>[Updated] Decoding YouTube CPM for Content Creators' Success for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-harnessing-power-at-no-cost-guide-to-hosting-and-participating-in-gmeet-for-2024/"><u>[Updated] Harnessing Power at No Cost Guide to Hosting & Participating in GMeet for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-brightening-filmmaking-ranking-the-17-best-lights/"><u>[Updated] In 2024, Brightening Filmmaking Ranking the 17 Best Lights</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-smooth-shadows-and-dynamics-motion-blur-techniques-explained/"><u>[Updated] Smooth Shadows and Dynamics Motion Blur Techniques Explained</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-the-complete-breakdown-why-your-video-needs-proper-tagging/"><u>2024 Approved The Complete Breakdown Why Your Video Needs Proper Tagging</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-transform-your-youtube-presence-with-these-effective-tactics/"><u>2024 Approved Transform Your YouTube Presence with These Effective Tactics</u></a></li>
+<li><a href="https://media-tips.techidaily.com/how-to-stream-movies-and-play-videos-on-your-kindle-fire-tablet-using-a-mac/"><u>How to Stream Movies and Play Videos on Your Kindle Fire Tablet Using a Mac</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-infinix-note-30-pro-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Infinix Note 30 Pro</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On OnePlus Ace 2 | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/droid-playback-silent-youtube-autoplay-tips-for-2024/"><u>IOS/Android Playback Silent YouTube Autoplay Tips for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>Methods to Change GPS Location On Apple iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://win-net.techidaily.com/uplifting-and-complimentary-wallpapers-download-the-yl-computing-collection-by-yl-software/"><u>Uplifting & Complimentary Wallpapers: Download the YL Computing Collection by YL Software</u></a></li>
+</ul></div>
 

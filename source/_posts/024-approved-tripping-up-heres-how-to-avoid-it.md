@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Tripping Up? Here's How to Avoid It\""
-date: 2024-07-29T04:47:16.930Z
-updated: 2024-07-30T04:47:16.930Z
+date: 2025-01-01T01:20:15.605Z
+updated: 2025-01-03T19:47:06.789Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
 
 # DIY Tripods| How to Stabilize Your Camera without Buying a Tripod
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -31,16 +28,21 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
 
 When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here are 3 of our favorite DIY tripods.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
 
@@ -58,10 +60,11 @@ Here it is with binder clips:
 
 And here it is with hair clips:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
@@ -84,19 +87,17 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
 
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -118,10 +119,11 @@ _**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 
 
 _Note: make sure the bolt is a fit for your camera before you get too far into this process._
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -129,14 +131,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,4 +144,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-youtube-monetization-mastery-secrets-success/"><u>[New] 2024 Approved YouTube Monetization Mastery Secrets Success</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-from-amateur-to-expert-a-compreenhensive-tutorial-on-zoom-recording-quality-for-2024/"><u>[New] From Amateur to Expert A Compreenhensive Tutorial on Zoom Recording Quality for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-strategic-play-tips-by-top-game-masters/"><u>[New] In 2024, Strategic Play Tips by Top Game Masters</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-best-9-free-youtube-logo-makers/"><u>[Updated] 2024 Approved Best 9 Free YouTube Logo Makers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-charting-your-path-to-higher-youtube-spotlight/"><u>[Updated] In 2024, Charting Your Path to Higher YouTube Spotlight</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-cost-effective-cloudscape-ideal-mass-archive/"><u>[Updated] In 2024, Cost-Effective Cloudscape Ideal Mass Archive</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-oppo-reno-11-5g-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Oppo Reno 11 5G</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-the-essential-guide-to-populating-powerpoint-decks-with-youtube-videos/"><u>2024 Approved The Essential Guide to Populating PowerPoint Decks With YouTube Videos</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/7-smart-alternatives-to-chatgpt-apps-for-smartphones/"><u>7 Smart Alternatives to ChatGPT Apps for Smartphones</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/deep-into-youtube-shorts-essentials-for-2024/"><u>Dive Deep Into YouTube Shorts Essentials for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/free-online-conversion-of-mef-media-files-movavi/"><u>Free Online Conversion of MEF Media Files - Movavi</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-a-damaged-video-file-of-realme-gt-5-240w-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair a Damaged video file of Realme GT 5 (240W)?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-synthesizing-creativity-a-brainstormers-toolkit-for-names/"><u>In 2024, Synthesizing Creativity A Brainstormer’s Toolkit for Names</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ious-name-makers-elevate-your-channels-for-2024/"><u>Ingenious Name Makers Elevate Your Channels for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rating-imovie-productions-into-youtube-for-2024/"><u>Integrating iMovie Productions Into YouTube for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-fix-for-missing-libxml2dll-step-by-step-instructions/"><u>The Ultimate Fix for Missing Libxml2.dll - Step-by-Step Instructions</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/ultimate-guide-to-the-16-greatest-mp4-converter-applications-for-mp3-playback/"><u>Ultimate Guide to the 16 Greatest MP4 Converter Applications for MP3 Playback</u></a></li>
+<li><a href="https://win-forum.techidaily.com/understanding-the-top-four-social-networking-giants-facebook-twitter-instagram-and-youtube/"><u>Understanding the Top Four Social Networking Giants: Facebook, Twitter, Instagram and Youtube</u></a></li>
+</ul></div>
 

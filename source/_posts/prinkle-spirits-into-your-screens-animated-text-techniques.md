@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Sprinkle Spirits Into Your Screens  Animated Text Techniques\""
-date: 2024-12-22T16:58:37.176Z
-updated: 2024-12-25T23:48:01.283Z
+date: 2025-01-02T03:10:02.971Z
+updated: 2025-01-03T16:07:58.631Z
 tags:
   - ai video
   - ai youtube
@@ -32,7 +32,7 @@ Earlier, you learned how to have a **[bounce text effect in Adobe After Effects]
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
@@ -62,7 +62,7 @@ Go to **Effects** from the standard toolbar, expand the **Filters** category fro
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
@@ -84,11 +84,11 @@ As explained before, Wondeshare Filmora makes the entire process of creating and
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
@@ -144,7 +144,7 @@ Generating **bounce text** effect is much simpler when you use Wondershare Filmo
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -168,22 +168,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/reative-video-ends-top-6-budget-friendly-options-in-2024/"><u>[New] Creative Video Ends Top 6 Budget-Friendly Options, In 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-improve-engagement-with-skillful-use-of-jump-cuts/"><u>[New] In 2024, Improve Engagement with Skillful Use of Jump Cuts</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-capturing-live-sounds-directly-from-youtube-videos/"><u>[Updated] 2024 Approved Capturing Live Sounds Directly From YouTube Videos</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-premium-cut-tools-the-top-8-linux-apps/"><u>[Updated] 2024 Approved Premium Cut Tools The Top 8 Linux Apps</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-easy-setup-making-a-direct-path-for-youtube-subscribers-for-2024/"><u>[Updated] Easy Setup Making a Direct Path for YouTube Subscribers for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-step-by-step-guide-embedding-vimeo-videos-into-presentations-for-2024/"><u>[Updated] Step-by-Step Guide Embedding Vimeo Videos Into Presentations for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-5-second-stories-explained-well/"><u>2024 Approved 5-Second Stories Explained Well!</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-the-definitive-guide-to-choosing-the-best-webcam-for-your-youtube-channel/"><u>2024 Approved The Definitive Guide to Choosing the Best Webcam for Your YouTube Channel</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-top-80s-filters-and-effects-for-professional-videos/"><u>2024 Approved Top 80S Filters & Effects for Professional Videos</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/in-2024-groupview-downloader-for-fb-streams/"><u>In 2024, GroupView Downloader for FB Streams</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-ispoofer-on-samsung-galaxy-a15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Samsung Galaxy A15 5G? | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-mastering-sony-vegas-youtube-video-editing-basics/"><u>In 2024, Mastering Sony Vegas YouTube Video Editing Basics</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-prime-choices-selecting-best-6-fb-lite-vids/"><u>In 2024, Prime Choices Selecting Best 6 FB Lite Vids</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/pushing-boundaries-hps-z32x-4k-revelation/"><u>Pushing Boundaries HP’s Z32X 4K Revelation</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/step-by-step-guide-implementing-strikethrough-text-feature-in-microsoft-excel/"><u>Step-by-Step Guide: Implementing Strikethrough Text Feature in Microsoft Excel</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-xiaomi-redmi-k70-pro-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Xiaomi Redmi K70 Pro Location | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/top-ram-mods-ideal-memory-boosters-for-productivity-and-gaming-latest-reviews-on-zdnet/"><u>Top Ram Mods : Ideal Memory Boosters for Productivity & Gaming - Latest Reviews on ZDNET</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-achieving-professional-audio-in-home-recording-studios-for-2024/"><u>[New] Achieving Professional Audio in Home Recording Studios for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-chatcam-downloader-high-quality/"><u>[New] ChatCam Downloader, High Quality</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-essential-youtube-tagging-strategies-for-optimal-visibility/"><u>[New] In 2024, Essential YouTube Tagging Strategies for Optimal Visibility</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ight-up-your-screen-the-9-most-innovative-camgear-for-video-creators/"><u>[New] Light Up Your Screen The 9 Most Innovative CamGear for Video Creators</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ptimize-your-youtube-content-for-maximum-viewership-and-engagement-for-2024/"><u>[New] Optimize Your YouTube Content for Maximum Viewership and Engagement for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-premium-picks-for-the-ultimate-gopro-experience/"><u>[Updated] 2024 Approved Premium Picks for the Ultimate Gopro Experience</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-essentials-of-creating-and-curating-instagram-highlights/"><u>[Updated] 2024 Approved The Essentials of Creating and Curating Instagram Highlights</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-how-to-record-league-of-legends/"><u>[Updated] In 2024, How to Record League of Legends</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-offline-replay-select-playlist-extractors-reviewed/"><u>[Updated] Offline Replay Select Playlist Extractors Reviewed</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-step-by-step-process-of-adding-subtitles-to-your-youtube-content/"><u>[Updated] Step by Step Process of Adding Subtitles to Your YouTube Content</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-trustworthy-are-chatgpt-and-bard-when-it-comes-to-giving-financial-guidance/"><u>How Trustworthy Are ChatGPT and Bard When It Comes to Giving Financial Guidance?</u></a></li>
+<li><a href="https://driver-download.techidaily.com/latest-compatible-drivers-for-epson-wf-3620-install-and-enjoy-seamless-printing-across-win-1087/"><u>Latest Compatible Drivers for Epson WF-3620 - Install & Enjoy Seamless Printing Across Win 10/8/7</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/luxurious-asmr-sound-priced-right-top-picks-listed-here/"><u>Luxurious ASMR Sound, Priced Right - Top Picks Listed Here</u></a></li>
+<li><a href="https://win-dash.techidaily.com/master-video-editing-techniques-in-windows-11-the-ultimate-guide-of-2024/"><u>Master Video Editing Techniques in Windows 11: The Ultimate Guide of 2024</u></a></li>
 </ul></div>
 

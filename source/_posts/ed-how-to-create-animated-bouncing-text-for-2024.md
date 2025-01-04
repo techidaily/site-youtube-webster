@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Create Animated Bouncing Text for 2024"
-date: 2024-08-08T07:31:54.494Z
-updated: 2024-08-09T07:31:54.494Z
+date: 2025-01-02T17:36:13.609Z
+updated: 2025-01-03T19:43:28.701Z
 tags:
   - ai video
   - ai youtube
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/1ed4f091728645649c840ae907d2be87aba494a53
 
 Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
 When talking about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), the application is populated with several presets for texts and titles, animations, effects, filters, and much more.
@@ -44,35 +48,35 @@ Click **Titles** from the standard toolbar at the top, and click and drag your p
 
 In the timeline, double-click the title you just added, use the upper-left section to edit the text, go to the **Animation** tab from the left pane, scroll down the list, and double-click the **Up Down 1** or **Up Down 2** preset to apply the bounce effect to the credits. Click **OK** to save the changes and to get back to the main window.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
 
 **Step 3: Add Shake Filters**
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4: Export the Final Output**
 
 Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
 
@@ -80,9 +84,6 @@ Double click the text track, go to the **Chroma Key** effect, select the **Color
 
 As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## Method 2: Generate Animated Bouncing Texts Online
@@ -121,10 +122,11 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 
 **Step 2: Customize the Text and Choose Animation Effect**
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
 
@@ -146,14 +148,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -162,4 +161,21 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-complete-review-and-tips-for-enhancing-images-with-facetune-2024/"><u>[New] Complete Review and Tips for Enhancing Images with Facetune 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-ultimate-plan-for-streamlining-your-video-queue-on-youtube/"><u>[New] The Ultimate Plan for Streamlining Your Video Queue on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/op-8-strategies-for-striking-thumbnails-in-youtube-circles/"><u>[New] Top 8 Strategies for Striking Thumbnails in YouTube Circles</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-converting-your-clips-upload-to-youtube-via-premiere/"><u>[Updated] 2024 Approved Converting Your Clips Upload to YouTube Via Premiere</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-diy-delights-in-motion-personalized-animation-artistry/"><u>[Updated] 2024 Approved DIY Delights in Motion Personalized Animation Artistry</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-balance-your-shots-best-camera-stabilizers-reviewed/"><u>[Updated] In 2024, Balance Your Shots Best Camera Stabilizers Reviewed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-step-up-video-standards-choose-among-top-9-webcam-filters-for-2024/"><u>[Updated] Step Up Video Standards Choose Among Top 9 Webcam Filters for 2024</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/1726218533831-movavi/"><u>電影後期製作精要：用 Movavi 軟體，易如反掌的剪接技術教程與免費下載</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/convert-your-files-easy-guide-from-fsthumb-to-mp4-format/"><u>Convert Your Files: Easy Guide From FSTHUMB to MP4 Format</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/gratuit-verbale-conversie-van-3gpp-naar-mov-formaat-ondersteuning-en-instructies/"><u>Gratuit Verbale Conversie Van 3GPP Naar MOV-Formaat: Ondersteuning en Instructies</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/immerse-in-literature-without-spending-check-out-17-sites-with-free-book-downloads/"><u>Immerse in Literature Without Spending: Check Out 17 Sites with Free Book Downloads</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-samsung-galaxy-f15-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Samsung Galaxy F15 5G without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/izing-video-reach-through-title-and-tag-synergy/"><u>Maximizing Video Reach Through Title & Tag Synergy</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/egies-for-monetizing-your-content-without-infringement-for-2024/"><u>Strategies for Monetizing Your Content Without Infringement for 2024</u></a></li>
+</ul></div>
 

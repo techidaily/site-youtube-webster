@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Step Into the Spotlight  Learning YouTube Vlogger Etiquette\""
-date: 2024-08-08T07:36:17.396Z
-updated: 2024-08-09T07:36:17.396Z
+date: 2024-12-29T07:16:20.854Z
+updated: 2025-01-04T06:53:24.362Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/5d3b16b34799fd4027e4ade17484dcb7de0969abd
 
 # 8 Tips on How to Vlog Confidently Like Popular YouTubers
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -33,6 +30,10 @@ For most people, vlogging is not something that comes naturally. Like any skill,
 
 When we watch the most popular YouTubers, the traits that make them successful are often invisible, because we are so consumed by their vlog. In this article, I’ll highlight 8 tips from the most accomplished vloggers on the Internet, so that you can vlog confidently and make the best YouTube videos.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **1\. Be Authentic**
 
 People opt to watch vlogs because they want to see something real.
@@ -44,22 +45,9 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **2\. Tell A Story**
 
 A vlog is not an assortment of footage haphazardly put together. A successful vlog must have a story: a conflict told with a beginning, middle, and end.
@@ -71,8 +59,9 @@ Once all the pieces of the story are captured — including your storytelling, b
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -81,9 +70,6 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -104,9 +90,6 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -128,8 +111,9 @@ Consider your audience: they are coming home from school or work, where there we
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **8\. Stay Organized**
 
 The same way you should prepare before filming, it’s also important to be organized comes the editing phase. Editing is arguably the most time-consuming part of the vlogging process, so have a system for categorizing and finding your footages.
@@ -156,20 +140,21 @@ If you want to find a video editing solution that empowers your imagination and 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -178,4 +163,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-amplifying-your-youtube-presence-through-consistent-content-release/"><u>[New] In 2024, Amplifying Your YouTube Presence Through Consistent Content Release</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-extensive-look-at-djis-inspire-1-drone/"><u>[New] In 2024, Extensive Look at DJI's Inspire 1 Drone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-uncovering-the-top-8-genuine-video-advancement-solutions/"><u>[New] In 2024, Uncovering the Top 8 Genuine Video Advancement Solutions</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/upercharge-your-channel-with-smart-youtube-collaborations/"><u>[New] Supercharge Your Channel with Smart YouTube Collaborations</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-diy-digital-footprint-creating-youtube-thumbnails-from-mobile-devices-for-2024/"><u>[Updated] DIY Digital Footprint Creating YouTube Thumbnails From Mobile Devices for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-amplifying-tv-screens-through-fb-live-integration/"><u>[Updated] In 2024, Amplifying TV Screens Through FB Live Integration</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-ion-air-pro-3-camera-analysis-gearing-up-for-great-shots/"><u>[Updated] ION Air Pro 3 Camera Analysis - Gearing Up for Great Shots</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-the-intersection-of-design-and-efficiency-in-professional-environments/"><u>[Updated] The Intersection of Design & Efficiency in Professional Environments</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-viewer-count-trophies-and-channel-prominence-honors/"><u>[Updated] Viewer Count Trophies & Channel Prominence Honors</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-yt-thumbnails-downloading-via-browser-app-and-command-line-for-2024/"><u>[Updated] YT Thumbnails Downloading via Browser, App & Command Line for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-peekpoint-analysis-a-guide/"><u>2024 Approved Peekpoint Analysis A Guide</u></a></li>
+<li><a href="https://article-files.techidaily.com/assessing-shooters-choices-hero-5-black-or-km-170/"><u>Assessing Shooters' Choices Hero 5 Black or KM-170</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-history-uncovered-your-guide-to-online-video-retrieval-for-2024/"><u>Deleted History Uncovered Your Guide to Online Video Retrieval for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/from-airwaves-to-e-readers-how-to-save-web-tv-shows/"><u>From Airwaves To E-Readers How to Save Web TV Shows</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Nokia G42 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-fast-favorites-todays-highest-youtube-tracks/"><u>In 2024, Fast Favorites Today's Highest Youtube Tracks</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-magix-image-suite-assessment/"><u>In 2024, MAGIX Image Suite Assessment</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-the-key-to-professional-filming-without-spending-free-lessons-from-the-best-in-green-screen-artistry/"><u>In 2024, The Key to Professional Filming Without Spending Free Lessons From the Best in Green Screen Artistry</u></a></li>
+<li><a href="https://techtrends.techidaily.com/inside-look-at-android-16-projected-launch-details-cost-free-accessibility-advanced-features-and-release-date-predictions/"><u>Inside Look at Android 16: Projected Launch Details, Cost-Free Accessibility, Advanced Features, and Release Date Predictions</u></a></li>
+</ul></div>
 

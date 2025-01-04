@@ -1,7 +1,7 @@
 ---
 title: "Speedy Fortnite Cover Art Creation"
-date: 2024-08-08T07:38:17.517Z
-updated: 2024-08-09T07:38:17.517Z
+date: 2024-12-31T05:44:07.239Z
+updated: 2025-01-03T22:49:16.034Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/e660cb7c486fc8d0b8cac52fbec26fad8dcc27b5b
 
 # How to Make Fortnite Thumbnail for Free and Easy in 2024
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
@@ -35,10 +32,6 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 01:** To start making a Fortnite thumbnail, it is important to have a screenshot of your gameplay. We can make a perfect screenshot using Fortnite Replay Mode. If you have recently played a Fortnite match, you can access its replay under the Career tab. Under the Career tab select Replays.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step1](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step1.jpg)
 
 **Step 02:** If you are using a console, the game will only store 10 recent gameplays, but if you are using a PC, it will store 100 recent gameplays in this section. From all these gameplays, select the one that you want to use for the Thumbnail. Once you choose gameplay, you can control everything in it. The angle, speed, and camera mode.
@@ -47,10 +40,6 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 03:** For creating a perfect thumbnail, select "Drone Free Camera" mode from the camera mode located on the bottom right corner of the screen. It will allow us to change the angle the way we want. Choose an angle of your choice and take the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
 
 **Step 04:** Open Filmora X, make sure to select the 16:9 screen ratio. Import the screenshot using the import button.
@@ -75,20 +64,10 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 **Step 09:** To add a background, go to the media and navigate to "Sample Color." Drag a color of your choice and drop it below the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
 
 **Step 10:** To add titles in the Thumbnail, go to the Titles tab. Here you can find several categories of titles. Find your preferred title and drop it above all the layers. You can choose titles, lower thirds, and other texts depending upon your need and requirement.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step10](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step10.jpg)
 
 **Step 11:** We can make this Fortnite Thumbnail look more attractive by adding elements such as stickers and icons. Filmora contains a wide range of stickers. To access them, navigate to the Elements tab. Here you can find so many categories of elements. Choose any elements according to your need and drop them in the timeline above all other layers. If you cannot find a suitable sticker, you can download one from the internet and use it by importing it into Filmora.
@@ -97,16 +76,10 @@ No advertising on the website.
 
 **Step 12:** Once you are satisfied with the final results, you can take the screenshot of the Thumbnail using the Snapshot icon located below the preview panel. It will create a screenshot in the media panel of Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step12](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step12.jpg)
 
 **Step 13:** To access the directory where this screenshot is saved, right-click on the screenshot and click on "Reveal in Explorer." It will open the folder that contains all the screenshots you take through Filmora. Your Fortnite Thumbnail is ready to be used on your Youtube videos.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step13](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step13.jpg)
 
 #### Conclusion
@@ -121,14 +94,11 @@ Ollie Mattison is a writer and a lover of all things video.
 
 Follow @Ollie Mattison
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -137,4 +107,27 @@ Follow @Ollie Mattison
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-pixel-paradise-100plus-game-havens-explored/"><u>[New] In 2024, Pixel Paradise 100+ Game Havens Explored</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-navigating-the-landscape-of-ps3-capture-software-for-2024/"><u>[New] Navigating the Landscape of PS3 Capture Software for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-essential-tech-for-new-channel-launches/"><u>[Updated] 2024 Approved Essential Tech for New Channel Launches</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-dailymotion-vs-youtube-monetization-which-is-more-profitable/"><u>[Updated] Dailymotion vs YouTube Monetization Which Is More Profitable?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-evaluating-mr-beasts-financial-heft/"><u>[Updated] Evaluating Mr. Beast's Financial Heft</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-art-of-capturing-stories-gopro-hero5-black-in-focus/"><u>[Updated] In 2024, The Art of Capturing Stories GoPro Hero5 Black in Focus</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unveiling-the-secrets-of-professional-free-youtube-transcription/"><u>[Updated] Unveiling the Secrets of Professional Free YouTube Transcription</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/beyond-vlc-a-comprehensive-look-at-streaming-software/"><u>Beyond VLC A Comprehensive Look at Streaming Software</u></a></li>
+<li><a href="https://techtrends.techidaily.com/boost-your-ig-presence-with-our-ultimate-guide-to-going-viral-top-10-methods-inside/"><u>Boost Your IG Presence with Our Ultimate Guide to Going Viral (Top 10 Methods Inside)</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-latest-samsung-device-drivers-direct-download-links/"><u>Get the Latest Samsung Device Drivers - Direct Download Links</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Oppo Find N3 Flip? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-vivo-y100i-power-5g-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Vivo Y100i Power 5G to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ning-operational-offshoots/"><u>Outlining Operational Offshoots</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/by-step-making-youtube-video-thumbnails-mobile/"><u>Step-by-Step Making YouTube Video Thumbnails (Mobile)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/omplete-checklist-for-youtube-production-gear-for-2024/"><u>The Complete Checklist for YouTube Production Gear for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unveiling-the-finest-selection-of-economical-free-lut-tools-for-2024/"><u>Unveiling the Finest Selection of Economical, Free LUT Tools for 2024</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Step-by-Step  Integrating Comments in YouTube Videos\""
-date: 2024-12-22T23:08:24.394Z
-updated: 2024-12-25T18:37:31.782Z
+date: 2025-01-02T09:07:10.293Z
+updated: 2025-01-03T22:00:49.188Z
 tags:
   - ai video
   - ai youtube
@@ -50,10 +50,6 @@ The main difference between annotation and cards is their outlook. Cards are mor
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -62,14 +58,14 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
@@ -79,10 +75,14 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Apply changes and exit
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to add YouTube annotations
 
@@ -95,13 +95,17 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -141,10 +145,6 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -166,22 +166,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-bite-sized-delights-10-viral-eats-from-tiktok/"><u>[New] 2024 Approved Bite-Sized Delights 10 Viral Eats From TikTok</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/mplify-your-imovie-with-youtube-audio-streams-for-2024/"><u>[New] Amplify Your iMovie with YouTube Audio Streams for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-crafting-a-stellar-visual-identity-the-ultimate-guide-to-yt-design/"><u>[New] In 2024, Crafting a Stellar Visual Identity The Ultimate Guide to YT Design</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-the-ultimate-ratio-reference-for-youtube-videos-and-ads/"><u>[New] In 2024, The Ultimate Ratio Reference for YouTube Videos & Ads</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ivestream-platforms-at-play-fb-vs-yt-live-and-twitspaces-for-2024/"><u>[New] Livestream Platforms at Play FB Vs. YT Live & TWITSpaces for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-how-to-manage-youtube-video-comments-for-enhanced-privacy/"><u>[Updated] 2024 Approved How to Manage YouTube Video Comments for Enhanced Privacy</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-internets-icons-global-youtuber-subscriber-winners/"><u>[Updated] In 2024, Internet's Icons Global YouTuber Subscriber Winners</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-the-efficient-cloud-users-price-guide/"><u>[Updated] In 2024, The Efficient Cloud User's Price Guide</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-viral-vestments-the-15-most-informative-financial-videos/"><u>[Updated] Viral Vestments The 15 Most Informative Financial Videos</u></a></li>
-<li><a href="https://extra-information.techidaily.com/blending-youtube-audio-features-into-video-projects/"><u>Blending YouTube Audio Features Into Video Projects</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/crafting-immersive-experiences-with-captions-on-stories-and-reels-for-2024/"><u>Crafting Immersive Experiences with Captions on Stories & Reels for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/fine-tune-your-videos-mood-with-custom-sound-design/"><u>Fine-Tune Your Video's Mood with Custom Sound Design</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-get-the-apple-id-verification-code-from-apple-iphone-xs-max-in-the-best-ways-by-drfone-ios/"><u>How To Get the Apple ID Verification Code From Apple iPhone XS Max in the Best Ways</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-data-driven-decision-making-in-your-youtube-shorts-strategy/"><u>In 2024, Data-Driven Decision Making in Your YouTube Shorts Strategy</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/navigating-hardware-choices-with-toms-expert-analysis/"><u>Navigating Hardware Choices with Tom's Expert Analysis</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/showcase-a-dialogue-in-one-instagram-post-for-2024/"><u>Showcase a Dialogue in One Instagram Post for 2024</u></a></li>
-<li><a href="https://win-web3.techidaily.com/1728478488013-psp/"><u>メモリースティックからのPSPデータ復元ガイド</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/hoosing-a-champion-dslr-or-mirrorless-camera/"><u>[New] Choosing a Champion DSLR or Mirrorless Camera?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-deciphering-the-differences-between-youtubes-and-dailymentions/"><u>[Updated] Deciphering the Differences Between YouTubes & DailyMentions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-harmonize-your-imovie-projects-with-youtubes-melodies-for-2024/"><u>[Updated] Harmonize Your iMovie Projects With YouTube's Melodies for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-overcome-instagrams-story-upload-issues/"><u>[Updated] In 2024, Overcome Instagram's Story Upload Issues</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-laugh-lines-best-comedy-video-concepts-for-the-social-media-sphere-for-2024/"><u>[Updated] Laugh Lines Best Comedy Video Concepts for the Social Media Sphere for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-crafting-engaging-dialogues-for-your-vlog-showcase/"><u>2024 Approved Crafting Engaging Dialogues for Your Vlog Showcase</u></a></li>
+<li><a href="https://program-issues.techidaily.com/defeating-the-daunting-battlenet-not-opening-error-a-user-friendly-guide/"><u>Defeating the Daunting Battle.net Not Opening Error : A User-Friendly Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/vering-income-monetization-through-youtube-sponsored-videos-for-2024/"><u>Discovering Income Monetization Through YouTube Sponsored Videos for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/te-your-video-presentations-with-top-30-free-intra-makers-for-2024/"><u>Elevate Your Video Presentations with Top 30 Free Intra Makers for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ss-the-full-potential-of-your-youtube-content-using-wmm/"><u>Harness the Full Potential of Your YouTube Content Using WMM</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/unes-essential-background-scores-for-viral-yt-shorts-for-2024/"><u>Hot Tunes Essential Background Scores For Viral YT Shorts for 2024</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/how-to-see-someones-location-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>How to See Someones Location on Apple iPhone 15 Pro | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-ultimate-guide-to-radiowave-plays/"><u>In 2024, Ultimate Guide to Radiowave Plays</u></a></li>
+<li><a href="https://win-forum.techidaily.com/top-5-strategies-for-overcoming-recurring-windows-explorer-malfunctions/"><u>Top 5 Strategies for Overcoming Recurring Windows Explorer Malfunctions</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ultimate-guide-to-mp4-to-dvd-conversion-best-techniques-for-windows-and-mac-users-and-online-tools/"><u>Ultimate Guide to MP4 to DVD Conversion - Best Techniques for Windows & Mac Users and Online Tools</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/windowsmacpsd/"><u>WindowsとMacで回復不能なPSDファイルの修復手順【データ救済方法】</u></a></li>
 </ul></div>
 
