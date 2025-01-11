@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Step-By Written by a Language Model AI. I Can Help Rewrite the Paragraph Into an Academic Style, but Please Note that My Responses May Not Have the Same Depth as Those Written by Subject Matter Experts. Here Is a Revised Version \""
-date: 2024-07-29T04:43:54.406Z
-updated: 2024-07-30T04:43:54.406Z
+date: 2025-01-07T00:35:05.201Z
+updated: 2025-01-10T21:50:20.657Z
 tags:
   - ai video
   - ai youtube
@@ -58,8 +58,9 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Do You Delete Your Comments from YouTube?
 
 Have you accidentally posted something on a YouTuber’s channel? Are you anxious because you cannot find the comment and delete it?
@@ -73,8 +74,9 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -88,6 +90,10 @@ If it is your video where the comment to be removed is, you can go to My Channel
 
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
 
@@ -107,9 +113,6 @@ To find your History from your desktop, you need to click on the three horizonta
 2. Once you find your target comment, click on the three vertical dots that appear on its right side. You will find the Report option from the pop-up menu. Click on that.
 3. When you tap Report, another dialogue box will appear. From the list of options, choose the most appropriate option, tap on Report at the lower right corner of the pop-up, and complete the process. YouTube will do the rest.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -123,10 +126,11 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
@@ -135,15 +139,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -152,14 +154,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -168,4 +167,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-advanced-skype-audio-filtration/"><u>[New] Advanced Skype Audio Filtration</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-essential-tips-for-kinemaster-proficiency-and-excellent-competitors-for-2024/"><u>[New] Essential Tips for KineMaster Proficiency and Excellent Competitors for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-essential-skills-for-youtube-success-8-free-online-courses-for-2024/"><u>[Updated] Essential Skills for YouTube Success 8 Free Online Courses for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-precision-and-efficiency-incorporating-luts-in-after-effects/"><u>[Updated] Precision and Efficiency Incorporating LUTs in After Effects</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-brief-steps-efficiently-archiving-gotomeeting-discussions/"><u>2024 Approved Brief Steps Efficiently Archiving GoToMeeting Discussions</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-the-complete-archive-of-high-quality-online-workshops/"><u>2024 Approved The Complete Archive of High-Quality Online Workshops</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/defying-apples-desire-for-iphone-replacement-a-firsthand-trial-experience-zdnet/"><u>Defying Apple's Desire for iPhone Replacement: A Firsthand Trial Experience | ZDNet</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/tifying-income-for-t-series-on-youtube-for-2024/"><u>Demystifying Income for T-Series on YouTube for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-samsung-galaxy-a25-5g-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Samsung Galaxy A25 5G Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-exclusive-youtube-snippet-access-high-quality-free-download/"><u>In 2024, Exclusive YouTube Snippet Access - High Quality, Free Download!</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/mastering-soft-image-effects-in-iphone-photography-4-tips/"><u>Mastering Soft Image Effects in iPhone Photography (4 Tips!)</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-guide-resolve-livekernelevent-error-code-117/"><u>Troubleshooting Guide: Resolve LiveKernelEvent Error Code 117</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/bing-success-final-stages-and-top-resources/"><u>YouTubing Success Final Stages and Top Resources</u></a></li>
+</ul></div>
 

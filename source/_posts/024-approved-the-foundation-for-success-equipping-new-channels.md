@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  The Foundation for Success  Equipping New Channels\""
-date: 2024-07-29T04:45:32.000Z
-updated: 2024-07-30T04:45:32.000Z
+date: 2025-01-08T23:15:45.738Z
+updated: 2025-01-10T16:17:37.922Z
 tags:
   - ai video
   - ai youtube
@@ -39,8 +39,9 @@ The smartest way to get started is to go through a list of **necessary equipment
 * [Smartphone Camera Gear](#phone)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## YouTube Cameras
 
 **The short version:** Use whatever you already have, even if it's your phone or webcam. It's nice to have sharp, fine-tuned, 4K footage, but viewers will forgive lower visual quality if your content is good.
@@ -54,8 +55,9 @@ On one end of the spectrum, you have basic smartphone cameras and web cameras, w
 If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## YouTube Microphone and Audio
 
 **The short version:** Audio quality is extremely important. If you can buy either a new camera or an external microphone, but not both, it might be better to go for the microphone. [Click here for advice on upping your audio quality without an external microphone.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -67,8 +69,9 @@ Again, most YouTube video makers have a limited budget at their disposal, so pro
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Lights for YouTube
 
 **The short version:** You need as much light as you can get. Lighting kits can be affordable on Amazon, but you can also achieve a great look using daylight/windows and 'daylight' lightbulbs.
@@ -81,9 +84,6 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -95,11 +95,16 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Smartphone Camera Gear
 
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
@@ -113,9 +118,6 @@ Another common downside of smartphone cameras is that most of them use digital z
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -124,14 +126,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -140,4 +139,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-investors-intuition-selecting-stock-channel-wisely/"><u>[New] In 2024, Investor's Intuition Selecting Stock Channel Wisely</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-no-cost-screen-record-the-ultimate-win11-tools-1-5-listing-for-2024/"><u>[New] No-Cost Screen Record The Ultimate Win11 Tools #1-5 Listing for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-pro-thumbnails-made-simple-macos-style/"><u>2024 Approved Pro Thumbnails Made Simple MacOS Style</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/8-youtube-thumbnail-grabbers-you-should-know/"><u>Best 8 YouTube Thumbnail Grabbers You Should Know</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/boosting-excel-productivity-with-effective-chatgpt-techniques/"><u>Boosting Excel Productivity with Effective ChatGPT Techniques</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevating-video-discoverability-with-strategic-tagging-on-youtube/"><u>Elevating Video Discoverability with Strategic Tagging on Youtube</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-fix-civilization-6-startup-problems-in-windows-11/"><u>How to Fix Civilization 6 Startup Problems in Windows 11</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-how-to-custom-your-youtube-channel-url-super-easy/"><u>In 2024, How to Custom Your YouTube Channel URL – Super Easy!</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-vivo-v27-pro-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Vivo V27 Pro Phone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-the-entrepreneurs-pathway-to-profitable-vlogging/"><u>In 2024, The Entrepreneur's Pathway to Profitable Vlogging</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-your-first-step-designing-attractive-videos-on-a-mac/"><u>In 2024, Your First Step Designing Attractive Videos on a Mac</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/make-them-laugh-best-video-dubbing-apps-for-comedy-and-entertainment/"><u>Make Them Laugh Best Video Dubbing Apps for Comedy and Entertainment</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ring-motion-control-top-camera-gadgets/"><u>Mastering Motion Control - Top Camera Gadgets</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/the-ultimate-walkthrough-to-upgrade-microsoft-mouse-drivers-in-windows-environment/"><u>The Ultimate Walkthrough to Upgrade Microsoft Mouse Drivers in Windows Environment</u></a></li>
+</ul></div>
 

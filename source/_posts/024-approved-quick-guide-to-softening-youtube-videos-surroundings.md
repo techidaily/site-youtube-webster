@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Quick Guide to Softening YouTube Videos' Surroundings\""
-date: 2024-07-29T04:41:23.378Z
-updated: 2024-07-30T04:41:23.378Z
+date: 2025-01-10T00:05:16.572Z
+updated: 2025-01-11T01:32:55.291Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8
 
 # How to Blur Background of Your YouTube Video
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -29,9 +26,6 @@ thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8
 
 A lot of YouTubers like to vlog in front of blurred backgrounds. [Blurring the background of your YouTube video](https://tools.techidaily.com/wondershare/filmora/download/) is a fast way to make it look more professional – you stand out when you are entirely in focus, and everything behind you is blurry. Plus, it is an easy way to disguise the room you are vlogging from.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![how to blur01](https://images.wondershare.com/filmora/article-images/how-to-blur01.JPG)
 
 Even if your set is clean, there could be things like books behind you, which will distract viewers; they will be trying to read the spines. Blurring out the background of your shot makes your video look polished and keeps people's focus entirely on you.
@@ -67,8 +61,9 @@ To get a shallow depth of field, make sure your aperture is wide. Do this by set
 Creating a bokeh effect is mostly the same, except that it works best when your subject/depth of field is very close to the camera, and you have a light source off in the background. Zoom Lenses do not usually have wide enough apertures to create bokeh backgrounds.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Blur Video Background in Post-Production with [Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you need to blur the video background after shooting, you can use some video editing software to add the bokeh effect or the tilt-off effect in post-production. Here, I will show you how to do that in Filmora.
@@ -83,7 +78,15 @@ Note: you should select **Included** to see all bokeh effects pre-programmed in 
 
 ![ Filmora Bokeh effect ](https://images.wondershare.com/filmora/article-images/filmora9-bokeh-effect.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Double click the bokeh effect to preview the result, and if you find the bokeh effect fits the video, just drop it to the track above the video. And the bokeh filter or overlay will be applied to the video automatically.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Use Tilt-Shift Circle/Linear Effect to Blur Video Background
 
@@ -91,26 +94,25 @@ Filmora features two tilt effects, tilt-shift circle and tilt-shift linear, whic
 
 Go to the **Effects** tab and then switch to the **Utility** menu under **Included** category.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ![ Filmora Tilt-Shift effects ](https://images.wondershare.com/filmora/article-images/tilt-shift-effects.jpg)
 
 Here, I will select the **Tilt-Shift Circle** effect and drop it to the track above the video. Now, you can adjust the size, position, and intensity of the tilt-shift circle effect
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ Filmora Tilt-Shift Circle effect](https://images.wondershare.com/filmora/article-images/apply-tilt-shift-circle-effect.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You see, the video background is blurred, and the people are highlighted. Now it's your turn to download the Filmora video editor and try it yourself.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -118,14 +120,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,4 +133,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-mastering-igtv-video-downloads-on-windows-and-mac-top-5-methods/"><u>[New] 2024 Approved Mastering IGTV Video Downloads on Windows & Mac Top 5 Methods</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/igital-cash-creation-a-closer-look-at-vids-vs-videos-for-2024/"><u>[New] Digital Cash Creation A Closer Look at Vids Vs. Videos for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-squaring-the-circle-of-facebook-engagement-with-visuals-for-2024/"><u>[New] Squaring the Circle of Facebook Engagement with Visuals for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-complete-guide-to-earnings-via-video-ads-on-youtube-for-2024/"><u>[New] The Complete Guide to Earnings via Video Ads on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/op-10-online-yogis-for-peak-physique-and-harmony-for-2024/"><u>[New] Top 10 Online Yogis for Peak Physique and Harmony for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-exploring-your-choices-with-youtube-tv-plans/"><u>[Updated] 2024 Approved Exploring Your Choices with YouTube TV Plans</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-mind-matters-top-educational-youtube-picks/"><u>[Updated] 2024 Approved Mind Matters Top Educational YouTube Picks</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-edge-of-entertainment-advanced-tiktok-editing-hacks-for-2024/"><u>[Updated] Edge of Entertainment Advanced TikTok Editing Hacks for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-elevate-engagement-crafting-effective-youtube-backlinks/"><u>[Updated] In 2024, Elevate Engagement Crafting Effective YouTube Backlinks</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-learn-the-process-of-capturing-your-watched-youtube-content-without-spending-for-2024/"><u>[Updated] Learn the Process of Capturing Your Watched YouTube Content Without Spending for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-how-to-add-text-to-photos-on-windows-and-mac/"><u>2024 Approved How to Add Text to Photos on Windows and Mac</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-pinpoint-pioneering-podium-places/"><u>2024 Approved Pinpoint Pioneering Podium Places</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ting-youtubes-viewership-limits-for-content/"><u>Adjusting YouTube's Viewership Limits for Content</u></a></li>
+<li><a href="https://techtrends.techidaily.com/expert-tips-on-how-to-easily-bind-your-samsung-remote-with-any-display-unit/"><u>Expert Tips on How to Easily Bind Your Samsung Remote with Any Display Unit</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-track-imei-number-of-motorola-edge-40-neo-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Motorola Edge 40 Neo Through Google Earth?</u></a></li>
+<li><a href="https://win-dash.techidaily.com/seamless-update-experience-with-auto-detected-amd-drivers/"><u>Seamless Update Experience with Auto-Detected AMD Drivers</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/success-story-how-to-resolve-the-irritating-directx-error-on-anno-1800/"><u>Success Story: How to Resolve the Irritating DirectX Error on Anno 1800</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlock-xiaomi-redmi-note-12-pro-4g-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Xiaomi Redmi Note 12 Pro 4G Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://win-extraordinary.techidaily.com/top-5-iskusnyh-agentstv-po-optimizacii-dlya-seo-v-gorode-doha-katar/"><u>Топ-5 Искусных Агентств По Оптимизации Для SEO В Городе Доха, Катар</u></a></li>
+</ul></div>
 

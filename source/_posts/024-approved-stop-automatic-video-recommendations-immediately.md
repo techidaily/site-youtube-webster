@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Stop Automatic Video Recommendations Immediately\""
-date: 2024-07-29T04:44:11.965Z
-updated: 2024-07-30T04:44:11.965Z
+date: 2025-01-07T17:43:00.881Z
+updated: 2025-01-10T17:45:08.067Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/2cd3ca0cbeb8c4e3cd0fc34413344036f23c5912a
 
 # YouTube Recommended Videos - Block the Videos I Don't Like
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -43,9 +40,6 @@ Here’s what you can do about it:
 
 ## Manage Your Watch History
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
 
 Scroll to the bottom of any page on YouTube and you will see a button marked **History** with an hourglass icon. To access this feature using a mobile device, go to the **Account** tab and tap **History**.
@@ -55,14 +49,16 @@ You will be able to completely clear your watch history, remove specific videos 
 If you are being recommended more things you aren’t interested in than things you are, you might want to clear your history completely and start fresh. Maybe your tastes have changed since YouTube started keeping track of them.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Tell YouTube You Aren’t Interested
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Tell YouTube Not Interested](https://images.wondershare.com/filmora/article-images/tell-youtube-not-interested.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Based on your watch history, YouTube knows what you like. However, they have no way of automatically collecting data on what kinds of videos you’d rather not see.
 
@@ -71,6 +67,10 @@ What they do have is a system for you to flag recommendations you don’t like.
 Hover over the thumbnail of a video you don’t want to be recommended to you and a small icon that looks like three stacked dots will appear next to the title. Click on that, and then click **Not Interested**.
 
 When you tell YouTube you aren’t interested in certain videos they use that data to adjust what they recommend for you.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## But Why Does It Recommend Stuff I Don’t Like?
 
@@ -85,16 +85,18 @@ The only way to stop certain types of videos from being recommended for you is t
  Are you usually happy with YouTube's recommended videos?
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What video editing software did YouTube suggested videos are used?
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -102,14 +104,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -118,4 +117,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-top-5-tunefab-screen-recording-tips-and-tricks/"><u>[New] 2024 Approved Top 5 Tunefab Screen Recording Tips & Tricks</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/lear-distraction-free-viewing-of-old-youtube-content-for-2024/"><u>[New] Clear, Distraction-Free Viewing of Old YouTube Content for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-choosing-free-video-editing-software-on-iphone-and-ipad/"><u>[New] In 2024, Choosing Free Video Editing Software on iPhone & iPad</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-swiftsoundphone-apps-top-10-for-rapid-music/"><u>[Updated] In 2024, SwiftSoundphone Apps Top 10 for Rapid Music</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/fixing-the-frustrating-dll-is-accessible-and-related-errors-on-your-pc/"><u>Fixing the Frustrating 'DLL Is Accessible' And Related Errors on Your PC</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-oneplus-open-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For OnePlus Open</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-fix-iphone-13-mini-unavailable-issue-with-ease-drfone-by-drfone-ios/"><u>In 2024, How To Fix iPhone 13 mini Unavailable Issue With Ease | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/incorporating-apple-music-in-visual-content/"><u>Incorporating Apple Music in Visual Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-a-day-job-and-your-thriving-youtube-channel-for-2024/"><u>Managing a Day Job and Your Thriving YouTube Channel for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/izing-chaos-a-guide-to-youtube-list-shuffling/"><u>Organizing Chaos A Guide to YouTube List Shuffling</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ng-8-real-time-strategies-to-grow-youtube-success/"><u>Ranking 8 Real-Time Strategies to Grow YouTube Success</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-6-youtube-shorts-downloaders-free-and-online-for-2024/"><u>Top 6 YouTube Shorts Downloaders [Free & Online] for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-apple-watch-savings-and-bargains-exclusive-offers-in-july-2024/"><u>Top Apple Watch Savings & Bargains: Exclusive Offers in July 2024</u></a></li>
+</ul></div>
 

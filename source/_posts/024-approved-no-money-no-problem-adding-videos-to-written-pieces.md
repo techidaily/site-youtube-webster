@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  No Money, No Problem  Adding Videos to Written Pieces\""
-date: 2024-07-29T04:41:47.490Z
-updated: 2024-07-30T04:41:47.490Z
+date: 2025-01-08T22:32:41.827Z
+updated: 2025-01-11T02:25:50.274Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/b9236612d2096893f2d14ce12421ffb6e267518dd
 
 # How to Add Video to Text
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -31,18 +28,6 @@ It may be challenging to capture the attention of your audience if the video ope
 
 Luckily, video editing and presentation software products offer the tools you will need to combine video and text. In this article, we are going to show you how to add a video to text in PowerPoint and Filmora.
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: How to Add Video to Text for Free with PowerPoint?
 
 An effective PowerPoint presentation should contain proportionate amounts of textual and visual elements. Using too many images, videos or animations can make following a presentation difficult, just as too much text can render a presentation too static.
@@ -53,17 +38,21 @@ You should start by creating a new slide and adding a textbox to it. Proceed to 
 
 Head over to the Insert tab, select Rectangle from the Shapes menu, and create a rectangular shape over the entire slide. Right-click on the slide and choose the Send to Back option from the menu. In this manner, you will position the rectangle you created behind the textbox.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
 
 Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down menu. The shape of the text in the textbox will be applied to the object in the background, which enables you to add a video to that text.
 
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
 
@@ -75,24 +64,30 @@ Besides presentation software, you can also use video editing software products 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
 
 Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
@@ -105,9 +100,6 @@ There are so many different ways to create visually striking content, and adding
 
 Merging text with video is equally easy in PowerPoint and Filmora, so you just have to choose which software better suits your needs and select the materials that fit the style of your project. Learning how to add a video to text won’t take too much of your time, as this process can be completed in just a few quick steps. Which software are you using to add a video to text? Leave a comment below and let us know.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -116,14 +108,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -132,4 +121,18 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-escaping-reality-top-10-games-like-gta-v-but-not/"><u>[New] 2024 Approved Escaping Reality - Top 10 Games Like GTA V (But Not)</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-discover-these-6-must-have-instagram-reel-tools/"><u>[Updated] In 2024, Discover These 6 Must-Have Instagram Reel Tools</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-unlocking-the-secrets-to-increasing-video-engagement-on-youtube/"><u>[Updated] In 2024, Unlocking the Secrets to Increasing Video Engagement on YouTube</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/1726026437807-dvd/"><u>「単純」DVDダウンロード方法・最適ソフトウェア推薦</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-how-to-re-watch-lost-youtube-scenes-online-simple-steps/"><u>2024 Approved How to Re-Watch Lost YouTube Scenes Online Simple Steps</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-transform-your-food-blog-into-an-engaging-mukbang-show/"><u>2024 Approved Transform Your Food Blog Into an Engaging Mukbang Show</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/apple-discontinues-apple-pay-later-program-insight-on-a-new-replacement-strategy/"><u>Apple Discontinues Apple Pay Later Program: Insight on a New Replacement Strategy</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/el-charisma-techniques-for-amplifying-youtube-visibility-for-2024/"><u>Channel Charisma Techniques for Amplifying YouTube Visibility for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-troubleshoot-and-repair-missing-openal32dll-files-on-windows/"><u>How To Troubleshoot and Repair Missing openAL32.DLL Files on Windows</u></a></li>
+<li><a href="https://games-able.techidaily.com/optimal-internet-speed-techniques-to-decrease-latency/"><u>Optimal Internet Speed: Techniques to Decrease Latency</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-simple-steps-to-embed-youtube-playlists-on-any-website/"><u>The Simple Steps to Embed YouTube Playlists on Any Website</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Sustaining a Day Job While Building Your Online Presence\""
-date: 2024-07-29T04:42:49.935Z
-updated: 2024-07-30T04:42:49.935Z
+date: 2025-01-05T16:00:26.486Z
+updated: 2025-01-10T18:43:13.729Z
 tags:
   - ai video
   - ai youtube
@@ -43,22 +43,25 @@ So, to save you and your viewers some of the same struggles, here are 5 tips I r
 [5. Be creative! Create audios (audio-only videos)](#createaudio)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1. Don’t force yourself to post on specific days
 
 I know what you’re thinking - “What?! That’s insane.” The first piece of advice I received about YouTube was to create a schedule of days to post so your viewers look forward to videos. That just doesn’t work for me. Whenever I became too busy with work, I couldn’t stick to my typical Tuesday or Thursday schedule. I think it’s best to focus on how many times you can post in a week rather than a specific day. I try to post at least once a week and that’s my goal. You can always increase as your workload gets lighter or you when you are able to do YouTube full-time.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2. Keep track of all your ideas in one notebook planner
 
 A notebook planner is essential for keeping my life organized and on track. When I first started my channel, I had a separate planner just for my YouTube videos – this didn’t work cause I never looked at it. It worked best when I kept track of my entire life, including YouTube, in one planner since I look at it every day. Then I could also see which days I wanted to post a video or see what topics worked best around specific holidays and such.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3. Check the weather forecast in advance
 
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
@@ -68,8 +71,9 @@ When starting a YouTube channel, many YouTubers like myself don’t have the mon
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5. Be creative! Create audios (audio-only videos)
 
 In the event that life gets too crazy, it’s perfectly fine to do just audio. Many of us are always on the go which means it’s the perfect time to listen to great advice while driving to work, waiting on the bus, or working at the gym. Someone out there would love to hear your advice. I started to do this with my Tea Time Talk Audios and the response was great.
@@ -82,17 +86,13 @@ Wondershare Filmora is one application that people prefer over any other video e
 
 Just try it and create your own YouTube video!
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -100,14 +100,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -116,4 +113,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-young-pilots-guide-the-best-drones-of-all-time/"><u>[New] 2024 Approved Young Pilots' Guide The Best Drones of All Time</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ehind-the-numbers-carryminatis-youtube-wealth-for-2024/"><u>[New] Behind the Numbers CarryMinati’s YouTube Wealth for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-quintessential-scene-composers-haven-for-2024/"><u>[New] Quintessential Scene Composer's Haven for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ipple-effects-top-mobile-music-disruptors-for-2024/"><u>[New] Ripple Effects Top Mobile Music Disruptors for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/treamers-financial-health-check-in-youtubers-for-2024/"><u>[New] Streamer's Financial Health Check in YouTubers for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-the-art-of-captivating-viewers-an-experts-guide-to-youtube-banners/"><u>[New] The Art of Captivating Viewers An Expert's Guide to YouTube Banners</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-expert-advice-tailoring-ppt-presentations-on-google-meet-for-2024/"><u>[Updated] Expert Advice Tailoring PPT Presentations on Google Meet for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-best-in-class-streaming-capture-software-for-youtubers/"><u>[Updated] In 2024, Best-in-Class Streaming Capture Software For YouTubers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-increase-viewership-swiftly-5-strategy-unveiled/"><u>[Updated] In 2024, Increase Viewership Swiftly - $5 Strategy Unveiled</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/expert-solutions-for-fixing-microsoft-edge-glitches-tips-from-yl-software-experts/"><u>Expert Solutions for Fixing Microsoft Edge Glitches - Tips From YL Software Experts</u></a></li>
+<li><a href="https://win11.techidaily.com/fixing-disabled-remove-pin-tool-on-windows-11-interface/"><u>Fixing Disabled Remove PIN Tool on Windows 11 Interface</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-satirical-space-the-ultimate-guide-to-20plus-humorous-metaverse-imagery/"><u>In 2024, Satirical Space The Ultimate Guide to 20+ Humorous Metaverse Imagery</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/transform-your-media-best-online-photo-and-video-mashup-creators/"><u>Transform Your Media Best Online Photo and Video Mashup Creators</u></a></li>
+</ul></div>
 

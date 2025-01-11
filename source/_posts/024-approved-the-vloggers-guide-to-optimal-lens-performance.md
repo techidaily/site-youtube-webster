@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  The Vlogger's Guide to Optimal Lens Performance\""
-date: 2024-07-29T04:44:06.754Z
-updated: 2024-07-30T04:44:06.754Z
+date: 2025-01-09T18:46:18.130Z
+updated: 2025-01-10T23:28:05.850Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ In this article, I’m going to help you figure that out.
 * [Part 6: Vlogging With a Fast Lens](#VloggingWithAFastLens)
 * [Part 7: Optical Image Stabilization](#OpticalImageStabilization)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Three Focal Length Groups: Wide, Standard, Telephoto
 
 There are three main ranges in focal lengths that camera lenses can be categorized into wide, standard, and telephoto.
@@ -56,9 +60,6 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -85,17 +86,18 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Focal Length Equivalency Table
 
 This table shows you the focal lengths needed to achieve the same shot between cameras with different sensor sizes. In order to take a shot as wide as the shot I took of myself with the 24mm lens on my full-frame camera, I would need a 15mm lens on an APS-C sensor camera or a 12mm lens on a micro 4/3 camera.
@@ -113,14 +115,19 @@ This table shows you the focal lengths needed to achieve the same shot between c
 
 ### Aperture
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
@@ -128,9 +135,6 @@ Fast lenses are more expensive because they cost more to produce. There’s a lo
 
 But do you even need a fast lens?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Vlogging With a Fast Lens
 
 #### Pros of Vlogging With a Fast Lens
@@ -145,9 +149,6 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -168,14 +169,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -184,4 +182,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-dive-into-the-past-with-your-camera-roll-and-snapchat/"><u>[New] 2024 Approved Dive Into the Past with Your Camera Roll and Snapchat</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-opening-and-managing-srt-files-seamlessly/"><u>[New] 2024 Approved Opening and Managing SRT Files Seamlessly</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/pin-the-web-advanced-tips-for-video-orientation-in-youtube-for-2024/"><u>[New] Spin the Web Advanced Tips for Video Orientation in YouTube for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-mastering-money-making-enabling-youtube-monetization-for-mobile-devices/"><u>[Updated] Mastering Money-Making Enabling YouTube Monetization for Mobile Devices</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/einfach-und-schnell-herausragender-mnvme-ssd-duplikator-inklusive-beider-kopiermethoden/"><u>Einfach Und Schnell: Herausragender M.#NVMe SSD Duplikator Inklusive Beider Kopiermethoden</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/gs-finest-top-10-gpu-picks-for-clear-online-broadcasts/"><u>Gaming's Finest Top 10 GPU Picks for Clear Online Broadcasts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-best-of-the-best-cutting-edge-hiring-videos-1-10/"><u>In 2024, Best of the Best Cutting-Edge Hiring Videos #1-10</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-rapid-audio-to-video-conversion-for-youtube-fans/"><u>In 2024, Rapid Audio-to-Video Conversion for YouTube Fans</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/mastering-data-destruction-on-windows-a-comprehensive-guide-to-using-stellar-file-eraser-5-standard-configuration-and-scheduled-deletions/"><u>Mastering Data Destruction on Windows: A Comprehensive Guide to Using Stellar File Eraser 5 - Standard Configuration & Scheduled Deletions</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/screencapture-simplified-the-comprehensive-camstudio-review-for-2024/"><u>ScreenCapture Simplified The Comprehensive CamStudio Review for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1726226453974-mka-flac-on-line/"><u>무료 MKA FLAC 전환 기술: 원근에서 쉽고 효과적인 솔루션을 위해 On-Line 이스트리</u></a></li>
+</ul></div>
 

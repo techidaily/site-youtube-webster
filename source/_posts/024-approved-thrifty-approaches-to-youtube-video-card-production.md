@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Thrifty Approaches to YouTube Video Card Production\""
-date: 2024-07-29T04:44:22.619Z
-updated: 2024-07-30T04:44:22.619Z
+date: 2025-01-04T20:11:20.610Z
+updated: 2025-01-10T21:43:09.159Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/c64fedaf756cbcf9ac92722c1b2668052e1efc526
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -44,8 +41,9 @@ thumbnail: https://thmb.techidaily.com/c64fedaf756cbcf9ac92722c1b2668052e1efc526
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -72,10 +70,11 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
@@ -87,8 +86,9 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -122,11 +122,11 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -134,14 +134,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -150,4 +147,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-accelerated-steps-to-unsettle-youtube-playlists/"><u>[New] 2024 Approved Accelerated Steps to Unsettle YouTube Playlists</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-top-10-no-cost-gaming-recording-apps-for-gamers/"><u>[New] 2024 Approved Top 10 No-Cost Gaming Recording Apps for Gamers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/randing-excellence-youtube-naming-masterclass/"><u>[New] Branding Excellence YouTube Naming Masterclass</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-elevate-your-storytelling-on-snapchat-top-15-ideas/"><u>[New] Elevate Your Storytelling on Snapchat (Top 15 Ideas)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-youtubes-high-stakes-hardware-showdown/"><u>[New] In 2024, YouTube’s High-Stakes Hardware Showdown</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-elite-editing-selection-quality-software-for-youtubers/"><u>[Updated] 2024 Approved Elite Editing Selection Quality Software for YouTubers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-ultimate-guide-choosing-the-best-video-grabber-for-windows-10/"><u>[Updated] 2024 Approved Ultimate Guide Choosing the Best Video Grabber for Windows 10</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-step-by-step-process-for-free-youtube-educational-events/"><u>[Updated] Step-by-Step Process for Free Youtube Educational Events</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-effortlessly-engage-with-an-array-of-available-youtube-content/"><u>2024 Approved Effortlessly Engage with an Array of Available YouTube Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-rise-in-rankings-14-high-impact-gaming-videos-for-youtube/"><u>2024 Approved Rise in Rankings 14 High-Impact Gaming Videos for YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-uncover-the-best-12-flipscreen-vlogging-cameras-on-a-budget/"><u>2024 Approved Uncover the Best 12 Flipscreen Vlogging Cameras on a Budget</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Xiaomi 13T | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-transfer-music-from-oneplus-ace-2-pro-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Transfer Music from OnePlus Ace 2 Pro to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-honor-80-pro-straight-screen-edition-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Honor 80 Pro Straight Screen Edition to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-honor-play-8t-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Honor Play 8T Screen Mirroring App | Dr.fone</u></a></li>
+</ul></div>
 

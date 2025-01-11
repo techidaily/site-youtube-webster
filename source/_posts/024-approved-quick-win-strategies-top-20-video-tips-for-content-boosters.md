@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Quick-Win Strategies  Top 20 Video Tips for Content Boosters\""
-date: 2024-07-29T04:40:28.941Z
-updated: 2024-07-30T04:40:28.941Z
+date: 2025-01-06T02:07:12.135Z
+updated: 2025-01-10T18:32:26.227Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/c19a308589c95b1ddee27c6a5a356d350b91c656d
 
 # YouTube Shortcuts You Should Know in 2024
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -32,9 +29,9 @@ YouTube, as one of the most popular free streaming video portals, the majority o
 With that said, the following two-columned tables give you detailed information on the shortcut keys and their respective functions, so you don’t have to grab the mouse every time you want to navigate through the YouTube videos, or do any such similar tasks.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Amazing YouTube Keyboard Shortcuts You May Not Know
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
@@ -48,9 +45,6 @@ While watching a YouTube video, there might be instances when you want to pause 
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
 This section talks about the shortcut keys to skim the video forward and backward during playback:
@@ -79,6 +73,10 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Category 4: Managing the Captions
 
 This category talks about managing the video captions using the shortcut keys:
@@ -91,9 +89,6 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -105,8 +100,9 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↓'               | Decrease volume by 5% |
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Category 6: Switching Between Screen Modes
 
 The shortcut keys given in this table enable you to switch between different screen modes:
@@ -122,8 +118,9 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -156,6 +153,10 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -164,14 +165,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -180,4 +178,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-crafting-the-next-big-thing-your-guide-to-youtubes-best-video-types-for-2024/"><u>[New] Crafting the Next Big Thing Your Guide to YouTube's Best Video Types for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-educational-journey-through-time-with-top-history-yt-channels-for-2024/"><u>[Updated] Educational Journey Through Time with Top History YT Channels for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-bebop-2s-avian-spectacle-a-compreran-analysis/"><u>[Updated] In 2024, Bebop 2'S Avian Spectacle – A Compreran Analysis</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-innovation-in-motion-youtube-angle-changes/"><u>[Updated] In 2024, Innovation in Motion Youtube Angle Changes</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-rapid-capture-technique-timelapse-toptech-for-2024/"><u>[Updated] Rapid Capture Technique Timelapse #TopTech for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-top-5-snipers-essential-windows-cutting-software-for-2024/"><u>[Updated] Top 5 Snipers Essential Windows Cutting Software for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-becoming-a-billionaire-on-the-blockchain-non-ad-profits-on-youtube/"><u>2024 Approved Becoming a Billionaire on the Blockchain Non-Ad Profits on YouTube</u></a></li>
+<li><a href="https://windows11.techidaily.com/applications-and-their-unique-run-notations-explored/"><u>Applications & Their Unique Run Notations Explored</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/tless-subscriber-acquisition-for-enhanced-viewership/"><u>Effortless Subscriber Acquisition for Enhanced Viewership</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-rev-up-your-recruiting-strategy-with-hot-tapes/"><u>In 2024, Rev Up Your Recruiting Strategy with Hot Tapes</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-apps-and-online-tools-to-track-vivo-y200e-5g-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Vivo Y200e 5G Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/step-by-step-guide-for-creating-a-full-windows-10-image-backup-on-external-hard-drives-with-dual-techniques/"><u>Step-by-Step Guide for Creating a Full Windows 10 Image Backup on External Hard Drives with Dual Techniques</u></a></li>
+</ul></div>
 

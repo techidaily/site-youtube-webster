@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  The Pulse of Printed Words  2 Methods of Bouncing Text\""
-date: 2024-07-29T04:42:01.477Z
-updated: 2024-07-30T04:42:01.477Z
+date: 2025-01-03T19:03:56.161Z
+updated: 2025-01-10T19:45:45.197Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/6739390ee0fc340b9fd97277963ee8c4fb9d6425e
 
 # How to Create Animated Bouncing Text
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -30,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/6739390ee0fc340b9fd97277963ee8c4fb9d6425e
 Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
 When talking about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), the application is populated with several presets for texts and titles, animations, effects, filters, and much more.
@@ -56,23 +54,25 @@ In the timeline, double-click the title you just added, use the upper-left secti
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
 
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4: Export the Final Output**
 
 Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
 
@@ -81,6 +81,10 @@ Double click the text track, go to the **Chroma Key** effect, select the **Color
 As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
 
@@ -92,9 +96,6 @@ Some most trusted websites to generate **bounce text** are listed below:
 
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
@@ -121,9 +122,6 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 
 **Step 2: Customize the Text and Choose Animation Effect**
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
 
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
@@ -140,20 +138,21 @@ Generating **bounce text** effect is much simpler when you use Wondershare Filmo
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -162,4 +161,23 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-exploring-digital-marketing-frontiers-the-metaverse/"><u>[New] Exploring Digital Marketing Frontiers The Metaverse</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-step-by-step-backdrop-blurring-techniques-on-youtube-videos/"><u>[New] In 2024, Step-by-Step Backdrop Blurring Techniques on YouTube Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-the-best-cameras-for-youtube-from-beginners-to-professionals/"><u>[New] In 2024, The Best Cameras for YouTube From Beginners to Professionals</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-art-and-science-of-buying-profitable-yt-content-for-2024/"><u>[New] The Art and Science of Buying Profitable YT Content for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/op-picks-11-affordable-innovative-yt-moniker-generators-for-2024/"><u>[New] Top Picks 11 Affordable, Innovative YT Moniker Generators for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-boost-engagement-through-anime-style-subscribe-buttons-filmora-tutorial/"><u>[Updated] 2024 Approved Boost Engagement Through Anime-Style Subscribe Buttons (Filmora Tutorial)</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-link-up-titles-video-upload-to-twittertumblr/"><u>[Updated] 2024 Approved Link-Up Titles Video Upload to Twitter/Tumblr</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-rise-and-shine-on-these-overlooked-meme-platforms/"><u>[Updated] In 2024, Rise and Shine on These Overlooked Meme Platforms</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-rise-on-youtube-initiating-your-chanel-and-earning-pathway/"><u>[Updated] Rise on YouTube Initiating Your Chanel & Earning Pathway</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-xiaomi-11-a-new-era-of-high-fidelity-video-recording/"><u>2024 Approved Xiaomi 11 A New Era of High Fidelity Video Recording</u></a></li>
+<li><a href="https://driver-install.techidaily.com/easy-effective-solutions-for-tracer-errors-m-audio/"><u>Easy, Effective Solutions for Tracer Errors (M-Audio)</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-address-failure-in-sending-facebook-security-token/"><u>How to Address Failure in Sending Facebook Security Token</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-examining-the-economic-impact-of-mr-beast/"><u>In 2024, Examining the Economic Impact of Mr. Beast</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-free-studio-hd-screen-grab-audit/"><u>In 2024, Free Studio HD Screen Grab Audit</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-itel-p55t-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Itel P55T FRP</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ior-streams-with-av1-activate-on-youtube-for-2024/"><u>Superior Streams with AV1 Activate on YouTube for 2024</u></a></li>
+</ul></div>
 

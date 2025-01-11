@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Self-Filmed Brilliance  Secrets for YouTube Success\""
-date: 2024-07-29T04:42:28.027Z
-updated: 2024-07-30T04:42:28.027Z
+date: 2025-01-08T18:01:07.967Z
+updated: 2025-01-10T19:25:49.407Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/c2a5d8a295d9ad4098701941bf7b844bb3d03e72b
 
 # 4 Ways To Set Up Your Talking-Head Shots For YouTube
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -41,13 +38,15 @@ We’ve summarized the key points about setting up talking head style video shot
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
 Don’t have a lot of space to set up your camera and lighting equipment? No problem! You can be within an arm’s length away from your camera with a close quarters wide-angle vlog set-up.
@@ -76,9 +75,6 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -86,6 +82,10 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -104,19 +104,20 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -124,14 +125,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -140,4 +138,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/ntegrating-imovie-productions-into-youtube/"><u>[New] Integrating iMovie Productions Into YouTube</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-resonant-revelry-auditory-additions-to-whatsapp-statues/"><u>[New] Resonant Revelry Auditory Additions to WhatsApp Statues</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-cutting-room-floor-experts-share-tips-on-video-editing/"><u>[Updated] 2024 Approved The Cutting Room Floor Experts Share Tips on Video Editing</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-elevate-your-content-with-these-top-5-youtube-marketing-methods/"><u>[Updated] In 2024, Elevate Your Content with These Top 5 YouTube Marketing Methods</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-inquiry-youtubes-payment-scheme-for-creators/"><u>[Updated] In 2024, Inquiry YouTube's Payment Scheme for Creators</u></a></li>
+<li><a href="https://discover-great.techidaily.com/2-effortless-methods-for-adding-computer-stored-movies-directly-to-iphone-gallery/"><u>2. Effortless Methods for Adding Computer-Stored Movies Directly to iPhone Gallery</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-cutting-edge-camera-and-recording-apps-for-smartphones-most-reliable-sources/"><u>2024 Approved Cutting-Edge Camera & Recording Apps for Smartphones' Most Reliable Sources</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-counteract-vibration-for-clear-captures/"><u>In 2024, Counteract Vibration for Clear Captures</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-getting-started-with-adobe-presenter-video-recordings/"><u>In 2024, Getting Started with Adobe Presenter Video Recordings</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-savor-spectaculars-youtubes-best-cooking-channels/"><u>In 2024, Savor Spectaculars YouTube's Best Cooking Channels</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-strategies-to-secure-best-youtube-collaborative-pairs/"><u>In 2024, Strategies to Secure Best YouTube Collaborative Pairs</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/lenovo-ideapad-t430-driver-downloads-compatible-with-windows-11-8-and-7/"><u>Lenovo IdeaPad T430 Driver Downloads: Compatible with Windows 11, 8 & 7</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/navigating-instagram-blocking-basics-for-2024/"><u>Navigating Instagram Blocking Basics for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-pc-strategies-elevating-video-quality-and-engagement-on-youtube-for-2024/"><u>Proven PC Strategies Elevating Video Quality and Engagement on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/scouring-social-media-locating-facebook-videos/"><u>Scouring Social Media Locating Facebook Videos</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/spotlight-techniques-for-engaging-fb-giveaway-posts-for-2024/"><u>Spotlight Techniques for Engaging FB Giveaway Posts for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/update-to-newest-logitech-g27-controls-software-supports-windows-11107/"><u>Update to Newest Logitech G27 Controls Software - Supports Windows 11/10/7</u></a></li>
+</ul></div>
 

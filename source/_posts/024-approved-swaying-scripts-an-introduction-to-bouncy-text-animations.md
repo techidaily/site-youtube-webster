@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Swaying Scripts  An Introduction to Bouncy Text Animations\""
-date: 2024-07-29T04:46:11.683Z
-updated: 2024-07-30T04:46:11.683Z
+date: 2025-01-05T19:54:44.476Z
+updated: 2025-01-10T19:41:25.072Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/212e21d96bc4724d21a24c1110e599b63bc2c397e
 
 # How to Create Animated Bouncing Text
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -29,9 +26,6 @@ thumbnail: https://thmb.techidaily.com/212e21d96bc4724d21a24c1110e599b63bc2c397e
 
 Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
 When talking about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), the application is populated with several presets for texts and titles, animations, effects, filters, and much more.
@@ -50,26 +44,29 @@ Click **Titles** from the standard toolbar at the top, and click and drag your p
 
 In the timeline, double-click the title you just added, use the upper-left section to edit the text, go to the **Animation** tab from the left pane, scroll down the list, and double-click the **Up Down 1** or **Up Down 2** preset to apply the bounce effect to the credits. Click **OK** to save the changes and to get back to the main window.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3: Add Shake Filters**
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4: Export the Final Output**
 
@@ -85,6 +82,10 @@ As explained before, Wondeshare Filmora makes the entire process of creating and
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Method 2: Generate Animated Bouncing Texts Online
 
 If you don’t want any heavy and resource-intensive app on your PC merely for some special text effects, you can try any of the online solutions instead. The benefit of using any such web app is that all the processing is done on site’s server, and it is only a web browser and an Internet connection that you need to have at your side.
@@ -95,9 +96,6 @@ Some most trusted websites to generate **bounce text** are listed below:
 
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
@@ -140,20 +138,21 @@ Generating **bounce text** effect is much simpler when you use Wondershare Filmo
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -162,4 +161,22 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-amplify-your-videos-impact-increasing-view-count-on-youtube-shorts/"><u>[New] In 2024, Amplify Your Video's Impact Increasing View Count on YouTube Shorts</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-podcastpioneer-diving-beyond-dacast/"><u>[New] In 2024, PodcastPioneer Diving Beyond DaCast</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-the-ultimate-guide-to-finding-a-quality-microphone-for-every-yt-style/"><u>[New] In 2024, The Ultimate Guide to Finding a Quality Microphone for Every YT Style</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ro-gif-makers-roundup-online-vs-desktop-platforms-for-2024/"><u>[New] Pro-Gif Makers Roundup Online vs Desktop Platforms for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/uick-step-by-step-guide-for-youtube-audio-in-imovie/"><u>[New] Quick Step-by-Step Guide for YouTube Audio in iMovie</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-top-8-cameras-unmatched-live-stream-quality/"><u>[New] Top 8 Cameras Unmatched Live Stream Quality</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-best-ios-psp-emulators-our-top-5-selections/"><u>[Updated] Best iOS PSP Emulators Our Top 5 Selections</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-effortless-shuffle-of-your-youtube-playlists/"><u>[Updated] Effortless Shuffle of Your YouTube Playlists</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-cut-buffering-time-turn-on-av1-in-youtube-settings/"><u>2024 Approved Cut Buffering Time – Turn On AV1 in YouTube Settings</u></a></li>
+<li><a href="https://win-net.techidaily.com/1728463252531-windows-117/"><u>探している!Windows 11で紛失したデスクトップファイルを見つけ直せる7コツ</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/microphone-for-youtubers/"><u>Best Microphone for YouTubers</u></a></li>
+<li><a href="https://howto.techidaily.com/gmail-not-working-on-oneplus-nord-ce-3-5g-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on OnePlus Nord CE 3 5G 7 Common Problems & Fixes | Dr.fone</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/integrated-marketing-success-with-facebook-linkedin-and-youtube-techniques/"><u>Integrated Marketing Success with Facebook, LinkedIn, and YouTube Techniques</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/perfect-frame-rate-selection-a-guide-to-best-slow-motion-filmmaking-techniques-for-2024/"><u>Perfect Frame Rate Selection A Guide to Best Slow Motion Filmmaking Techniques for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/propel-your-tiktok-presence-with-accurate-profile-numbers/"><u>Propel Your TikTok Presence with Accurate Profile Numbers</u></a></li>
+</ul></div>
 

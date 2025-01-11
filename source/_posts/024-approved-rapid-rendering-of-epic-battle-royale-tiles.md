@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Rapid Rendering of Epic Battle Royale Tiles\""
-date: 2024-07-29T04:43:11.781Z
-updated: 2024-07-30T04:43:11.781Z
+date: 2025-01-09T23:25:21.094Z
+updated: 2025-01-10T19:42:52.291Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/a1fb4c80fe9c0ad6ff9e8bbff720026cb07010c4b
 
 # How to Make Fortnite Thumbnail for Free and Easy in 2024
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
@@ -35,9 +32,6 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 01:** To start making a Fortnite thumbnail, it is important to have a screenshot of your gameplay. We can make a perfect screenshot using Fortnite Replay Mode. If you have recently played a Fortnite match, you can access its replay under the Career tab. Under the Career tab select Replays.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step1](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step1.jpg)
 
 **Step 02:** If you are using a console, the game will only store 10 recent gameplays, but if you are using a PC, it will store 100 recent gameplays in this section. From all these gameplays, select the one that you want to use for the Thumbnail. Once you choose gameplay, you can control everything in it. The angle, speed, and camera mode.
@@ -46,9 +40,6 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 03:** For creating a perfect thumbnail, select "Drone Free Camera" mode from the camera mode located on the bottom right corner of the screen. It will allow us to change the angle the way we want. Choose an angle of your choice and take the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
 
 **Step 04:** Open Filmora X, make sure to select the 16:9 screen ratio. Import the screenshot using the import button.
@@ -65,9 +56,6 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 07:** Filmora will ask you to purchase it, but you can now hit "Try it" to use it.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step7](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step7.jpg)
 
 **Step 08:** It will remove the background of the screenshot.
@@ -76,9 +64,6 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 09:** To add a background, go to the media and navigate to "Sample Color." Drag a color of your choice and drop it below the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
 
 **Step 10:** To add titles in the Thumbnail, go to the Titles tab. Here you can find several categories of titles. Find your preferred title and drop it above all the layers. You can choose titles, lower thirds, and other texts depending upon your need and requirement.
@@ -95,18 +80,12 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 13:** To access the directory where this screenshot is saved, right-click on the screenshot and click on "Reveal in Explorer." It will open the folder that contains all the screenshots you take through Filmora. Your Fortnite Thumbnail is ready to be used on your Youtube videos.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step13](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step13.jpg)
 
 #### Conclusion
 
 With Filmora, there are no limits. You can use your imagination to create amazing Fortnite thumbnails or thumbnails for other purposes. This article is just a demo teaching you how you use Filmora X to develop free and astounding thumbnails. Explore other options and elements of Filmora to take your thumbnails to another level.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
  ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -115,14 +94,11 @@ Ollie Mattison is a writer and a lover of all things video.
 
 Follow @Ollie Mattison
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -131,4 +107,26 @@ Follow @Ollie Mattison
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-peak-outcome-total-immersion-complete/"><u>[New] 2024 Approved Peak Outcome Total Immersion Complete</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ow-much-income-arises-from-each-snapshot-video/"><u>[New] How Much Income Arises From Each Snapshot (Video)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nveiling-the-power-of-featured-channels-on-youtube-platform-for-2024/"><u>[New] Unveiling the Power of Featured Channels on YouTube Platform for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-digital-audio-prowess-the-top-9-mic-recorders-for-23/"><u>[Updated] 2024 Approved Digital Audio Prowess The Top 9 Mic Recorders for '23</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-how-to-shave-seconds-off-your-youtube-video-submission/"><u>[Updated] 2024 Approved How to Shave Seconds Off Your YouTube Video Submission</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-convert-your-youtube-files-effortlessly-to-webm-for-2024/"><u>[Updated] Convert Your YouTube Files Effortlessly to WebM for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-achieve-striking-visuals-your-guide-to-uploading-at-correct-dimensions/"><u>[Updated] In 2024, Achieve Striking Visuals Your Guide to Uploading at Correct Dimensions</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-ranking-the-top-value-video-resources-online-for-2024/"><u>[Updated] Ranking the Top Value Video Resources Online for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-unleash-creative-potential-using-storyremix-for-windows-11s-photo-videos/"><u>[Updated] Unleash Creative Potential Using StoryRemix for Windows 11'S Photo Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-cutting-edge-pc-editing-techniques-enhancing-your-youtube-presence/"><u>2024 Approved Cutting-Edge PC Editing Techniques Enhancing Your YouTube Presence</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/cookiebot-driven-conversion-optimization/"><u>Cookiebot-Driven Conversion Optimization</u></a></li>
+<li><a href="https://win-superb.techidaily.com/crafting-your-custom-icon-with-ease-discover-tips-for-utilizing-flipbuildercom/"><u>Crafting Your Custom Icon with Ease - Discover Tips for Utilizing FlipBuilder.com</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-essential-knowledge-on-adobe-cloud-supplemented-by-other-options/"><u>In 2024, Essential Knowledge on Adobe Cloud, Supplemented by Other Options</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/step-by-step-solution-restoring-your-overwatch-audio-chat-feature/"><u>Step-by-Step Solution: Restoring Your Overwatch Audio Chat Feature</u></a></li>
+<li><a href="https://techidaily.com/undeleted-lost-videos-from-x50i-by-fonelab-android-recover-video/"><u>Undeleted lost videos from X50i</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Techniques for Exceptional Audio Recording without a Mic\""
-date: 2024-07-29T04:44:01.612Z
-updated: 2024-07-30T04:44:01.612Z
+date: 2025-01-04T01:51:36.358Z
+updated: 2025-01-10T21:54:29.208Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/da3a565149456b725f254b5d80c3b1f1c06d74a5f
 
 # How to Record Good Audio Without a Microphone?
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -42,9 +39,6 @@ Luckily, there are a lot of easy, free, things you can do to protect the quality
 * [5\. Use a Free Audio App](#app)
 * [6\. Do a Sound Check](#check)
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ## 1\. Keep Your Camera Close (like, really close)
 
 The biggest problem with the mic built into any camera or phone is just that, since it’s with the camera, it’s usually too far away from you. Built-in mics can record decent audio up close, but usually, your camera will be set up farther away from you than an external mic would be.
@@ -53,14 +47,15 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 2.Shoot Somewhere Quiet
 
 The best way to limit the amount of background noise you pick up in your sound recording is to shoot somewhere where there’s no background noise. That probably seems really basic, but it’s something a lot of people just don’t do. It’s easy to default to recording in your home office, even though it’s right next to the kitchen where your family is bustling around, or in your bedroom even though there’s a busy street right outside your window.
 
 Sometimes the best thing you can do for your audio is simply to scout out a quiet room in your house where the sound recording conditions are better. Speaking of recording conditions…
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. Pick a Good Room
 
@@ -82,14 +77,15 @@ _The pompom used in this video cost $2, but you might already have something tha
 
 If your built-in mic is on top of your camera you can get something called a ‘micromuff’. A micromuff is essentially a circular or rectangular piece of velcro with long strands of fluff on top. It’s open in the middle so it doesn’t actually cover your mic, but the surrounding fuzz blocks out the wind.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
 
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Use a Free Audio App
 
@@ -100,8 +96,9 @@ Even if you’re not recording video from your smartphone, it might be a good id
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. Do a Sound Check
 
 Once you think you’ve got good audio set up – test it! You don’t want to do a whole video and find out when you play it back that your audio doesn’t sound good.
@@ -110,16 +107,21 @@ Do you have any of your own audio tips to pass on? Leave them in the comments!
 
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Polish Your YouTube Videos with Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) allows you to [record voiceover](https://tools.techidaily.com/wondershare/filmora/download/) and edit the recorded audio with mixer, equalizer and provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -127,14 +129,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -143,4 +142,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/oosting-youtube-productions-best-mac-mp4-editors-guide-for-2024/"><u>[New] Boosting YouTube Productions Best Mac MP4 Editors Guide for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-capture-the-moment-no-cost-cross-platform-screen-recorders-for-pcmac/"><u>[New] In 2024, Capture the Moment - No-Cost, Cross-Platform Screen Recorders for PC/Mac</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-transforming-facebook-watchlists-implementing-autoplay-for-youtube-content/"><u>[New] In 2024, Transforming Facebook Watchlists Implementing Autoplay for YouTube Content</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-unveiling-the-most-accessible-high-quality-video-modification-sites/"><u>[New] In 2024, Unveiling the Most Accessible, High-Quality Video Modification Sites</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-the-best-screen-capture-tools-for-creative-professionals/"><u>[Updated] 2024 Approved The Best Screen Capture Tools for Creative Professionals</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-unlimited-christmas-classics-9-films-available-for-no-charge/"><u>[Updated] 2024 Approved Unlimited Christmas Classics 9 Films Available for No Charge!</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-channel-up-the-essential-guide-to-computer-and-mobile-video-upload-for-2024/"><u>[Updated] Channel Up The Essential Guide to Computer & Mobile Video Upload for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-stop-ipadiphone-from-freezing-during-fb-playback/"><u>[Updated] In 2024, Stop iPad/iPhone From Freezing During FB Playback</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-resolved-no-display-for-youtube-shorts/"><u>[Updated] Resolved No Display for YouTube Shorts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-top-6-ios-apps-turn-youtube-videos-into-mp3-files/"><u>2024 Approved Top 6 iOS Apps Turn YouTube Videos Into MP3 Files</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/lating-clickers-contribution-to-youtube-earnings/"><u>Calculating Clickers' Contribution to YouTube Earnings</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/comprehensive-guide-to-trusted-sites-for-youtube-tones-for-2024/"><u>Comprehensive Guide to Trusted Sites for Youtube Tones for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-how-to-select-a-youtube-gaming-introduction-maker-free-or-paid-edition/"><u>In 2024, How to Select a YouTube Gaming Introduction Maker Free or Paid Edition</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On OnePlus 11 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-top-10-ai-subtitle-translators-for-content-creators-for-2024/"><u>New Top 10 AI Subtitle Translators for Content Creators for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/tactical-steps-for-gps-reconnaissance-in-pokemon-go-adventures/"><u>Tactical Steps for GPS Reconnaissance in Pokémon GO Adventures</u></a></li>
+</ul></div>
 

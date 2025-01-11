@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Navigating the Digital Landscape  FREE Tools for YouTube Audio to Text\""
-date: 2024-07-29T04:40:44.115Z
-updated: 2024-07-30T04:40:44.115Z
+date: 2025-01-06T19:38:48.961Z
+updated: 2025-01-10T22:54:36.363Z
 tags:
   - ai video
   - ai youtube
@@ -18,13 +18,6 @@ thumbnail: https://thmb.techidaily.com/1d889f7ba116c60f8da4a77131f21354069b9feb0
 
 # How to Transcribe a YouTube Video for FREE
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -54,11 +47,19 @@ Sign in to your YouTube account, click your profile picture from the top-right c
 
 ![Upload YouTube videos](https://images.wondershare.com/filmora/article-images/youtube-upload-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Step 2  Select Transcription Language
 
 On the **Details** page of the next box that appears, scroll down and click **MORE OPTIONS**, and select **English** in the **Video language** drop-down list under the **Language, subtitles, and closed captions (CC)** section.
 
 ![Select Language on YouTube](https://images.wondershare.com/filmora/article-images/select-language-on-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Step 3  Publish the Video
 
@@ -76,18 +77,12 @@ While on the **YouTube Studio** page, click **Subtitles** from the left pane to 
 
 In the video subtitle page of the target video, hover mouse on the **Published Automatic** status under the **Subtitles** column, click the **Options** icon (with three vertical dots) that appears, and click **Edit on Classic Studio**.
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![YouTube Classic Studio](https://images.wondershare.com/filmora/article-images/youtube-edit-on-classic-studio.jpg)
 
 1. **Download Transcription File**
 
 Click and open the **Actions** drop-down list from the top-left corner of the left pane, click your preferred transcription format including .vtt, .srt and .sbv from the list, and save the file on your local hard disk.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![YouTube videos transcription](https://images.wondershare.com/filmora/article-images/download-youtube-video-transcription.jpg)
 
 ### Method 2: Get YouTube Transcription when Watching
@@ -120,19 +115,12 @@ Copy the URL of YouTube video you want to transcribe, go to <https://www.kapwing
 
 Click **Auto-generate** from the right window, and follow the on-screen instructions to **transcribe YouTube video to text**.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![Kapwing Auto Generate Subtitles](https://images.wondershare.com/filmora/article-images/kapwing-auto-generate-subtitles.jpg)
 
 **Step 3: Download the Transcription File**
 
 Click **Download SRT** from the left pane, and follow the instructions from there to download the transcription file in \*.srt format.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Kapwing Auto Generate Subtitles](https://images.wondershare.com/filmora/article-images/kapwing-auto-generated-subtitles.jpg)
 
 **Pros**
@@ -155,19 +143,17 @@ Copy the URL of YouTube video you want to transcribe, go to <https://www.kapwing
 
 Click **Auto-generate** from the right window, and follow the on-screen instructions to **transcribe YouTube video to text**.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Kapwing Auto Generate Subtitles](https://images.wondershare.com/filmora/article-images/kapwing-auto-generate-subtitles.jpg)
 
 **Step 3: Download the Transcription File**
 
 Click **Download SRT** from the left pane, and follow the instructions from there to download the transcription file in \*.srt format.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Kapwing Auto Generate Subtitles](https://images.wondershare.com/filmora/article-images/kapwing-auto-generated-subtitles.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Pros**
 
@@ -220,10 +206,11 @@ If you made any modifications to the transcript that was automatically generated
 * Click **Edit on Classic Studio**
 * On the next page, click **Edit** from the top-right corner
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Edit YouTube subtitles](https://images.wondershare.com/filmora/article-images/edit-automatic-youtube-video-transcription.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Click to open the **Actions** drop-down list from the upper-left corner
 * Click **Upload a file**
@@ -236,20 +223,21 @@ If you are looking for a quick and easy way of adding subtitles to your videos, 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -258,4 +246,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-themed-realm-the-ultimate-10-bestdiscord-choices/"><u>[New] In 2024, Themed Realm The Ultimate 10 BestDiscord Choices</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/esolved-disappearing-youtube-bite-sizes-for-2024/"><u>[New] Resolved Disappearing YouTube Bite Sizes for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ltimate-livestream-setup-reviews-on-the-top-livestream-tools-and-devices/"><u>[New] Ultimate Livestream Setup Reviews on the Top Livestream Tools and Devices</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-innovative-hubs-of-affordable-visual-content-sources/"><u>[Updated] 2024 Approved Innovative Hubs of Affordable Visual Content Sources</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-best-5-online-video-capture-tools-for-2024/"><u>[Updated] Best 5 Online Video Capture Tools for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-budget-friendly-sponsorship-blueprint-for-youtube-enthusiasts/"><u>[Updated] In 2024, Budget-Friendly Sponsorship Blueprint for YouTube Enthusiasts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-how-often-can-creators-expect-to-be-paid-by-youtube/"><u>[Updated] In 2024, How Often Can Creators Expect to Be Paid by YouTube?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-the-art-of-antiquated-visuals-for-modern-audienciplines/"><u>[Updated] In 2024, The Art of Antiquated Visuals for Modern Audienciplines</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-simple-path-your-guide-to-convert-youtube-audio-on-mac-for-2024/"><u>[Updated] Simple Path Your Guide to Convert YouTube Audio on Mac for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-elegant-video-editing-on-iphone-resizing-made-simple/"><u>2024 Approved Elegant Video Editing on iPhone Resizing Made Simple</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-from-boring-to-breathtaking-the-transformation-of-channel-titles/"><u>2024 Approved From Boring to Breathtaking The Transformation of Channel Titles</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-newest-drivers-for-your-brother-l2740dw-printer-on-windows-systems/"><u>Get the Newest Drivers for Your Brother L2740DW Printer on Windows Systems</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/mastery-manual-downloading-hd-videos-on-todays-digital-landscapes-for-2024/"><u>Mastery Manual Downloading HD Videos on Today's Digital Landscapes for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/rounded-overview-googles-podcast-application-demystified-for-2024/"><u>Rounded Overview Google's Podcast Application Demystified for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-vivo-y100a-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Vivo Y100A | Dr.fone</u></a></li>
+</ul></div>
 

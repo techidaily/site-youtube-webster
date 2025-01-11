@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Navigating Notes  An Introduction to YouTube List Making\""
-date: 2024-07-29T04:46:20.302Z
-updated: 2024-07-30T04:46:20.302Z
+date: 2025-01-06T22:49:40.605Z
+updated: 2025-01-10T19:20:09.332Z
 tags:
   - ai video
   - ai youtube
@@ -22,9 +22,6 @@ To tackle this issue, you must create a playlist containing only those you prefe
 
 So, if you are looking for information on creating a YouTube music playlist on your Windows or Mac PC, Android, or iPhone web browser, read this article and follow the steps carefully.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Create a YouTube Music Playlist?
 
 Are you one of those who want to listen to their favorite tracks while working out or carrying on their work-related tasks? If that's the case, a YouTube Playlist might come in handy as you don't have to search again and again for your songs on your device.
@@ -37,9 +34,6 @@ Step1 In the first step, turn on your PC, launch a web browser from the desktop 
 
 ![signing into youtube](https://images.wondershare.com/filmora/article-images/2023/03/signing-into-youtube.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** It is only possible to create a YouTube music playlist by signing into your account.
@@ -66,14 +60,8 @@ Finally, click the **"Create"** button, and your YouTube music playlist will be 
 
 Step4 Repeat the second and third steps to save all the other songs you wish to add to the same playlist. Once done, head back to the main YouTube feed page, click "Library," and scroll to the middle of the page in the right pane to access and play the music playlist at your will.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![accessing youtube playlists on web](https://images.wondershare.com/filmora/article-images/2023/03/accessing-youtube-playlists-on-web.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** You can always edit your YouTube music playlist by changing its name, privacy, and description or adding and removing any tracks. It is also possible to delete any of your playlists or create and save multiple playlists on your device's web browser.
@@ -84,10 +72,11 @@ To create a YouTube music playlist on your iPhone, follow these quick steps.:
 
 Step1 Download and launch the YouTube Music app on your [iPhone](https://apps.apple.com/app/youtube-music/id1017492454), sign into your account, and tap a song you want to add to your playlist. Next, tap on the music video once for the create a playlist option to pop up.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ![create playlist on youtube music iPhone app](https://images.wondershare.com/filmora/article-images/2023/03/create-playlist-on-youtube-music-iPhone-app.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step2 Now tap the three horizontal lines with the Plus icon, tap **"+ NEW PLAYLIST"** at the bottom right corner of the screen, and type in the name of the new music playlist.
 
@@ -97,11 +86,16 @@ Step3 In the next step, type in the name of your new playlist, select your priva
 
 ![creating new youtube music playlist on iphone](https://images.wondershare.com/filmora/article-images/2023/03/creating-new-youtube-music-playlist-on-iPhone.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Finally, close the video, tap **"Library"** at the bottom of the screen, scroll down and see your new YouTube music playlist.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Create a YouTube Music playlist on Android?
 
 YouTube Music app interface for Android is different than for iPhone, so do the following steps to create a new playlist quickly.
@@ -110,36 +104,26 @@ Step1 Download and launch the YouTube Music app on your [Android](https://play.g
 
 Then, tap **"Create a new playlist"** at the bottom right corner of the screen, and type in the name of the new music playlist.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![create new playlist youtube android](https://images.wondershare.com/filmora/article-images/2023/03/create-new-playlist-youtube-android.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step2 In the next step, choose your privacy preferences and tap **"OK"** to create the new YouTube music playlist.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![creating youtube music playlist android](https://images.wondershare.com/filmora/article-images/2023/03/creating-youtube-music-playlist-android.png)
 
 Now tap to close the video, tap **"Library"** at the bottom of the screen, scroll down in the middle of the app and view your new YouTube music playlist.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Note:** You may see an option to create a new channel during the YouTube music playlist process. If so, tap "Create Channel" to see the **"+ NEW PLAYLIST"** option on your iPhone and the **"Create a new playlist"** option on your Android YouTube app.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ## Bonus Video Tutorial: From a YouTube User to Creator - How To Make Music Video
 
 You know how to create a YouTube playlist on the web or on your mobile. However, as you are a music lover and use YouTube frequently, are you interested in creating music videos by yourself? If yes, please watch the video below. It will show you how to make music videos with a user-friendly video editor, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). We hope you can enjoy your YouTube music while exploring more creative possibilities:
@@ -148,9 +132,6 @@ You know how to create a YouTube playlist on the web or on your mobile. However,
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 Listening to YouTube's free music tracks is more fun when you do not have to go and forth to search for your favorite songs. You can enjoy the experience more when you have personalized playlists for situations like a long drive, studying, or working in an office.
@@ -181,13 +162,13 @@ Step4 Repeat the second and third steps to save all the other songs you wish to 
 
 ![accessing youtube playlists on web](https://images.wondershare.com/filmora/article-images/2023/03/accessing-youtube-playlists-on-web.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** You can always edit your YouTube music playlist by changing its name, privacy, and description or adding and removing any tracks. It is also possible to delete any of your playlists or create and save multiple playlists on your device's web browser.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Create a YouTube Music playlist on iPhone?
 
@@ -199,19 +180,25 @@ Step1 Download and launch the YouTube Music app on your [iPhone](https://apps.ap
 
 Step2 Now tap the three horizontal lines with the Plus icon, tap **"+ NEW PLAYLIST"** at the bottom right corner of the screen, and type in the name of the new music playlist.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![new playlist option on youtube music app](https://images.wondershare.com/filmora/article-images/2023/03/new-playlist-option-on-youtube-music-app.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step3 In the next step, type in the name of your new playlist, select your privacy preferences, i.e., Private, Public, or unlisted, and tap **"Create"** to complete the process.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![creating new youtube music playlist on iphone](https://images.wondershare.com/filmora/article-images/2023/03/creating-new-youtube-music-playlist-on-iPhone.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Finally, close the video, tap **"Library"** at the bottom of the screen, scroll down and see your new YouTube music playlist.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Create a YouTube Music playlist on Android?
 
@@ -234,8 +221,9 @@ Now tap to close the video, tap **"Library"** at the bottom of the screen, scrol
 **Note:** You may see an option to create a new channel during the YouTube music playlist process. If so, tap "Create Channel" to see the **"+ NEW PLAYLIST"** option on your iPhone and the **"Create a new playlist"** option on your Android YouTube app.
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Bonus Video Tutorial: From a YouTube User to Creator - How To Make Music Video
 
 You know how to create a YouTube playlist on the web or on your mobile. However, as you are a music lover and use YouTube frequently, are you interested in creating music videos by yourself? If yes, please watch the video below. It will show you how to make music videos with a user-friendly video editor, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/). We hope you can enjoy your YouTube music while exploring more creative possibilities:
@@ -262,8 +250,6 @@ So, in this article, we have discussed a step-by-step process for creating **a Y
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -271,4 +257,24 @@ So, in this article, we have discussed a step-by-step process for creating **a Y
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-ultimate-guide-top-6-cutting-edge-21-hdmi-portable-displays-for-2024/"><u>[New] Ultimate Guide Top 6 Cutting-Edge 2.1 HDMI Portable Displays for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-gopro-tips-and-tricks/"><u>[Updated] Gopro Tips and Tricks</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-finding-your-footprint-in-the-world-of-youtube-comments/"><u>[Updated] In 2024, Finding Your Footprint in the World of YouTube Comments</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-from-free-posts-to-fiscal-success-fb-pages-profit-playbook/"><u>[Updated] In 2024, From Free Posts to Fiscal Success FB Pages Profit Playbook</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-innovative-filters-to-make-your-tiktok-stand-out/"><u>[Updated] Innovative Filters to Make Your TikTok Stand Out</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-maximize-engagement-with-custom-youtube-thumbnails-for-2024/"><u>[Updated] Maximize Engagement with Custom YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-tecno-spark-10c-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Tecno Spark 10C without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/comment-resoudre-le-probleme-lorsque-un-fichier-pdf-ne-souvre-pas-sur-votre-ordinateur/"><u>Comment Résoudre Le Problème Lorsque Un Fichier PDF Ne S'ouvre Pas Sur Votre Ordinateur ?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/te-your-ears-10-pro-tips-for-excellent-sound-quality-for-2024/"><u>Elevate Your Ears 10 Pro Tips for Excellent Sound Quality for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/eering-engaging-media-excerpts-for-2024/"><u>Engineering Engaging Media Excerpts for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/aesthetic-essentials-for-youtube-artistry/"><u>Free Aesthetic Essentials for YouTube Artistry</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-your-iphone-13-mini-passcode-4-easy-methods-with-or-without-itunes-by-drfone-ios/"><u>How to Unlock Your iPhone 13 mini Passcode 4 Easy Methods (With or Without iTunes)</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-apple-iphone-xr-location-is-wrong-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fix My Apple iPhone XR Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-master-the-mix-combining-youtube-links-in-stories/"><u>In 2024, Master the Mix Combining YouTube Links in Stories</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/e-innovators-guide-streamlined-channel-launch-for-entrepreneurs-and-content-makers-for-2024/"><u>Mobile Innovators' Guide Streamlined Channel Launch for Entrepreneurs & Content Makers for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/outube-earning-rules-unveiled/"><u>New YouTube Earning Rules Unveiled</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ate-livestream-setup-reviews-on-the-top-livestream-tools-and-devices-for-2024/"><u>Ultimate Livestream Setup Reviews on the Top Livestream Tools and Devices for 2024</u></a></li>
+</ul></div>
 

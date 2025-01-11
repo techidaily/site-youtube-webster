@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  The Premier Video Symposium  Life Past VidCon\""
-date: 2024-07-29T04:43:21.530Z
-updated: 2024-07-30T04:43:21.530Z
+date: 2025-01-04T00:19:46.451Z
+updated: 2025-01-10T20:44:33.191Z
 tags:
   - ai video
   - ai youtube
@@ -18,14 +18,6 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
 
 # Beyond VidCon - A Guide to the Most Important YouTube Events
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -44,14 +36,15 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 6. [Amplify Live (Australia)](#amplify)
 7. [Summer in the City (UK)](#sitc)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **The Most Important YouTube Events**
 
 Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 1. **[VidCon](http://vidcon.com/)**
 
@@ -89,10 +82,11 @@ You have a two-week window (usually the first half of May) to submit your choice
 
 **Washington DC:** September
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
 
@@ -128,6 +122,10 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
 In 2017, 30,000 people attended Beautycon festivals internationally.
@@ -150,10 +148,6 @@ The final type of pass, the **Two-Day Beauty Insider** ($1999) pass, has everyth
 
 These events are customized to the wherever festival is visiting, so you’re always sure to see the big and rising YouTube stars from your region. Generally, these events include performances and activities as well as a Meet & Greet.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
@@ -167,6 +161,10 @@ There is not a steady annual schedule for FanFests, but it has visited these cit
 Sydney, Australia: February
 
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
 
@@ -204,10 +202,11 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 **London, UK:** August
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
@@ -231,9 +230,6 @@ If you buy your tickets during early bird pricing, the prices will look like thi
 
 Have you ever attended an offline YouTube event? Which one, and how did you like it?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -242,14 +238,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -258,4 +251,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/utting-edge-computers-notebook-recommendations-for-editors/"><u>[New] Cutting-Edge Computers Notebook Recommendations for Editors</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-maximize-your-channel-revenue-with-youtubes-new-policies/"><u>[New] In 2024, Maximize Your Channel Revenue with YouTube's New Policies</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/our-guide-to-50-creative-free-youtube-advertising-options-for-2024/"><u>[New] Your Guide to 50 Creative, Free YouTube Advertising Options for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-enhancing-video-quality-editing-tips-for-published-content/"><u>[Updated] 2024 Approved Enhancing Video Quality Editing Tips for Published Content</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-giggle-galore-twitters-top-10-joke-threads/"><u>[Updated] 2024 Approved Giggle Galore Twitter's Top 10 Joke Threads</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-streamlining-co-productions-a-guide-to-more-followers/"><u>[Updated] 2024 Approved Streamlining Co-Productions A Guide to More Followers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-captivating-youtube-thumbnails-on-smartphones/"><u>Crafting Captivating YouTube Thumbnails on Smartphones</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-compelling-solo-videos-on-a-budget/"><u>Creating Compelling Solo Videos on a Budget</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/tial-free-services-for-designing-impactful-youtube-intros-for-2024/"><u>Essential Free Services for Designing Impactful YouTube Intros for 2024</u></a></li>
+<li><a href="https://fox-tls.techidaily.com/fixing-winloadefi-not-found-error-after-cloning-complete-solution/"><u>Fixing Winload.efi Not Found Error After Cloning - Complete Solution</u></a></li>
+<li><a href="https://games-able.techidaily.com/how-does-nvidia-g-sync-transform-your-gaming-vision/"><u>How Does Nvidia G-Sync Transform Your Gaming Vision?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/optimal-aerial-vehicles-your-next-purchase/"><u>Optimal Aerial Vehicles Your Next Purchase</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/ultimate-guide-to-the-top-12-no-cost-video-players-online/"><u>Ultimate Guide to the Top 12 No-Cost Video Players Online</u></a></li>
+</ul></div>
 
