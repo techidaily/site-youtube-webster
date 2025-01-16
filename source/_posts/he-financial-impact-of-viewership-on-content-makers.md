@@ -1,7 +1,7 @@
 ---
 title: "[New] The Financial Impact of Viewership on Content Makers"
-date: 2025-01-06T16:48:13.816Z
-updated: 2025-01-10T20:23:45.718Z
+date: 2025-01-13T19:17:29.049Z
+updated: 2025-01-16T16:31:37.036Z
 tags:
   - ai video
   - ai youtube
@@ -45,7 +45,7 @@ Want a fast answer about how much money a YouTuber makes? [Check out these calcu
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Types of YouTube Ads – What is an Ad Impression?
@@ -55,10 +55,6 @@ If you ask YouTubers about how much they make per thousand views, you'll probabl
 Google’s AdSense service, through which YouTubers make money, pays YouTubers for ad impressions. For most types of ads – including short pre-roll ads, the ads which appear at the bottoms of videos while they play, and the ads which appear as banners to the side of YouTube’s player – an ad impression means someone clicking on the ad and choosing to visit the advertiser’s site. One exception is skippable video ads, for which an impression is created when a viewer watches the ad for 30 seconds.
 
 YouTubers do not make money on the views of their videos, because not all viewers click on ads. Many viewers bypass ads completely using ad-blockers. The amount of money YouTubers earn from a single ad impression is called their CPI or "cost per impression."
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## CPI Rates Explained
 
@@ -81,7 +77,7 @@ How much you make from an ad on YouTube depends on your CPI, cost per impression
 Most people tend to assume that CPI rates are between $0.05 and $10\. This huge difference is justified by YouTube by saying that they use a very complicated algorithm to determine your CPI rate. According to them, it includes evaluating factors like the ads, the type of audience who views your video, audience engagement, audience retention, and the price of the ads.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Much Do Big YouTubers Make?
@@ -97,7 +93,7 @@ According to Google, when an advertiser pays $100 to Google, Google pays $68 to 
 ![How Much Do YouTuber Makes](https://images.wondershare.com/filmora/article-images/how-much-do-youtubers-make.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _This graphic won't apply to every situation because every situation is unique. It's just an example using assumed numbers._
@@ -130,6 +126,10 @@ Instead of relying on YouTube to pay them, YouTubers need to seek out other ways
 
 We all agree that being a YouTube star isn't an easy path. However, if you honestly love what you do, then you will be willing to put effort into making great videos regularly. Part of that is also being willing to take the time to promote them and yourself, as well as putting time and effort into forging a good relationship with your audience.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why No Longer 10,000 Views?
 
 YouTube used to let anybody monetize their videos, but that has now changed. Then for a while, you'll qualify for monetization after reaching 10,000-lifetime views on your channel. But as of 2018, the rules to YouTube monetization has gotten more challenging.
@@ -147,7 +147,7 @@ _Are you finding it difficult to earn money on YouTube? Subscribe to the [Filmor
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -171,18 +171,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/istorical-insights-the-most-relevant-youtube-channels-for-learners/"><u>[New] Historical Insights - The Most Relevant YouTube Channels for Learners</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-youtubes-short-form-videos-10-tactics-for-dominance-in-views/"><u>[Updated] 2024 Approved Youtube's Short-Form Videos - 10 Tactics for Dominance in Views</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-capturepros-a-studio-showdown/"><u>[Updated] CapturePros A Studio Showdown</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-how-to-insert-youtube-links-for-an-engaging-ppt-experience-for-2024/"><u>[Updated] How to Insert YouTube Links for an Engaging PPT Experience for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-infusing-creative-edge-in-your-youtube-trailer-production/"><u>[Updated] Infusing Creative Edge in Your YouTube Trailer Production</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-techniques-for-extracting-mp3-from-instagram-videos/"><u>[Updated] Techniques for Extracting MP3 From Instagram Videos</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-unveiling-vegaspro-the-19-edition/"><u>[Updated] Unveiling VegasPro The '19 Edition</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-youtube-movie-maker-from-beginner-to-pro-edition-for-2024/"><u>[Updated] YouTube Movie Maker From Beginner to Pro Edition for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-quick-start-making-your-own-sports-highlight-film/"><u>2024 Approved Quick Start Making Your Own Sports Highlight Film</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-webm-transformation-from-tweeted-visuals/"><u>2024 Approved WebM Transformation From Tweeted Visuals</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/apple-eyes-ai-integration-in-domestic-robots-spotlighting-two-upcoming-innovations-zdnet/"><u>Apple Eyes AI Integration in Domestic Robots, Spotlighting Two Upcoming Innovations | ZDNet</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721479399778-fix-your-iphones-broken-qr-code-scanning-feature-with-these-10-tips/"><u>Fix Your iPhone's Broken QR Code Scanning Feature with These 10 Tips!</u></a></li>
-<li><a href="https://techidaily.com/how-to-hard-reset-realme-note-50-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Realme Note 50 Without Password | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/uilding-an-engaging-sports-highlight-reel-for-2024/"><u>[New] Building an Engaging Sports Highlight Reel for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-mastering-instagram-incorporating-music-in-videos-and-stories/"><u>[New] In 2024, Mastering Instagram Incorporating Music in Videos & Stories</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-streamlining-your-powerpoint-to-video-journey/"><u>[New] In 2024, Streamlining Your PowerPoint to Video Journey</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-unveiling-youtube-shorts-what-it-all-means/"><u>[New] In 2024, Unveiling YouTube Shorts What It All Means</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-comprehensive-guide-to-enhancing-your-video-gaming-channels/"><u>[New] The Comprehensive Guide to Enhancing Your Video Gaming Channels</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-elevate-your-online-presence-secrets-of-youtube-live-with-wirecast/"><u>[Updated] In 2024, Elevate Your Online Presence Secrets of Youtube Live with WireCast</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-penny-pinching-picks-microphones-under-50/"><u>[Updated] In 2024, Penny-Pinching Picks Microphones Under $50</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-building-an-online-empire-ramp-up-video-views/"><u>2024 Approved Building an Online Empire Ramp Up Video Views</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-elite-15-high-definition-action-recorders/"><u>2024 Approved Elite 15 High-Definition Action Recorders</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-engage-more-dissuade-less-top-6-ways-to-increase-watch-time-and-stayers/"><u>2024 Approved Engage More, Dissuade Less Top 6 Ways to Increase Watch Time and Stayers</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unveiling-hidden-potential-a-deep-dive-into-background-eraser-in-ps/"><u>2024 Approved Unveiling Hidden Potential A Deep Dive Into Background Eraser in PS</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-crafting-content-for-insta-clout-a-9-step-playbook-for-fame/"><u>In 2024, Crafting Content for Insta Clout A 9-Step Playbook for Fame</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-xiaomi-redmi-note-12-5g-in-3-ways-drfone-by-drfone-virtual-android/"><u>In 2024, Edit and Send Fake Location on Telegram For your Xiaomi Redmi Note 12 5G in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ring-youtube-ultimate-guide-to-live-360-degree-streams/"><u>Mastering YouTube Ultimate Guide to Live 360-Degree Streams</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/supercharge-outlook-performance-on-your-windows-machine/"><u>Supercharge Outlook Performance on Your Windows Machine</u></a></li>
+<li><a href="https://extra-information.techidaily.com/trendsetters-pictures-origins-explored/"><u>Trendsetters' Pictures Origins Explored</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Xiaomi 14 | Dr.fone</u></a></li>
 </ul></div>
 

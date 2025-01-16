@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Fixed Video Short Display for You\""
-date: 2024-08-08T07:27:29.016Z
-updated: 2024-08-09T07:27:29.016Z
+date: 2025-01-14T18:17:21.956Z
+updated: 2025-01-16T18:56:56.550Z
 tags:
   - ai video
   - ai youtube
@@ -30,9 +30,6 @@ Here, creators can record, share, and edit short-form video content that's 60 se
 
 However, certain factors are still there, raising the issue or concern of **YouTube Shorts not showing**. Thus, if you can't find the YouTube Shorts option or videos, or YouTube Shorts disappeared, find a solution in this post.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 1: Why Do YouTube Shorts Not Showing Up?
 
 There could be multiple reasons why YouTube Shorts not showing on your phone, the channel's home page etc.
@@ -64,46 +61,36 @@ And, you must note that a YouTube Shorts video consists of two criteria as follo
 * The video has to be vertical (portrait-style)
 * The video must be 60 seconds or less
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 2: How to Fix YouTube Shorts Not Showing Up?
 
 Here’s the section covering fixes on YouTube Shorts not showing. Please give it a read and resolve your issue happily!
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Fix 1: Update the YouTube App
 
 As we've already discussed above, check if your YouTube mobile app has the latest version. The newest version of the YouTube mobile app (Version: 16.17.36) has a dedicated Shorts button at the bottom. And, it replaces the Trending button from the YouTube app.
 
 Moreover, the option to upload Shorts is now hidden behind the **+** icon. Tap on the **+** icon and hit the **Create a Short** option.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-not-showing-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 2: Check If Shorts Is Available in Your Country
 
 Now, YouTube Shorts is available globally, but there was a phase when YouTube Shorts was a beta feature. It was only available in India and the US, which could be why you could not view Shorts in the YouTube app.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Fix 3: YouTube Shorts Is Mobile-only
 
 As of now, YouTube Shorts is only available on a smartphone because it's still in beta version. However, you can create Shorts via smartphone and the camera option in YouTube mobile app. Hence, there's no point in searching for Shorts on your computer.
 
 You can upload Shorts videos from your laptop. The entire process is similar to uploading a regular video. However, you have to mention #Shorts in the title and description to differentiate it as a Shorts video.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### Common Fixes to YouTube Shorts Not Working
 
 1. Update the YouTube App to the latest version.
@@ -116,6 +103,10 @@ The fixes above are also applicable if the YouTube Shorts are not showing on iPh
 
 Or, you can try the VPN solution before contacting the YouTube team.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### If Videos Are Not Visible under YouTube Shorts
 
 **Solution 1:** Ensure that you've added #shorts in the title and description. Those who have YouTube Shorts, they can make shorts videos via the Shorts camera. Those who can't access this camera can also upload their current vertical videos that are less than 60 seconds after adding the hashtag #Shorts in the title or description.
@@ -125,6 +116,10 @@ All in all, you must include #shorts to let the YouTube algorithm figure out the
 **Solution 2:** Sometimes, you may not find YouTube Shorts videos if they're precisely 60 seconds in duration because YouTube sometimes adds 1-2 seconds to a Shorts video for some reason. So, be alert here and ensure your Shorts video is around 58 seconds or less.
 
 **Solution 3:** If your YouTube Shorts is not getting views, you need to wait more here because it takes a while for YouTube to index a Shorts video and suggest them to people. So, it's the task of the algorithm that varies from person to person. Some Shorts videos take several days while others take weeks.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### If YouTube Shorts Videos Are Not Showing up Correctly
 
@@ -138,9 +133,6 @@ Once uploaded, the YouTube Shorts will be displayed in a vertical thumbnail on Y
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-not-showing-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ### Bonus Tip: How to Easily Create Vertical Videos for YouTube Shorts on PC
 
 The YouTube Shorts app is pretty convenient to use nowadays. However, it doesn't allow you to fine-edit the videos if you've explored the app or specifically when you want your videos to look more professional. The app doesn't even have many filtering options, such as Effects, Elements, etc., to make your videos more interactive.
@@ -171,15 +163,16 @@ You can choose among three ways to open the Auto Reframe feature in Filmora.
 
 ![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * **Way 2:** Import media as **File** \> **Import Media Files** and select the file. After you import the media, right-click and choose the **Auto Reframe**.
 
 ![filmora](https://images.wondershare.com/filmora/guide/2-auto-reframe-timeline.jpg)
 
 * **Way 3:** Lastly, you can choose the **Tools** option on the top menu bar and hit the **Auto Reframe**.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/guide/3-auto-reframe-tools.jpg)
 
 **Step 2\. Adjust the Aspect Ratio and Motion Speed**
@@ -192,9 +185,6 @@ There are multiple aspect ratio templates available such as square (1:1), vertic
 
 You can adjust the speed of your video in multiple options: keep it at **Auto** or make it **Slow** or **Fast** as per your requirements.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/guide/5-select-motion-speed.jpg)
 
 **Step 3\. Analyze, and Auto Reframe the Video**
@@ -205,6 +195,10 @@ Then the video will be automatically and quickly reframed to your specified spee
 
 ![filmora](https://images.wondershare.com/filmora/guide/7-restart-reframing.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4\. Preview the Reframed Video and Check**
 
 Lastly, you can preview your final video. If the video needs more work, you can also play and pause it at the point you want to adjust the frame. You can use **Next Edit Point**, **Undo**, **Redo**, and **Previous Edit Point** at the bottom panel.
@@ -214,6 +208,10 @@ Lastly, you can preview your final video. If the video needs more work, you can 
 Finally, after all the final adjustments, you can hit the **Export** tab, name your file and choose the destination folder.
 
 ![filmora](https://images.wondershare.com/filmora/guide/9-export-reframed-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: FAQs about YouTube Shorts
 
@@ -261,14 +259,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -277,6 +272,22 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-guidance-for-effortless-addition-of-youtube-playlists-to-your-site/"><u>[New] In 2024, Guidance for Effortless Addition of YouTube Playlists to Your Site</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-screen-solidarities-picking-the-right-media-company/"><u>[New] In 2024, Screen Solidarities Picking the Right Media Company</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ltimate-guide-igniting-video-visionaries-in-your-channel-for-2024/"><u>[New] Ultimate Guide Igniting Video Visionaries in Your Channel for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-simplified-techniques-for-reordering-yt-videos/"><u>[Updated] 2024 Approved Simplified Techniques for Reordering YT Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-transform-your-viewership-with-immersive-360-livestreams-on-youtube/"><u>[Updated] 2024 Approved Transform Your Viewership with Immersive 360° Livestreams on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-master-your-online-presence-the-ultimate-guide-to-effective-freefire-tags/"><u>[Updated] In 2024, Master Your Online Presence The Ultimate Guide to Effective FreeFire Tags</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-standard-to-spectacular-your-guide-to-selecting-a-stellar-4k-display/"><u>2024 Approved From Standard to Spectacular Your Guide to Selecting a Stellar 4K Display</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-unleash-your-youtube-earnings-a-triad-approach-to-financial-examination-and-analysis/"><u>2024 Approved Unleash Your YouTube Earnings A Triad Approach to Financial Examination and Analysis</u></a></li>
+<li><a href="https://driver-error.techidaily.com/a-step-by-step-approach-to-correctly-orient-images-and-videos-in-asus-laptop-displays/"><u>A Step-by-Step Approach to Correctly Orient Images and Videos in ASUS Laptop Displays</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-down-barriers-with-shared-youtube-curations/"><u>Breaking Down Barriers with Shared YouTube Curations</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-asus-rog-phone-8-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Asus ROG Phone 8 without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/overcoming-the-lime-hitch-up-in-nba-2k21-successful-strategies-revealed/"><u>Overcoming the Lime Hitch-Up in NBA 2K21 – Successful Strategies Revealed</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-ultimate-raspberry-pi-case-for-classic-gaming-projects/"><u>The Ultimate Raspberry Pi Case for Classic Gaming Projects</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-pictures-on-honor-x50i-without-backup-by-fonelab-android-recover-pictures/"><u>The way to recover deleted pictures on Honor X50i without backup.</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-easily-craft-engaging-videos-on-your-mac-with-our-guide-for-2024/"><u>Updated Easily Craft Engaging Videos on Your Mac with Our Guide for 2024</u></a></li>
+</ul></div>
 

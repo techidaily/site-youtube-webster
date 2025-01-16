@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Detailed Guide  YouTube's End Screens Explained\""
-date: 2024-08-08T07:24:13.673Z
-updated: 2024-08-09T07:24:13.673Z
+date: 2025-01-14T17:59:21.492Z
+updated: 2025-01-16T16:32:21.684Z
 tags:
   - ai video
   - ai youtube
@@ -34,8 +34,9 @@ YouTube end screens are a great way to get your viewers who have watched your Yo
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1: Free End Screen Templates Download
 
 [Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle?spm=rs.filmora%5Fweb)
@@ -76,41 +77,34 @@ SoapyEdits is a YouTuber with a [channel](https://www.youtube.com/playlist?list=
 
 Here are some of our favorite ones.
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![SoapyEdits-youtube-end-screen-template-1](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-1.jpg)
 
 Here’s one for the Minecraft fans:
 
 ![SoapyEdits YouTube end screen template Minecraft](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![SoapyEdits YouTube end screen template](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![create-outro-end-screen-with-canva](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
@@ -129,34 +123,28 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -165,14 +153,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -181,6 +166,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/ssential-gif-creation-best-tools-reviewed-and-compared-for-2024/"><u>[New] Essential GIF Creation Best Tools Reviewed & Compared for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-uncover-11-free-effective-youtube-naming-solutions/"><u>[New] In 2024, Uncover 11 Free, Effective YouTube Naming Solutions</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/onetize-more-strategies-for-youtubes-updated-partner-plan-for-2024/"><u>[New] Monetize More Strategies for YouTube's Updated Partner Plan for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-experience-with-vitas-complete-editor-detailed-review-2024/"><u>[New] The Ultimate Experience with Vita's Complete Editor - Detailed Review 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-delving-into-the-advantages-and-disadvantages-of-youtube-premium-for-2024/"><u>[Updated] Delving Into the Advantages and Disadvantages of YouTube Premium for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-expert-psd-shadow-play-for-2024/"><u>[Updated] Expert PSD Shadow Play for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-from-free-to-fortune-unlocking-youtubes-earnings-at-the-500-subscriber-level/"><u>[Updated] From Free to Fortune Unlocking YouTube's Earnings at the 500 Subscriber Level</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-hotspots-for-revolutionary-vr-cinema/"><u>[Updated] Hotspots for Revolutionary VR Cinema</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-enhancing-youtube-videos-proper-lighting-methods/"><u>[Updated] In 2024, Enhancing YouTube Videos Proper Lighting Methods</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-innovations-in-youtube-shorts-templates-latest-trends-and-tips/"><u>[Updated] In 2024, Innovations in YouTube Shorts Templates Latest Trends & Tips</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-incremental-sound-softening-for-professional-productions/"><u>[Updated] Incremental Sound Softening for Professional Productions</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-bridging-games-and-friends-xbox-live-to-facebook-broadcasting/"><u>2024 Approved Bridging Games and Friends Xbox Live to Facebook Broadcasting</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-fashion-filming-simplified-for-macos-users/"><u>2024 Approved Fashion Filming Simplified for MacOS Users</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-the-ultimate-list-of-5-gaming-audio-experts/"><u>2024 Approved The Ultimate List of 5 Gaming Audio Experts</u></a></li>
+<li><a href="https://program-issues.techidaily.com/biomutant-for-pc-expert-strategies-to-avoid-crashes-and-enhance-performance/"><u>Biomutant for PC: Expert Strategies to Avoid Crashes and Enhance Performance</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ngs-enlightenment-joshi-and-youtube-success-stories-for-2024/"><u>Earnings Enlightenment Joshi and YouTube Success Stories for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/immerse-yourself-in-crystal-clear-viewing-with-the-lg-65-4k-oled-smart-tv-an-in-depth-review-by-tech-savvies/"><u>Immerse Yourself in Crystal-Clear Viewing with The LG 65 4K OLED Smart TV: An In-Depth Review by Tech Savvies</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-full-tutorial-to-bypass-your-vivo-x100-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Vivo X100 Face Lock?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ring-content-sharing-on-youtube-without-breaching-copyright/"><u>Mastering Content Sharing on YouTube Without Breaching Copyright</u></a></li>
+</ul></div>
 

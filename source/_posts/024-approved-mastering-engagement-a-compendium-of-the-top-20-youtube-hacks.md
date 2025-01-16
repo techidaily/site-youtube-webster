@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Mastering Engagement  A Compendium of the Top 20 YouTube Hacks\""
-date: 2024-08-08T07:22:55.619Z
-updated: 2024-08-09T07:22:55.619Z
+date: 2025-01-15T18:10:16.159Z
+updated: 2025-01-16T19:20:19.995Z
 tags:
   - ai video
   - ai youtube
@@ -28,16 +28,14 @@ YouTube, as one of the most popular free streaming video portals, the majority o
 
 With that said, the following two-columned tables give you detailed information on the shortcut keys and their respective functions, so you don’t have to grab the mouse every time you want to navigate through the YouTube videos, or do any such similar tasks.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Amazing YouTube Keyboard Shortcuts You May Not Know
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Category 1: YouTube Playback Hotkeys
 
 While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
@@ -46,6 +44,10 @@ While watching a YouTube video, there might be instances when you want to pause 
 | ----------------- | -------------------------------------- |
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
@@ -66,6 +68,10 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Category 3: Manage Playback Speed
 
 This category contains information on increasing or decreasing the playback speed of a YouTube video:
@@ -75,9 +81,6 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Category 4: Managing the Captions
 
 This category talks about managing the video captions using the shortcut keys:
@@ -91,9 +94,9 @@ This category talks about managing the video captions using the shortcut keys:
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -140,9 +143,6 @@ In this section, you will learn how to pull up the list of important YouTube sho
 
 So, when you press the Shift+? on YouTube, you will see a full list of shortcuts.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
 **Conclusion**
@@ -154,8 +154,9 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -164,14 +165,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -180,6 +178,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-4-solutions-for-iphone-hdr-video-washed-out-in-premiere-pro/"><u>[New] 2024 Approved 4 Solutions for iPhone HDR Video Washed-Out in Premiere Pro</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-audiences-in-motion-analyzers-for-2024/"><u>[New] Audiences in Motion Analyzers for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/azzle-and-stand-out-50-free-youtube-branding-pieces-for-2024/"><u>[New] Dazzle and Stand Out 50 FREE YouTube Branding Pieces for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-add-on-effectiveness-implementing-end-cuts-on-vimeo/"><u>[New] In 2024, Add-On Effectiveness Implementing End Cuts on Vimeo</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ove-in-full-view-discovering-youtube-and-vimeos-top-7-wedding-movies-for-2024/"><u>[New] Love in Full View Discovering Youtube & Vimeo's Top 7 Wedding Movies for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/illions-watch-but-how-much-do-they-earn/"><u>[New] Millions Watch, But How Much Do They Earn?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ust-have-gear-for-kickstarting-your-youtube-journey-for-2024/"><u>[New] Must-Have Gear for Kickstarting Your YouTube Journey for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-first-steps-into-filmmaking-the-ultimate-guide-for-making-your-first-10-youtube-videos/"><u>[Updated] 2024 Approved First Steps Into Filmmaking The Ultimate Guide for Making Your First 10 YouTube Videos</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-expert-tips-for-efficient-music-integration-in-premiere-pro/"><u>[Updated] Expert Tips for Efficient Music Integration in Premiere Pro</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-master-the-art-of-repeating-iphones-videos/"><u>[Updated] In 2024, Master the Art of Repeating iPhones Videos</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/break-through-barriers-essential-tips-for-dealing-with-cannot-save-here-restrictions-7-strategies/"><u>Break Through Barriers: Essential Tips for Dealing with 'Cannot Save Here' Restrictions (7 Strategies)</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chatgpts-side-hustles-balancing-passion-and-paychecks/"><u>ChatGPT's Side Hustles: Balancing Passion and Paychecks</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-or-downgrade-apple-iphone-12-pro-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade Apple iPhone 12 Pro Without iTunes? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ling-allure-comprehensive-beauty-how-tos-on-youtube-for-2024/"><u>Unveiling Allure Comprehensive Beauty How-Tos on Youtube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/visual-anonymity-in-sharing-blurring-methods-explained-for-2024/"><u>Visual Anonymity in Sharing Blurring Methods Explained for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  How to View YouTube Statistics\""
-date: 2024-08-08T07:25:03.717Z
-updated: 2024-08-09T07:25:03.717Z
+date: 2025-01-11T19:16:05.964Z
+updated: 2025-01-16T19:01:57.731Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/69f3067d39675d6781ab4c7e0458c920b25824eda
 
 # How to View YouTube Statistics
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -42,16 +39,18 @@ The information available for each video includes how many new subscribers it at
 
 As one of the best video editing software for YouTube, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface, which saves much time. After editing, you can upload the video to YouTube directly when export. Download the free trial version below and start making YouTube videos with Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Get free YouTube Subscribers Guide Banner](https://images.wondershare.com/filmora/article-images/get-free-youtube-subs-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to View Your YouTube Statistics
 
 In order to view your YouTube Analytics, sign in to your YouTube account and go to your Creator Studio. From there, click into the Analytics tab in the menu on the left of your screen.
@@ -61,8 +60,9 @@ In order to check which of your videos are performing the best, click on **Watch
 The two main types of analytics reports are Watch Time Reports and Interaction Reports.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1. Interpreting YouTube Watch Time Reports
 
 To find **Watch time reports** you just need to log into your Google account, go to the **Creator studio**, click the analytics tab, and then click on **watch time**. You can see the watch time of every video on your channel, which is important data to have because watch time is the most important factor when it comes to ranking your video in search results.
@@ -78,8 +78,9 @@ In the watch time reports for individual videos, you will be able to see data on
 Click here for more tips on [increasing your views](https://www.filmora.io/community-blog/12-proven-ways-to-increase-youtube-views-315.html).
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2. Interpreting YouTube Interaction Reports
 
 Interaction reports are related to the actions viewers take – i.e. subscribing to your channel, liking your videos, or leaving a comments. You can find interaction reports in the **Creator Studio** under **Analytics**.
@@ -104,15 +105,16 @@ Interaction reports can be broken down into several different reports that can h
 
 **7\. 360 heat map reports:** A heat map report works specifically with 360° videos if you are choosing to engage your audience with this type of content. Viewing YouTube video statistics for 360° heat maps will help to show the areas on your video that viewers are most interested in.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to View Other Peoples YouTube Statistics
 
 If you want to check out the statistics of rival YouTube channels ([including the most subscribed channels on YouTube](https://www.filmora.io/community-blog/youtube-subscriber-chart---the-5-most-subscribed-youtube-channels-320.html)), or channels you’re a fan of, try using [Social Blade](http://www.socialblade.com). Social Blade is one of the most trusted sources of YouTube data, and it may actually be easier to check your own basic stats there than in the Creator Studio sometimes due to their simple layout. To get started all you need to do is type the name of any YouTube channel into the search bar. You’ll be able to see reports on daily views, channel growth, and even estimated ad revenue ([learn more about how to view a channel's ad revenue here](https://www.filmora.io/community-blog/youtube-view-calculators---calculate-youtube-money%21-322.html)).
 
 Now that you know how to view YouTube statistics, what will you do with them?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -121,14 +123,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -137,6 +136,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-click-your-way-to-fun-top-12-pc-titles-of-2021/"><u>[New] 2024 Approved Click Your Way to Fun Top 12 PC Titles of 2021</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-perfect-your-video-cropping-technique-for-instagram-sharing/"><u>[New] In 2024, Perfect Your Video Cropping Technique for Instagram Sharing</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/48761694-new-sharing-stories-that-resonate-with-a-digital-audience-yt/"><u>[New] Sharing Stories that Resonate with a Digital Audience YT</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-insights-for-asmr-aficionados/"><u>[Updated] 2024 Approved Essential Insights for ASMR Aficionados</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-exquisite-couple-clips-the-best-weddings-online-8-picks/"><u>[Updated] 2024 Approved Exquisite Couple Clips The Best Weddings Online (8 Picks)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-uncover-top-15-sci-tech-youtube-channels-for-learners/"><u>[Updated] 2024 Approved Uncover Top 15 Sci-Tech YouTube Channels for Learners</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-tighten-up-your-timeline-youtube-video-trimming-techniques/"><u>[Updated] In 2024, Tighten Up Your Timeline YouTube Video Trimming Techniques</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-instant-access-to-12-high-quality-livestreams-for-2024/"><u>[Updated] Instant Access to 12 High-Quality Livestreams for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-11-fitness-youtube-video-ideas-to-keep-you-and-your-viewers-moving/"><u>2024 Approved 11 Fitness YouTube Video Ideas to Keep You and Your Viewers Moving</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-how-to-get-royalty-free-music-for-your-youtube-videos/"><u>2024 Approved How To Get Royalty Free Music for Your YouTube Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-the-ultimate-travel-guide-youtubes-best-vlogs/"><u>2024 Approved The Ultimate Travel Guide YouTube's Best Vlogs</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/paying-regularly-for-youtube-premium-give-you-more-than-just-an-ad-free-view-in-2024/"><u>Does Paying Regularly For YouTube Premium Give You More Than Just An Ad-Free View, In 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/enshrouded-game-fixed-now-running-smoothly-on-your-computer/"><u>Enshrouded Game Fixed: Now Running Smoothly on Your Computer</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-honor-magic-5-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Honor Magic 5 | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-frozen-frontier-showcasing-2022s-olympic-peaks-and-precision-riders/"><u>In 2024, Frozen Frontier Showcasing 2022'S Olympic Peaks and Precision Riders</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/navigating-tablet-buying-decisions-with-these-8-critical-points/"><u>Navigating Tablet Buying Decisions with These 8 Critical Points</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/windows-11-masterclass-crafting-unique-lock-patterns/"><u>Windows 11 Masterclass: Crafting Unique Lock Patterns</u></a></li>
+</ul></div>
 

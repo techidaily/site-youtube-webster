@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Constructive Approaches to Defeating Digital Trolls\""
-date: 2024-08-08T07:27:28.047Z
-updated: 2024-08-09T07:27:28.047Z
+date: 2025-01-09T16:22:31.530Z
+updated: 2025-01-16T19:01:36.514Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/4a9b602cddaa14e95b4c74e25b7d2e53d393546d8
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/4a9b602cddaa14e95b4c74e25b7d2e53d393546d8
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,10 +56,11 @@ thumbnail: https://thmb.techidaily.com/4a9b602cddaa14e95b4c74e25b7d2e53d393546d8
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -69,14 +68,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -85,6 +81,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://win-howtos.techidaily.com/fixed-windows-driver-foundation-using-high-cpu/"><u>[Fixed] Windows Driver Foundation Using High CPU</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-unique-themes-redesign-your-youtube-presence/"><u>[New] 2024 Approved Unique Themes Redesign Your YouTube Presence</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-elevate-views-and-subscribers-a-list-of-proven-youtube-techniques/"><u>[New] In 2024, Elevate Views and Subscribers A List of Proven YouTube Techniques</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-transforming-raw-footage-expert-pc-editing-tips-for-youtube-creators/"><u>[New] In 2024, Transforming Raw Footage Expert PC Editing Tips for YouTube Creators</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-scouting-for-cost-effective-clouds-a-pricing-analysis-of-2024/"><u>[New] Scouting for Cost-Effective Clouds A Pricing Analysis of 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/op-picks-7-best-live-streaming-apps-to-upgrade-your-youtube-presence-iosandroid-for-2024/"><u>[New] Top Picks 7 Best Live Streaming Apps to Upgrade Your YouTube Presence (iOS/Android) for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-key-to-earning-on-youtube-in-depth-ad-revenue-guidebook/"><u>[Updated] 2024 Approved The Key to Earning on YouTube In-Depth Ad Revenue Guidebook</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-critical-review-discovering-dji-phantom-3-professional-drones-strengths/"><u>[Updated] Critical Review Discovering DJI Phantom 3 Professional Drone's Strengths</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-navigate-the-melody-maze-crafting-a-personalized-youtube-playlist/"><u>[Updated] Navigate the Melody Maze Crafting a Personalized YouTube Playlist</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-ultimate-compilation-top-11-streaming-gear-insights-for-2024/"><u>[Updated] Ultimate Compilation Top 11 Streaming Gear Insights for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-hone-your-sight-the-top-5-ways-to-zoom-in-minecraft/"><u>2024 Approved Hone Your Sight The Top 5 Ways to Zoom in Minecraft</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/6-best-slideshow-making-apps-on-iphone-11xrxsx876/"><u>6 Best Slideshow-Making Apps on iPhone 11/XR/Xs/X/8/7/6</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/visual-experts-choices-the-ultimate-video-editing-gear/"><u>Audiovisual Experts' Choices The Ultimate Video Editing Gear</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-call-logs-from-xperia-10-v-by-fonelab-android-recover-call-logs/"><u>How to retrieve erased call logs from Xperia 10 V?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/techniques-to-write-persuasive-videographic-dialogues/"><u>Techniques to Write Persuasive Videographic Dialogues</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  From Passive to Active Earnings  Unlocking Youtube with 500+ Fans\""
-date: 2024-08-08T07:26:34.225Z
-updated: 2024-08-09T07:26:34.225Z
+date: 2025-01-10T16:11:38.372Z
+updated: 2025-01-16T16:15:12.503Z
 tags:
   - ai video
   - ai youtube
@@ -43,14 +43,19 @@ The new requirements are lower than the old ones. Previously, you were required 
 
 YouTube announced in 2022 that they were evolving the YPP to continue rewarding more creators. Starting mid-June 2023, the program was expanded to allow more creators to access monetization benefits.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Know If You are Eligible**
 
 As a creator, you will want to know if you are eligible for the YouTube monetization 500 subscribers’ plan. Make sure that the notify feature on your channel is active to receive a notification. Go to the Earn area of the YouTube channel, and select Get Notified. Once selected, YouTube will send you an email when reach above the eligibility threshold.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![notify me](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-2.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **What You Need to Join Expanded YPP**
 
@@ -63,9 +68,6 @@ Joining the expanded YouTube Partner Program has the same requirements as the ea
 * No Community Guidelines strikes on your Channel
 * Have advanced features access on YouTube
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ### **Where to Apply for Monetization**
 
 After meeting the eligibility criteria, you will need to apply to be enrolled in the YPP. Remember that being eligible does not automatically translate to instant income. You need to apply for the program and wait for the approval. Here are the steps to follow:
@@ -76,18 +78,16 @@ After meeting the eligibility criteria, you will need to apply to be enrolled in
 
 ![youtube studio](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-3.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step 2Click Earn in the left menu
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ![youtube earn](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-4.JPG)
 
 ##### Step 3Click Apply Now to review and Accept the base terms
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube base terms](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-5.JPG)
 
 ##### Step 4Click Start to set up an AdSense account
@@ -117,15 +117,13 @@ Once you submit your application, YouTube’s automated systems and human review
 Sometimes the first application may not be successful for some reason. In this case, creators are encouraged to continue uploading original content and try again after 30 days. For second or other rejections, you are allowed to try again after 90 days. During this period, make sure that your channel follows YouTube policies and guidelines to increase your chances of being accepted.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **Choose How to Earn**
 
 The major way of earning money on YouTube is through ads that show in your videos. In the case of Shorts, the ad-sharing revenue involves YouTube sharing the revenue generated from the ads with creators. However, getting accepted to YPP also allows you to start earning with fan funding and Shopping features. This means that creators can earn money directly from their views using these unique features
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ![youtube monetization features](https://images.wondershare.com/filmora/article-images/2023/unlock-youtube-monetization-with-500-subscribers-7.JPG)
 
 YouTube monetization 500 subscribers update allows you to earn money through monetization features that were not there before. This allows creators to interact more with their viewer while generating income. The main fan funding features include:
@@ -134,6 +132,10 @@ YouTube monetization 500 subscribers update allows you to earn money through mon
 2. **Super Thanks:** Earn revenue from viewers who show extra gratitude for your videos.
 3. **Super Stickers and Super Chat:** Allows your fans to buy Super Chats that highlight their messages or add fun animated images in the live chat.
 4. **Shopping:** Allows you to connect your official merchandise story to YouTube to showcase your products.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Part 3\.** **Edit Your Shorts for Monetization with WonderShare Filmora**
 
@@ -145,28 +147,22 @@ The quality of your Shorts plays an essential role in determining whether your c
 
 Filmora offers creators fantastic editing features to create better Shorts. Let’s have a look at some of the features you may find helpful:
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **1\.** **AI Copywriting**
 
 YouTube Shorts require quick content that covers everything within 60 seconds. With the Filmora AI Copywriting feature, you can get inspiration and add text to your videos. Express your thoughts more clearly and generate text that makes the video more engaging.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. **Split Screen Video Editor**
 
 YouTube Shorts are limited to a length of 1 minute only. Since 60 seconds is quite a short time, you may want to showcase your content on multiple screens. The Split Screen Video Editor on Filmora allows you to make a split screen instantly. Choose from the readily available templates and show your audience what you want from multiple perspectives in the same video.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. **Motion Tracking**
 
 With YouTube Shorts, you need to be more creative. Adding objects to your videos makes them fun and engaging. The motion tracking feature on Filmora allows you to track the movement of an object in the video. You can then pin graphics on the object, making the video more exciting. You can also add specific text and align it to an object, allowing your audience to follow through the story.
@@ -175,9 +171,6 @@ With YouTube Shorts, you need to be more creative. Adding objects to your videos
 
 The way you present your video means a lot to the audience. No one wants a boring or a really slow-moving video. With the Speed Ramping feature on Filmora, you can adjust the speed of your Shorts with better control of your keyframes. This allows you to create unique cinematic effects that keep the audience wanting more of the content.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Conclusion**
 
 The introduction of the YouTube monetization 500 subscribers’ policy update was a special moment for small YouTubers. It meant that the platform was extending its YPP program to more creators, allowing them to earn money from their content. Lowering the monetization requirement gives more people a chance to make money faster. However, it is important to make sure that your videos are offering value to your audience. We recommend using Wondershare Filmora to edit your videos and make sure they stand out from the competition. The better your videos will be, the more views you will get, and the more money you will make.
@@ -186,14 +179,11 @@ The introduction of the YouTube monetization 500 subscribers’ policy update wa
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -202,6 +192,20 @@ The introduction of the YouTube monetization 500 subscribers’ policy update wa
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-epic-zombie-battles-our-favorites-revealed/"><u>[New] 2024 Approved Epic Zombie Battles Our Favorites Revealed</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/eap-from-youtube-to-dailymotion-with-ease/"><u>[New] Leap From YouTube to Dailymotion with Ease</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-proficient-use-of-audacity-for-high-quality-recordings/"><u>[New] Proficient Use of Audacity for High-Quality Recordings</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/hrifty-tips-for-hosting-webinars-on-youtube/"><u>[New] Thrifty Tips for Hosting Webinars on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-best-10-free-youtube-subtitle-extractors-and-downloaders/"><u>[Updated] Best 10 Free YouTube Subtitle Extractors & Downloaders</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-dynamic-subscriber-buttons-for-video-creators-filmora-edition/"><u>[Updated] In 2024, Dynamic Subscriber Buttons for Video Creators - Filmora Edition</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-unveiling-storytelling-through-scenery/"><u>[Updated] In 2024, Unveiling Storytelling Through Scenery</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-exclusive-hd-benefits-turn-on-av1-in-youtube-settings/"><u>2024 Approved Exclusive HD Benefits Turn On AV1 in YouTube Settings</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-mastering-the-art-of-youtube-music-reactions-essential-tips/"><u>2024 Approved Mastering the Art of YouTube Music Reactions - Essential Tips</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/4-quick-ways-to-transfer-contacts-from-apple-iphone-11-pro-max-to-iphone-withwithout-itunes-drfone-by-drfone-transfer-from-ios/"><u>4 Quick Ways to Transfer Contacts from Apple iPhone 11 Pro Max to iPhone With/Without iTunes | Dr.fone</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/expert-guide-on-transferring-data-from-samsung-devices-using-a-compatible-samsung-solid-state-drive-ssd/"><u>Expert Guide on Transferring Data From Samsung Devices Using a Compatible Samsung Solid State Drive (SSD)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-transforming-youtube-videos-bars-free-vision/"><u>In 2024, Transforming YouTube Videos Bars-Free Vision</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723208842706-winning-against-wifi-fix-your-bluetooth-pairing-woes-on-windows-11-tips-and-tricks/"><u>Winning Against WiFi: Fix Your Bluetooth Pairing Woes on Windows 11 - Tips & Tricks !</u></a></li>
+</ul></div>
 

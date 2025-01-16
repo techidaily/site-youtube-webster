@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Captivate Audiences  Techniques for Livestreaming Video in Spherical Views on YouTube\""
-date: 2024-08-08T07:23:12.576Z
-updated: 2024-08-09T07:23:12.576Z
+date: 2025-01-11T19:05:56.383Z
+updated: 2025-01-16T18:57:23.752Z
 tags:
   - ai video
   - ai youtube
@@ -27,59 +27,45 @@ thumbnail: https://thmb.techidaily.com/56330953ffdc4465c49b828b7088926c62fd587a1
 * [Part1.Stream 360 to Youtube via Ricoh Theta S and OBS on PC](#part1)
 * [Part2.Live Stream from Allie 360 Camera to YouTube on Mobile](#part2)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1\. Stream 360 to Youtube via Ricoh Theta S and OBS on PC
 
 **Step 1:** First of all you need to get ready with your Ricoh Theta S 360 camera unit.
 
 **Step 2:** Now visit the [official website](https://theta360.com/en/support/download/) of Theta 360 in order to download your dedicated live streaming application.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![official website](https://images.wondershare.com/filmora/article-images/official-website.jpg)
 
 **Step 3:** Get your application and install it on your Mac or PC as per need.
 
 **Step 4:** It is time to plug in to your Ricoh Theta S 360 camera using your PC.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Richoh Theta](https://images.wondershare.com/filmora/article-images/richoh-theta.jpg)
 
 **Step 5:** Now select your device ‘Ricoh Theta S’ and then hit Okay.
 
 ![click OK](https://images.wondershare.com/filmora/article-images/click-ok.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 6:**  You will find option to register to application with your respective device. Select and hit register.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![Click register](https://images.wondershare.com/filmora/article-images/click-register.jpg)
 
 **Step 7:** As soon as your registration process is complete then un-plug your USB cable.
 
 **Step 8:** It is time to turn the Ricoh Theta device to Live Mode; you simple need to press the top power and lower video button simultaneously to directly switch to the live mode.
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ![bottom video](https://images.wondershare.com/filmora/article-images/bottom-video.jpg)
 
 **Step 9:** Once your device enters into Live Stream mode then a Led will start blinking on your device that represents your device is live at this moment.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ![led](https://images.wondershare.com/filmora/article-images/led.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 10:** Now you need to plug in the USB cable again with your computer.
 
@@ -89,6 +75,10 @@ No advertising on the website.
 
 ![Create scene](https://images.wondershare.com/filmora/article-images/create-scene.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 13:** Select video capture device as your source from drop down menu.
 
 ![device as](https://images.wondershare.com/filmora/article-images/device-as.jpg)
@@ -97,11 +87,12 @@ No advertising on the website.
 
 ![Theta UVC](https://images.wondershare.com/filmora/article-images/theta-uvc.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 15:** You need to adjust screen as per your requirements.
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ![screen](https://images.wondershare.com/filmora/article-images/screen.jpg)
 
 **Step 16:** Now move to YouTube and then hit New Live Events option.
@@ -116,9 +107,6 @@ No advertising on the website.
 
 **Step 19:** Now complete the ingesting settings and finally select create new stream option.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ![new stream option](https://images.wondershare.com/filmora/article-images/new-stream-option.jpg)
 
 **Step 20:** As soon as your event is created then you will be able to find your stream name on screen, copy it and simply paste it on OBS window.
@@ -136,8 +124,13 @@ No advertising on the website.
 ![360 live](https://images.wondershare.com/filmora/article-images/360-live.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2.Live Stream from Allie 360 Camera to YouTube on Mobile
 
 **Step 1:** Get ready with your Allie 360 camera unit.
@@ -153,11 +146,12 @@ No advertising on the website.
 
 ![air plane mode](https://images.wondershare.com/filmora/article-images/air-plane-mode.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5:** Simply open your Allie application and then connect your camera.
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![allie app](https://images.wondershare.com/filmora/article-images/allie-app.jpg)
 
 **Step 6:** Now users need to hit stream icon on screen.
@@ -166,19 +160,21 @@ No advertising on the website.
 
 **Step 7:** You will be asked to fill the necessary information about your video. It is also possible to make adjustments regarding video quality. Once you are done with all required settings then hit Submit option.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![click submit](https://images.wondershare.com/filmora/article-images/click-submit.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 8:** Soon your video will become live; note that you can also share your live video via SNS platform with other viewers.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![SNS platform](https://images.wondershare.com/filmora/article-images/sns-platform.jpg)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -186,14 +182,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -202,6 +195,17 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/inema-craftsmanship-unleashed-youtube-green-screens-101/"><u>[New] Cinema Craftsmanship Unleashed Youtube Green Screens 101</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-navigating-youtube-video-production-tools/"><u>[New] In 2024, Navigating YouTube Video Production Tools</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-your-smartphone-as-an-artists-canvas-producing-quality-youtube-video-content/"><u>[New] In 2024, Your Smartphone as an Artist’s Canvas Producing Quality YouTube Video Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/treamlining-creation-top-10-easy-to-create-biz-channels-on-youtube-for-2024/"><u>[New] Streamlining Creation Top 10 Easy-to-Create Biz Channels on YouTube for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-the-ultimate-strategy-for-organizing-a-zoom-event-on-your-phonetablet/"><u>[Updated] In 2024, The Ultimate Strategy for Organizing a Zoom Event on Your Phone/Tablet</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/converting-ts-videos-to-compatible-types-mp4-flv-wmv-and-others/"><u>Converting TS Videos to Compatible Types: MP4, FLV, WMV & Others</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/hiding-your-drive-in-the-windows-1110-shadows/"><u>Hiding Your Drive in the Windows 11/10 Shadows</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-messages-on-lava-blaze-2-5g-by-fonelab-android-recover-messages/"><u>How to restore wiped messages on Lava Blaze 2 5G</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-complete-guide-on-unlocking-iphone-8-plus-with-a-broken-screen-drfone-by-drfone-ios/"><u>In 2024, Complete Guide on Unlocking iPhone 8 Plus with a Broken Screen? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-art-of-conveying-excitement-perfecting-your-valorant-video-thumbnails-for-2024/"><u>The Art of Conveying Excitement Perfecting Your Valorant Video Thumbnails for 2024</u></a></li>
+</ul></div>
 
