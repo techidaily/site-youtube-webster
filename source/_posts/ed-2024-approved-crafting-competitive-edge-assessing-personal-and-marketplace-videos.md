@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Crafting Competitive Edge  Assessing Personal and Marketplace Videos\""
-date: 2025-01-10T18:16:01.379Z
-updated: 2025-01-16T17:07:02.769Z
+date: 2025-01-15T19:16:48.188Z
+updated: 2025-01-22T16:13:21.641Z
 tags:
   - ai video
   - ai youtube
@@ -31,10 +31,6 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to analyze your own YouTube channel/video?
 
  It is important to have reliable YouTube analytics tools for your brand, as videos on YouTube are searchable through Google. They contribute to generate organic traffic for you using both Google and YouTube as a medium. YouTube has a default dedicated analytics mechanism to measure how the video fares in YouTube to gain the most out of it.
@@ -49,10 +45,6 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-views.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 2\.  Playback Location
 
  As 'Playback locations' of YouTube videos can reveal where does all the traffic come from, it would help your channel figure out for which location the video has fared well. It will guide you to reach the backlinks locations/sites. Knowing the popular locations for your YouTube video being played, you can know whether YouTube is the search engine or they have been diverted from somewhere else. Depending on the video playing locations, the views will be segregated in to embedded video, YouTube watch page, mobile devices, and YouTube channel page. Understanding location specific views would help you decide where should you focus to enhance the performance of your video.
@@ -64,6 +56,10 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
  The demographics page helps you get YouTube insights, using them you can know the audience in a gender and location specific manner. For local businesses targeting a certain region, YouTube analytics would prove to be a boon. You can also know the geography and device used by the viewers with this feature. Understanding the gender and location of people will help you create dedicated product videos that would be helpful to them.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-demographic.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 4\.  Traffic sources
 
@@ -90,7 +86,7 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-likes-and-dislikes.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 8\.  Subscribers
@@ -98,6 +94,10 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
  YouTube analytics help you determine the engagement metrics to explain the origin of your subscribers. It includes both their geo-location, the date of subscription, and the source/medium they used to land with your video on YouTube. You can observe the number of people subscribing and unsubscribing from your YouTube channel.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-subscribers.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The subscription stream enables your audience to get suggestions for new videos from your channel and offer better exposure to the service and products you offer.
 
@@ -108,6 +108,10 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
  While considering YouTube Analytics, it is essential to understand that there are annotations to guide viewers to your business site for more content. It is not necessary that the content is video only, it might include a blog post as well. This will let you understand the click through rate and 'close' rates for every annotation. This in turn will assist you in optimizing how to reach your audience and where to place the annotations.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-annotations.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 10\.  Comments
 
@@ -128,7 +132,7 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-sharing.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 13\.  Videos in playlists
@@ -136,10 +140,6 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
  Favorites has been renamed to 'Videos in playlists'. Your reach broadens as people keep marking your videos as favorites on their playlist. This is visible to the public on the YouTube channel itself.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playlists.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to analyze your competitors
 
@@ -155,6 +155,10 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 
 ![InflueNex YouTube Marketing Paltform ](https://images.wondershare.com/filmora/article-images/influenex-youtube-marketing-paltform.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 2\. [Rival IQ](https://www.rivaliq.com/)
 
  This YouTube analytics tool helps you increase social media engagement, conduct competitive analysis to track competition, discovers new content ideas for your target audience. You can use it to leverage your foothold in YouTube.
@@ -166,10 +170,6 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
  Read More to Get: [5 Methods to Go Frame by Frame on YouTube Video >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -192,20 +192,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-composing-captivating-cutting-edge-synopses/"><u>[New] Composing Captivating Cutting-Edge Synopses</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ow-to-pick-a-unique-name-for-youtube-channel-filmora/"><u>[New] How To Pick a Unique Name for YouTube Channel - Filmora</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/s-it-legal-to-record-youtube-in-2024/"><u>[New] Is It Legal to Record YouTube, In 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/kyrocketing-to-million-dollar-views-best-hashtags/"><u>[New] Skyrocketing to Million-Dollar Views Best Hashtags</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-broadcast-easily-3-steps-to-post-mp3-on-youtube-for-2024/"><u>[Updated] Broadcast Easily 3 Steps to Post MP3 on YouTube for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-case-study-approach-learning-from-successful-market-research-examples/"><u>[Updated] Case Study Approach Learning From Successful Market Research Examples</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-best-free-call-apps-on-android-ranks-them/"><u>[Updated] In 2024, Best Free Call Apps on Android, Ranks Them</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-the-art-of-assembling-a-youtube-music-playlist/"><u>[Updated] In 2024, The Art of Assembling a YouTube Music Playlist</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-follow-the-flow-of-forum-fancies/"><u>2024 Approved Follow the Flow of Forum Fancies</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-unlocking-creative-potential-using-google-trends-insights/"><u>In 2024, Unlocking Creative Potential Using Google Trends Insights</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/installing-and-updating-your-canon-printer-drivers-made-simple-with-windows-support/"><u>Installing and Updating Your Canon Printer Drivers Made Simple with Windows Support</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/leading-photo-and-tune-recorders-for-immersive-experience-for-2024/"><u>Leading Photo & Tune Recorders for Immersive Experience for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209598656-9780285642263-the-hollow-earth-enigma/"><u>The Hollow Earth Enigma | Free Book</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-how-to-repair-non-functional-mic-on-windows-11-and-10-during-google-meets/"><u>Troubleshooting Guide: How to Repair Non-Functional Mic on Windows 11 and 10 During Google Meets</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/unlocking-ppts-potential-with-voiceover-techniques/"><u>Unlocking PPT's Potential with Voiceover Techniques</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-10-highest-performing-business-youtube-platforms-explained/"><u>[New] 2024 Approved 10 Highest Performing Business YouTube Platforms Explained</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-clearing-up-confusion-understanding-digital-rights-management-drm/"><u>[New] 2024 Approved Clearing Up Confusion Understanding Digital Rights Management (DRM)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rafting-an-engaging-online-presence-the-complete-guide-to-youtube-submissions-for-2024/"><u>[New] Crafting an Engaging Online Presence The Complete Guide to YouTube Submissions for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-charting-a-course-essential-equipment-for-youtube-enthusiasts/"><u>[New] In 2024, Charting a Course Essential Equipment for YouTube Enthusiasts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/urning-views-into-revenue-mastering-youtubes-financial-landscape-for-2024/"><u>[New] Turning Views Into Revenue Mastering YouTube's Financial Landscape for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-tug-of-war-youtube-licensing-versus-cc-principles/"><u>[Updated] 2024 Approved The Tug-of-War Youtube Licensing Versus CC Principles</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-envision-images-with-circular-focus-shift-ps-for-2024/"><u>[Updated] Envision Images with Circular Focus Shift PS for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-break-through-bot-barriers-rising-from-the-crowd/"><u>[Updated] In 2024, Break Through Bot Barriers Rising From the Crowd</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-joy-journeys-a-curated-list-of-the-best-humor-vids-online/"><u>[Updated] Joy Journeys A Curated List of the Best Humor Vids Online</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-ios-and-android-tips-for-silent-youtube-viewing/"><u>2024 Approved IOS & Android Tips for Silent YouTube Viewing</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/o-record-your-iphone-or-ipad-screen-for-youtube/"><u>How to Record Your iPhone or iPad Screen for YouTube</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-from-tecno-pova-5-pro-by-fonelab-android-recover-data/"><u>How to recover lost data from Tecno Pova 5 Pro?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-activation-lock-on-the-iphone-8-plus-without-previous-owner-by-drfone-ios/"><u>How to Remove Activation Lock On the iPhone 8 Plus Without Previous Owner?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-guide-finding-perfect-music-for-unpack-videos/"><u>In 2024, Guide Finding Perfect Music For Unpack Videos</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-premier-humor-photoshop-studio/"><u>In 2024, Premier Humor Photoshop Studio</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-purge-mastery-delete-to-disappear/"><u>Instagram Purge Mastery: Delete to Disappear</u></a></li>
 </ul></div>
 

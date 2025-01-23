@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Build Stellar YouTube Beginnings on a Shoestring Budget\""
-date: 2024-08-15T14:13:54.102Z
-updated: 2024-08-16T14:13:54.102Z
+date: 2025-01-19T19:00:50.079Z
+updated: 2025-01-22T17:27:03.204Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/1a0a225965c2ce4acfd77f7b81b0abb5e4b211b4f
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -78,8 +86,9 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -114,8 +123,9 @@ Some creators will leave their end cards at that and play music overtop, but it 
 14. Click **Apply Changes**.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -124,14 +134,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -140,6 +147,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-expert-insights-into-crafting-dynamic-youtube-shorts-templates/"><u>[New] 2024 Approved Expert Insights Into Crafting Dynamic YouTube Shorts Templates</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-androvid-video-editor-complete-review/"><u>[New] AndroVid Video Editor – Complete Review</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-discovering-the-newest-tiktok-songs-that-excite-us/"><u>[New] Discovering the Newest TikTok Songs that Excite Us</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/evolutionize-your-video-presence-with-personalized-shorts-thumbnails/"><u>[New] Revolutionize Your Video Presence with Personalized Shorts Thumbnails</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ecrets-of-saving-youtube-thumbnails-in-various-formats/"><u>[New] Secrets of Saving Youtube Thumbnails in Various Formats</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-ultimate-guide-to-charging-up-your-video-empire/"><u>[New] The Ultimate Guide to Charging Up Your Video Empire</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-mov-in-the-cloud-top-six-techniques-for-windows-11-users/"><u>[Updated] 2024 Approved .MOV in the Cloud - Top Six Techniques for Windows 11 Users</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-chasing-channel-currency-the-updated-youtube-partner-guide/"><u>[Updated] 2024 Approved Chasing Channel Currency The Updated Youtube Partner Guide</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-step-by-step-screen-shotting-for-xbox-enthusiasts/"><u>[Updated] 2024 Approved Step-by-Step Screen Shotting for Xbox Enthusiasts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-top-20-youtube-font-choices-for-striking-thumbnails/"><u>[Updated] 2024 Approved Top 20 YouTube Font Choices for Striking Thumbnails</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-enhancing-youtube-visibility-with-tubebuddy-for-2024/"><u>[Updated] Enhancing YouTube Visibility with TubeBuddy for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-boosting-income-with-effective-youtube-short-strategies/"><u>2024 Approved Boosting Income with Effective Youtube Short Strategies</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-segmentscreen-examination/"><u>2024 Approved SegmentScreen Examination</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/ar-5-by-arcshell-impressive-performance-meets-budget-friendly-pricing-reviewed/"><u>AR-5 by ArcShell: Impressive Performance Meets Budget-Friendly Pricing Reviewed</u></a></li>
+<li><a href="https://techtrends.techidaily.com/connecting-airpods-on-macbook-air-made-simple-the-ultimate-tutorial/"><u>Connecting AirPods on MacBook Air Made Simple - The Ultimate Tutorial</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-unleash-creativity-in-youtube-video-editing-with-adobe-premiere/"><u>In 2024, Unleash Creativity in YouTube Video Editing with Adobe Premiere</u></a></li>
+<li><a href="https://fox-that.techidaily.com/secrets-to-retrieving-deleted-iphone-photos-that-appear-lost-learn-these-8-tricks/"><u>Secrets to Retrieving Deleted iPhone Photos That Appear Lost - Learn These 8 Tricks</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/form-youtube-soundtracks-on-iphone-with-these-6-choices-for-2024/"><u>Transform YouTube Soundtracks on iPhone with These 6 Choices for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/why-the-tp-link-archer-c9-is-a-top-choice-for-budget-friendly-routers-reviewed/"><u>Why the TP-LInk Archer C9 Is a Top Choice for Budget-Friendly Routers – Reviewed</u></a></li>
+</ul></div>
 

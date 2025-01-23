@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Enhance Visibility  YouTube Thumbnails Made Simple\""
-date: 2025-01-10T17:59:27.040Z
-updated: 2025-01-16T17:49:47.693Z
+date: 2025-01-18T00:15:40.590Z
+updated: 2025-01-22T16:19:30.283Z
 tags:
   - ai video
   - ai youtube
@@ -44,16 +44,12 @@ With time, Filmora brings new and advanced features for its users to equip them 
 ![ai-portrait-thumbnail-step1](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step1.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
 
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 03:** Change the Aspect Ratio to 16:9 if it is not set to it already. 16:9 aspect ratio is the standard size of Youtube thumbnails that represents the best possible results.
 
@@ -63,9 +59,17 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step4](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 05:** If you want to use your custom background, you can import it into the Filmora by clicking import or dragging and dropping it in the media section.
 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
 
@@ -92,16 +96,12 @@ With time, Filmora brings new and advanced features for its users to equip them 
 ![ai-portrait-thumbnail-step11](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 12:** Once you are satisfied with the final results, click on the Camera icon below the preview screen or press "Ctrl+Alt+S" to take the screenshot.
 
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Conclusion
 
@@ -111,11 +111,11 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
@@ -138,16 +138,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-innovative-metaverse-humor-generating-unique-memes/"><u>[New] 2024 Approved Innovative Metaverse Humor Generating Unique Memes</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-how-to-change-the-privacy-setting-on-your-youtube-videos/"><u>[New] In 2024, How to Change the Privacy Setting on Your YouTube Videos</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-polishing-resilience-for-online-criticism/"><u>[New] In 2024, Polishing Resilience for Online Criticism</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-permanently-quit-youtube-shorts-now/"><u>[Updated] In 2024, Permanently Quit YouTube Shorts Now</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-time-travel-for-video-views-youtube-upside-down-guide/"><u>[Updated] In 2024, Time Travel for Video Views YouTube Upside-Down Guide</u></a></li>
-<li><a href="https://fox-within.techidaily.com/1-afdl-ttbyk-nskh-alkrs-alshaaa-llttbykat-thkyk-alkfaaaa-maa-aliklaaa/"><u>1. أفضل تطبيق نسخ القرص الشائع للتطبيقات: تحقيق الكفاءة مع الإقلاع</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-enhancing-viewers-interest-with-innovative-valorant-thumbnail-ideas/"><u>2024 Approved Enhancing Viewers' Interest with Innovative Valorant Thumbnail Ideas</u></a></li>
-<li><a href="https://driver-download.techidaily.com/asus-motherboard-driver-downloads-optimize-your-system-with-easy-steps/"><u>ASUS Motherboard Driver Downloads: Optimize Your System with Easy Steps</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/meet-the-innovative-challenger-to-apples-dynamic-island-the-pioneering-android-powered-alternative-now-available/"><u>Meet the Innovative Challenger to Apple's Dynamic Island – The Pioneering Android-Powered Alternative Now Available</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96512039-9781462902514-moment-by-moment/"><u>Moment by Moment | Free Book</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/premier-media-transformer-mp4-)-fb-for-2024/"><u>Premier Media Transformer MP4 -> FB for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-turn-your-youtube-videos-into-lively-gifs-without-saving-files/"><u>[New] 2024 Approved Turn Your YouTube Videos Into Lively GIFs Without Saving Files</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rand-yourself-differently-strategies-for-finding-uncommon-names-for-2024/"><u>[New] Brand Yourself Differently Strategies for Finding Uncommon Names for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-steering-clear-of-mundane-channel-names-in-a-crowded-space/"><u>[New] In 2024, Steering Clear of Mundane Channel Names in a Crowded Space</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-instagram-icons-unveiled-elevate-your-fame-and-followers-in-record-time-heres-how/"><u>[New] Instagram Icons Unveiled Elevate Your Fame & Followers in Record Time – Here's How</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-metaviews-analyzing-6-in-depth-metaverse-scenarios-for-2024/"><u>[New] Metaviews Analyzing 6 In-Depth Metaverse Scenarios for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/innacle-10-sound-superchargers-pc-mac-and-phones/"><u>[New] Pinnacle 10 Sound Superchargers PC, Mac & Phones</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-blend-pictures-with-computers-easily/"><u>[Updated] In 2024, Blend Pictures with Computers Easily</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-low-cost-cameras-that-dont-compromise-quality/"><u>[Updated] In 2024, Low-Cost Cameras That Don't Compromise Quality</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-tiny-tycoon-how-ryans-channel-became-a-millionaire-hub/"><u>[Updated] In 2024, Tiny Tycoon How Ryan’s Channel Became a Millionaire Hub</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-seamless-youtube-video-transfer-for-ios-devices-explained/"><u>[Updated] Seamless YouTube Video Transfer for iOS Devices Explained</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-zero-cost-techniques-for-video-and-text-combination/"><u>2024 Approved Zero-Cost Techniques for Video and Text Combination</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On OnePlus Ace 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-elevating-your-streaming-experience-switching-between-spotify-and-youtube-music/"><u>In 2024, Elevating Your Streaming Experience Switching Between Spotify & YouTube Music</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-sony-xperia-10-v-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Sony Xperia 10 V Screen | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-shields-for-newest-iphones-unveiling-the-elite-picks-for-iphone-16-and-pro-rigorously-tested-by-experts-at-zdnet/"><u>Ultimate Shields for Newest iPhones! Unveiling the Elite Picks for iPhone 16 and Pro - Rigorously Tested by Experts at ZDNET</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1722848735563-while-ipv6-is-designed-with-ipsec-support-actual-implementation-may-vary-security-measures-should-not-solely-rely-on-protocol-design-assumptions/"><u>While IPv6 Is Designed with IPsec Support, Actual Implementation May Vary; Security Measures Should Not Solely Rely on Protocol Design Assumptions</u></a></li>
 </ul></div>
 

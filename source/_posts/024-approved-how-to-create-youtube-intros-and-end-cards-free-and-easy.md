@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  How to Create YouTube Intros & End Cards - Free and Easy\""
-date: 2024-08-15T14:11:57.938Z
-updated: 2024-08-16T14:11:57.938Z
+date: 2025-01-21T17:30:50.172Z
+updated: 2025-01-22T20:47:08.623Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a9
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -78,12 +86,9 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -118,8 +123,9 @@ Some creators will leave their end cards at that and play music overtop, but it 
 14. Click **Apply Changes**.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -128,14 +134,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -144,6 +147,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-behind-the-curtains-a-guide-to-youtubes-hidden-videos-for-2024/"><u>[New] Behind the Curtains A Guide to YouTube’s Hidden Videos for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-filmoras-secrets-to-captivating-youtube-trailers/"><u>[New] In 2024, Filmora's Secrets to Captivating YouTube Trailers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-an-easy-to-follow-guide-to-applying-cc-license-types/"><u>[Updated] In 2024, An Easy-to-Follow Guide to Applying CC License Types</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-youtube-shorts-description-everything-you-need-to-know/"><u>[Updated] YouTube Shorts Description Everything You Need to Know</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-shadowlessedit-advanced-background-removal-app/"><u>2024 Approved ShadowLessEdit Advanced Background Removal App</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/aerial-artistry-mastering-the-craft-of-drone-video-editing-for-2024/"><u>Aerial Artistry Mastering the Craft of Drone Video Editing for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-comprehensive-techniques-for-gauging-yt-popularity-and-monetization/"><u>In 2024, Comprehensive Techniques for Gauging YT Popularity & Monetization</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-integrating-youtube-into-tv-sets-with-loop-features/"><u>In 2024, Integrating YouTube Into TV Sets with Loop Features</u></a></li>
+<li><a href="https://fox-that.techidaily.com/iphone-tips-overcoming-the-roblox-low-memory-warnings-swiftly/"><u>IPhone Tips: Overcoming the Roblox Low Memory Warnings Swiftly</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/leading-edge-mobile-ai-the-most-trusted-apps-for-you/"><u>Leading-Edge Mobile AI: The Most Trusted Apps for You</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/resolve-invalid-media-popcorn-time-bug-now-working/"><u>Resolve 'Invalid Media' Popcorn Time Bug – Now Working!</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rt-of-the-daily-share-keep-your-digital-diary-top-notch-for-2024/"><u>The Art of the Daily Share Keep Your Digital Diary Top-Notch for 2024</u></a></li>
+</ul></div>
 

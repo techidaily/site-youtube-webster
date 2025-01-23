@@ -1,7 +1,7 @@
 ---
 title: "[New] Analyzing Online Video Discussions for 2024"
-date: 2025-01-02T18:02:39.820Z
-updated: 2025-01-03T16:52:24.862Z
+date: 2025-01-17T20:21:21.941Z
+updated: 2025-01-22T16:10:09.520Z
 tags:
   - ai video
   - ai youtube
@@ -65,10 +65,14 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 ![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can combine these additional filters to narrow your comments search for YouTube.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
@@ -108,15 +112,15 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
 
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Use the Comment History feature to Search Comments?
 
@@ -129,13 +133,13 @@ You can see all the comments you have posted in the Comment History in a few qui
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
@@ -161,10 +165,6 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -186,22 +186,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-pixel-paradise-100plus-game-havens-explored/"><u>[New] In 2024, Pixel Paradise 100+ Game Havens Explored</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-essential-tech-for-new-channel-launches/"><u>[Updated] 2024 Approved Essential Tech for New Channel Launches</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-dailymotion-vs-youtube-monetization-which-is-more-profitable/"><u>[Updated] Dailymotion vs YouTube Monetization Which Is More Profitable?</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-evaluating-mr-beasts-financial-heft/"><u>[Updated] Evaluating Mr. Beast's Financial Heft</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-propel-your-instagram-videos-into-the-public-eye/"><u>[Updated] In 2024, Propel Your Instagram Videos Into the Public Eye</u></a></li>
-<li><a href="https://discover-best.techidaily.com/exempting-files-and-directories-from-antivirus-checks-on-windows-strategies-from-yl-software-experts/"><u>Exempting Files and Directories From Antivirus Checks on Windows: Strategies From YL Software Experts</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/c-youtube-recognition-click-counter-awards/"><u>Iconic YouTube Recognition - Click Counter Awards</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-5-tips-to-get-more-views-with-youtube-optimization-free-checklist/"><u>In 2024, 5 Tips to Get More Views with YouTube Optimization [Free Checklist]</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-the-ultimate-resource-for-profiting-from-your-youtube-content/"><u>In 2024, The Ultimate Resource for Profiting From Your YouTube Content</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-top-platforms-enhance-your-youtube-presence/"><u>In 2024, Top Platforms Enhance Your YouTube Presence</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ning-operational-offshoots/"><u>Outlining Operational Offshoots</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/by-step-making-youtube-video-thumbnails-mobile/"><u>Step-by-Step Making YouTube Video Thumbnails (Mobile)</u></a></li>
-<li><a href="https://win-forum.techidaily.com/the-big-four-in-social-platforms-connect-with-facebook-twitter-instagram-and-youtube/"><u>The Big Four in Social Platforms: Connect with Facebook, Twitter, Instagram & YouTube</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/omplete-checklist-for-youtube-production-gear-for-2024/"><u>The Complete Checklist for YouTube Production Gear for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-next-big-thing-discover-rumored-details-on-xiaomis-nothing-phone-3-what-to-expect/"><u>The Next Big Thing? Discover Rumored Details on Xiaomi's Nothing Phone ˈ3 – What to Expect?</u></a></li>
-<li><a href="https://change-location.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-vivo-y78plus-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Vivo Y78+ | Dr.fone</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/vdy-pro-recorder-summary-detailed-analysis/"><u>VDY Pro Recorder Summary Detailed Analysis</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-channel-transformation-optimal-video-concepts-to-elevate-creativity/"><u>[New] In 2024, Channel Transformation Optimal Video Concepts to Elevate Creativity</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-erase-unwanted-boards-from-old-youtube-videos-for-clearer-viewing/"><u>[New] In 2024, Erase Unwanted Boards From Old YouTube Videos for Clearer Viewing</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-expressiveness-in-yt-adopting-emojis/"><u>[New] In 2024, Expressiveness in YT Adopting Emojis</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-frequent-monetization-is-it-real-on-youtube/"><u>[New] In 2024, Frequent Monetization Is It Real on YouTube?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/treamline-content-discovery-leveraging-youtubes-featured-channel-guide-for-2024/"><u>[New] Streamline Content Discovery Leveraging Youtube's Featured Channel Guide for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-guide-to-efficiently-convert-vimeo-videos-to-audible-files/"><u>[Updated] In 2024, Guide to Efficiently Convert Vimeo Videos to Audible Files</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-navigating-the-world-of-live-video-sharing-with-ease/"><u>[Updated] In 2024, Navigating the World of Live Video Sharing with Ease</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-trend-driven-infographics-the-leaders-in-23/"><u>[Updated] In 2024, Trend-Driven Infographics The Leaders in '23</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-realme-11-proplus-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Realme 11 Pro+ Activity | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-top-techniques-for-crafting-engaging-youtube-shorts-templates/"><u>2024 Approved Top Techniques for Crafting Engaging YouTube Shorts Templates</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/3windows-11/"><u>如何避免程序数据流失，有效利用3种方法为Windows 11进行重新灌装：专业指南</u></a></li>
+<li><a href="https://techidaily.com/different-methods-for-resetting-realme-c33-2023-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Realme C33 2023 Phones with Screen Locked and Not | Dr.fone</u></a></li>
+<li><a href="https://driver-error.techidaily.com/driver-disabled-bcm20702a0/"><u>Driver Disabled: BCM20702A0</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-tecno-spark-10-4g-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Tecno Spark 10 4G Device SIM</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-enhance-video-storytelling-with-smart-chapter-insertion-techniques-on-youtube/"><u>In 2024, Enhance Video Storytelling with Smart Chapter Insertion Techniques on YouTube</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/limited-time-offer-grab-the-affordable-amazon-fire-7-at-only-30-prime-day-special/"><u>Limited Time Offer: Grab the Affordable Amazon Fire 7 at Only $30 - Prime Day Special!</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solutions-for-finding-missing-events-on-your-iphone-schedule/"><u>Solutions for Finding Missing Events on Your iPhone Schedule</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlock-apple-iphone-15-pro-with-forgotten-passcode-different-methods-you-can-try-by-drfone-ios/"><u>Unlock Apple iPhone 15 Pro With Forgotten Passcode Different Methods You Can Try</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/bes-revenue-per-million-views-an-insight-for-2024/"><u>YouTube's Revenue Per Million Views An Insight for 2024</u></a></li>
 </ul></div>
 

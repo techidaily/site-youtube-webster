@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  From Zero to Viral Video  Top 10 User-Friendly YouTube Concepts\""
-date: 2025-01-01T19:44:56.256Z
-updated: 2025-01-03T23:49:28.972Z
+date: 2025-01-20T16:59:18.760Z
+updated: 2025-01-22T23:48:27.064Z
 tags:
   - ai video
   - ai youtube
@@ -52,10 +52,6 @@ Let the world know who you are and what you do. If you are planning on starting 
 
 These kinds of videos make great channel trailers, and they’re a good way to highlight the topics you'll be covering on your channel in the future.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Vlog About Your Day
 
 Anything that happens during your day can become a topic for your YouTube vlog. Traffic jams, treacherous pets who keep stealing your shoes, or the ridiculous amount of things you had to do in a single day can all become topics for videos you upload to your YouTube channel. Being candid and spontaneous is a sure way to grab the attention of a viewer, but limiting the duration of a vlog to a few minutes is key to ensuring that viewers watch the video until the end.
@@ -70,25 +66,21 @@ Opinion videos are great conversation starters. Expressing an opinion through a 
 
 You can express your opinions on virtually any topic, but being respectful while doing so is for the best if you don’t want to find yourself in a YouTube feud.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Review Anything
 
 Everywhere around you, there are items you can review. The Apple Watch and the latest season of Game of Thrones are equally good choices for a review video. However, when creating review videos you need to make sure that all the factual information you have is accurate, which is why it is much better to make review videos about topics you know a lot about.
 
 Review videos can also be a source of revenue because a lot of companies sponsor YouTubers who review their products.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5\. Your Favorite Songs / Movies / Etc
 
 Are you a Tarantino fan? Why not? When you are struggling to find inspiration for your videos, just think about the things you like. Your subscribers are interested in you, so they’ll be interested in knowing about your favorite movies or music albums. Books, movies, and music are an inexhaustible source of fresh ideas because there is always a new song or a film you can talk about in your video.
 
 You can do a ‘my 5 favorite songs’ type of video, or talk in detail about just one favorite.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. What’s on Your Phone?
 
@@ -101,6 +93,10 @@ Finding a way to talk about the apps you like to use the most can be a good idea
 There's no need to constantly produce new videos because you can just take some royalty-free music and create a slideshow from your old or new photos. The slideshow format will certainly allow you to try something different on your YouTube channel, while the photos you use in the slideshow can create a clear picture of who you are and what you do for your viewers.
 
 If you are a photography enthusiast you can also plan the entire slideshow in advance and then make a short video about how you created the images in the slideshow.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Make a Tutorial
 
@@ -115,7 +111,7 @@ Being open is important, so why not share 10 things about yourself you think you
 These types of videos tend to create a better relationship with your audience because they make the viewer feel as if they know the person on the screen.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 10\. Video Rant
@@ -126,6 +122,10 @@ Don't try to fake a rant, because they only work if they are natural. Scripting 
 
 Do you have any [easy video ideas for other creators](https://tools.techidaily.com/wondershare/filmora/download/) to try?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Start Editing Videos with Beginner-friendly Software
 
 If you start your YouTube channel but have no video editing experience, Wondershare Filmora will definitely help you get over the problems. Download Filmora now!
@@ -133,7 +133,7 @@ If you start your YouTube channel but have no video editing experience, Wondersh
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -159,24 +159,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/udio-perfection-achieved-expert-tips-without-a-microphone/"><u>[New] Audio Perfection Achieved Expert Tips Without a Microphone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-efficient-image-hopping-android-to-iphone-process-for-2024/"><u>[New] Efficient Image Hopping Android to iPhone Process for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/xclusive-list-of-premium-online-and-desktop-gif-makers/"><u>[New] Exclusive List of Premium Online & Desktop GIF Makers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-navigating-social-media-preferences-tiktok-versus-youtube-shorts/"><u>[New] In 2024, Navigating Social Media Preferences TikTok Versus YouTube Shorts</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-unlocking-asmrs-health-perks-a-guide/"><u>[New] In 2024, Unlocking ASMR's Health Perks A Guide</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-essential-strategies-for-professional-grade-video-editing/"><u>[Updated] 2024 Approved Essential Strategies for Professional-Grade Video Editing</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-masterclass-in-visual-storytelling-for-youtube-live-videos/"><u>[Updated] 2024 Approved Masterclass in Visual Storytelling for YouTube Live Videos</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-best-livestream-capturing-gear-for-online-content-makers-for-2024/"><u>[Updated] Best Livestream Capturing Gear for Online Content Makers for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-decoding-the-essence-of-asmr-videos/"><u>[Updated] Decoding the Essence of ASMR Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-affordable-cameras-for-effective-vloggers/"><u>[Updated] In 2024, Affordable Cameras for Effective Vloggers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-get-more-out-of-youtube-with-8-handpicked-download-apps/"><u>[Updated] In 2024, Get More Out of YouTube with 8 Handpicked Download Apps</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/2024s-elite-list-of-waterproof-wearable-technology-in-depth-expert-evaluations-and-comparisons-cnet/"><u>2024'S Elite List of Waterproof Wearable Technology: In-Depth Expert Evaluations & Comparisons | CNET</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/digiarty-softwares-comprehensive-guide-understanding-our-privacy-commitment/"><u>Digiarty Software's Comprehensive Guide: Understanding Our Privacy Commitment</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/electric-cars-and-their-charging-duration-insights-and-facts-you-need-to-know/"><u>Electric Cars and Their Charging Duration: Insights & Facts You Need to Know</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-realme-c51-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Realme C51 Without PUK Codes</u></a></li>
-<li><a href="https://win-bits.techidaily.com/mastering-your-digital-identity-tips-for-managing-user-accounts-with-yl-software/"><u>Mastering Your Digital Identity: Tips for Managing User Accounts with YL Software</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/omprehensible-guide-to-selecting-popular-youtube-openings-for-2024/"><u>The Comprehensible Guide to Selecting Popular YouTube Openings for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-analysis-of-anthropics-smart-photo-editing-tool-user-guide/"><u>Ultimate Analysis of Anthropics' Smart Photo Editing Tool – User Guide</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/ultimate-guide-logitech-g402-control-suite-download-plus-compatibility-check/"><u>Ultimate Guide: Logitech G402 Control Suite Download + Compatibility Check</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-achieving-spotlight-submitting-on-apple-platform/"><u>[New] 2024 Approved Achieving Spotlight Submitting on Apple Platform</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/upercharge-your-videos-with-powerful-tagging-techniques/"><u>[New] Supercharge Your Videos with Powerful Tagging Techniques</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-stream-freedom-on-the-go-download-your-favorite-youtube-tracks-ios/"><u>[Updated] 2024 Approved Stream Freedom on the Go Download Your Favorite YouTube Tracks iOS</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-ultimate-tips-for-iphones-hdr-images/"><u>[Updated] 2024 Approved Ultimate Tips for iPhone's HDR Images</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-free-youtube-end-screen-templates-for-2024/"><u>[Updated] Free YouTube End Screen Templates for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-innovative-strategies-for-srt-creation-and-enhancement-for-2024/"><u>[Updated] Innovative Strategies for SRT Creation and Enhancement for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-unlocking-the-power-of-thumbnails-creating-visual-appeal-for-youtube-content/"><u>In 2024, Unlocking the Power of Thumbnails Creating Visual Appeal for YouTube Content</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-2024-approved-live-commerce-success-stories-lessons-learned-and-predictions-for-the-future/"><u>New 2024 Approved Live Commerce Success Stories Lessons Learned & Predictions for the Future</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/tive-mp4-editing-made-simple-on-mac/"><u>Selective MP4 Editing Made Simple on Mac</u></a></li>
+<li><a href="https://win-community.techidaily.com/ultimate-guide-to-successful-sicherungsverwaltung-techniques-for-businesses/"><u>Ultimate Guide to Successful Sicherungsverwaltung Techniques for Businesses</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/unlock-the-magic-of-stories-in-fb-free-cross-platform-tools/"><u>Unlock the Magic of Stories in FB – Free, Cross-Platform Tools</u></a></li>
 </ul></div>
 

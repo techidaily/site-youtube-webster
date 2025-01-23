@@ -1,7 +1,7 @@
 ---
 title: "In 2024, The Top Tier Content Guild"
-date: 2025-01-13T17:33:51.964Z
-updated: 2025-01-16T19:32:54.669Z
+date: 2025-01-20T23:10:18.118Z
+updated: 2025-01-22T20:33:28.646Z
 tags:
   - ai video
   - ai youtube
@@ -65,7 +65,7 @@ _Tess takes you to some of her favorite places in Dumbo._
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Post Cards
@@ -73,12 +73,16 @@ Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Branded slippers
 
@@ -88,16 +92,12 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 _thinknoodles wearing his YouTube slippers._
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Denim jacket
@@ -106,10 +106,6 @@ A denim jacket with a play button on it was also in the box. The idea was that c
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
 Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
@@ -117,6 +113,10 @@ Most creators here on Filmora are still trying to grow their channels, but one d
 Want to join the YouTube Creator Summit in the future? We all know that there is a long way to go, but we can start making good YouTube videos now. Remember to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) with the templates and effects to touch up your YouTube videos.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -141,21 +141,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/rom-zero-to-hero-in-youtube-traffic/"><u>[New] From Zero to Hero in YouTube Traffic</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/armonious-histories-exploring-musical-legends-with-these-15-video-documentaries-for-2024/"><u>[New] Harmonious Histories Exploring Musical Legends with These 15 Video Documentaries for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-instant-thumbnail-transformation-personalized-youtube-shorts-in-a-flash/"><u>[New] In 2024, Instant Thumbnail Transformation Personalized YouTube Shorts in a Flash</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-logitechs-4k-pro-webcam-a-complete-exploration/"><u>[New] Logitech's 4K Pro Webcam A Complete Exploration</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-captivating-viewers-youtubers-guide-to-dynamic-game-sessions-for-2024/"><u>[Updated] Captivating Viewers YouTubers’ Guide to Dynamic Game Sessions for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-from-novice-to-notoriety-steps-for-a-youtube-channel-in-gaming/"><u>[Updated] In 2024, From Novice to Notoriety Steps for a YouTube Channel in Gaming</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-optimizing-your-youtube-stream-with-wirecast/"><u>[Updated] Optimizing Your YouTube Stream with WireCast</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-speedy-surfing-tips-for-youtubes-playback-speed-control-for-2024/"><u>[Updated] Speedy Surfing Tips for YouTube's Playback Speed Control for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-transforming-speeches-learn-no-cost-audio-effect-techniques-here/"><u>2024 Approved Transforming Speeches Learn No-Cost Audio Effect Techniques Here</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-can-you-transfer-files-from-nubia-z50s-pro-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How Can You Transfer Files From Nubia Z50S Pro To iPhone 15/14/13? | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-from-raw-footage-to-cinematic-success-in-your-youtube-channel/"><u>In 2024, From Raw Footage to Cinematic Success in Your YouTube Channel</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-change-country-on-app-store-for-apple-iphone-11-pro-max-with-7-methods-drfone-by-drfone-ios/"><u>In 2024, How To Change Country on App Store for Apple iPhone 11 Pro Max With 7 Methods | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Poco M6 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-masterclass-in-cinematic-viewing-youtube-edition/"><u>In 2024, Masterclass in Cinematic Viewing - YouTube Edition</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-stand-out-on-youtube-logo-tips-for-visibility/"><u>In 2024, Stand Out on YouTube Logo Tips for Visibility</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/the-ultimate-guide-to-split-screen-video-apps-for-mobile/"><u>The Ultimate Guide to Split Screen Video Apps for Mobile</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-winning-youtube-affiliate-deals-famebits-guide-to-earnings/"><u>[New] 2024 Approved Winning YouTube Affiliate Deals FameBit's Guide to Earnings</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-cutting-edge-easy-to-use-mastering-magix-vpxs-capabilities-for-2024/"><u>[New] Cutting Edge, Easy to Use Mastering Magix VPX's Capabilities for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ree-uploads-more-views-youtubes-easily-overlooked-hacks-for-2024/"><u>[New] Free Uploads, More Views YouTube's Easily Overlooked Hacks for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-swift-technique-coding-images-for-youtube-channel-thumbnails/"><u>[New] In 2024, Swift Technique Coding Images for YouTube Channel Thumbnails</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-path-to-profitable-videography-starting-strong/"><u>[Updated] 2024 Approved The Path to Profitable Videography Starting Strong</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-effortless-shuffle-of-your-youtube-playlists/"><u>[Updated] Effortless Shuffle of Your YouTube Playlists</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-unlock-youtube-broadcast-google-meet-tutorial-steps/"><u>[Updated] In 2024, Unlock YouTube Broadcast Google Meet Tutorial Steps</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-ultimate-guide-to-the-leading-9-video-call-and-collaboration-tools-android-ios-for-2024/"><u>[Updated] Ultimate Guide to the Leading 9 Video Call & Collaboration Tools (Android, iOS) for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/addressing-intel-m-cs-glitches/"><u>Addressing Intel M-CS Glitches</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/error-blackout-hardware-catastrophe/"><u>Error Blackout: Hardware Catastrophe</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/endings-that-wow-ranked-for-you-top-6/"><u>Free Endings That Wow - Ranked for You (Top 6)</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-beatbox-recorder-a-compreeved-guide/"><u>In 2024, BeatBox Recorder A Compreeved Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-optimize-video-pace-on-youtube-for-devices-speed-adjustments/"><u>In 2024, Optimize Video Pace on YouTube for Devices (Speed Adjustments)</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-depth-analyzing-lgs-4k-wuhd-hdr-performance-for-2024/"><u>In Depth Analyzing LG's 4K WUHD HDR Performance for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/key-iphone-shot-design-guidelines-unveiled/"><u>Key iPhone Shot Design Guidelines Unveiled</u></a></li>
+<li><a href="https://discover-great.techidaily.com/user-access-regulation-for-windows-11-applications-tips-and-strategies-from-yl-software-experts/"><u>User Access Regulation for Windows 11 Applications: Tips and Strategies From YL Software Experts</u></a></li>
 </ul></div>
 
