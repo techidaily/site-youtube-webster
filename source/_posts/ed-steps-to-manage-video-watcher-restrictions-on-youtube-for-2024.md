@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Steps to Manage Video Watcher Restrictions on Youtube for 2024"
-date: 2025-01-20T20:29:05.960Z
-updated: 2025-01-22T20:39:20.469Z
+date: 2025-01-23T09:30:51.730Z
+updated: 2025-01-29T19:18:55.993Z
 tags:
   - ai video
   - ai youtube
@@ -43,6 +43,10 @@ thumbnail: https://thmb.techidaily.com/abfdd510a65bfb2974ae748187d91d88c050827e4
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Public VS Unlisted VS Private
 
  Let's figure out some terms before runing into the how-to part.
@@ -65,10 +69,6 @@ thumbnail: https://thmb.techidaily.com/abfdd510a65bfb2974ae748187d91d88c050827e4
 
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -79,10 +79,6 @@ thumbnail: https://thmb.techidaily.com/abfdd510a65bfb2974ae748187d91d88c050827e4
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
@@ -90,7 +86,7 @@ thumbnail: https://thmb.techidaily.com/abfdd510a65bfb2974ae748187d91d88c050827e4
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
@@ -101,6 +97,14 @@ thumbnail: https://thmb.techidaily.com/abfdd510a65bfb2974ae748187d91d88c050827e4
 
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
  And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
@@ -108,14 +112,10 @@ thumbnail: https://thmb.techidaily.com/abfdd510a65bfb2974ae748187d91d88c050827e4
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -138,24 +138,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-beyond-flat-canvas-elevating-text-to-new-heights/"><u>[New] 2024 Approved Beyond Flat Canvas Elevating Text to New Heights</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-crafting-video-magic-with-imovie-directed-to-youtube/"><u>[New] 2024 Approved Crafting Video Magic with iMovie, Directed to YouTube</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-ultimate-guide-choosing-powerful-notebooks-for-filmmakers/"><u>[New] 2024 Approved Ultimate Guide Choosing Powerful Notebooks for Filmmakers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/op-15-science-youtube-channels-to-expand-knowledge/"><u>[New] Top 15 Science YouTube Channels to Expand Knowledge</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-the-editors-journey-creating-impactful-videos-for-youtube-with-pc/"><u>[Updated] 2024 Approved The Editor's Journey Creating Impactful Videos for YouTube with PC</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-crafting-captivating-edu-videos-essential-techniques-and-tips-for-youtube-success/"><u>[Updated] Crafting Captivating Edu-Videos Essential Techniques and Tips for YouTube Success</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-symphony-of-screens-how-music-enhances-vimeo-content/"><u>2024 Approved Symphony of Screens How Music Enhances Vimeo Content</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-the-detailed-breakdown-of-youtube-money/"><u>2024 Approved The Detailed Breakdown of YouTube Money</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-thrifty-shoppers-best-bargains-in-cams/"><u>2024 Approved Thrifty Shopper's Best Bargains in Cams</u></a></li>
-<li><a href="https://driver-download.techidaily.com/amd-radeon-hd-7870-drivers-download-and-updates-on-windows-10/"><u>AMD Radeon HD 7870 Drivers Download & Updates on Windows 10</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/te-your-videos-with-complimentary-banners-here-in-2024/"><u>Elevate Your Videos with Complimentary Banners, Here, In 2024</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/experience-unmatched-portability-with-our-comprehensive-review-of-the-samsung-galaxy-chromebook-2-for-ultra-productive-users/"><u>Experience Unmatched Portability with Our Comprehensive Review of the Samsung Galaxy Chromebook 2 for Ultra-Productive Users</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-engage-entertain-and-captivate-adopting-two-point-of-view-in-your-next-youtube-reaction-video-2-pov-method/"><u>In 2024, Engage, Entertain and Captivate – Adopting Two-Point of View in Your Next YouTube Reaction Video (2 POV Method)</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Oppo Reno 11 5G | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-vivo-y77t-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Vivo Y77t Android SIM Unlock APK</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-sweepstakes-top-tunes-for-viral-youtube-short-videos-for-2024/"><u>Sonic Sweepstakes Top Tunes for Viral YouTube Short Videos for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-new-era-of-conversational-agents-bard-vs-bing-chatbot/"><u>The New Era of Conversational Agents: Bard Vs. Bing Chatbot</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ltimate-guide-to-video-dimensions-on-the-yt-platform/"><u>The Ultimate Guide to Video Dimensions on the YT Platform</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/witteert-tanden-in-je-portretfotografen-expertise-in-tandbleeksoftware-met-oog-op-kundenzorging/"><u>Witteert Tanden in Je Portretfotografen | Expertise in Tandbleeksoftware Met Oog Op Kundenzorging</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-bridging-gaps-transforming-trend-data-into-video-concepts/"><u>[New] 2024 Approved Bridging Gaps Transforming Trend Data Into Video Concepts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-elevate-engagement-on-youtube-fending-off-automated-audiences/"><u>[New] 2024 Approved Elevate Engagement on YouTube Fending Off Automated Audiences</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-how-to-start-a-successful-youtube-gaming-channel/"><u>[New] 2024 Approved How to Start a Successful YouTube Gaming Channel</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-ideal-cameras-to-elevate-live-stream-engagement-on-twitch/"><u>[New] In 2024, Ideal Cameras to Elevate Live Stream Engagement on Twitch</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-filmmakers-guide-to-distorting-space-and-time/"><u>[New] The Filmmaker's Guide to Distorting Space & Time</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-unleash-your-creativity-anywhere-anyplace-these-6-best-free-online-platforms-for-youtube-short-video-downloading/"><u>2024 Approved Unleash Your Creativity Anywhere, Anyplace These 6 Best Free, Online Platforms for YouTube Short Video Downloading</u></a></li>
+<li><a href="https://fox-access.techidaily.com/capturing-landscapes-with-mi-drone-4k-analysis/"><u>Capturing Landscapes with MI Drone 4K Analysis</u></a></li>
+<li><a href="https://fox-that.techidaily.com/easy-steps-to-clearing-your-iphones-network-data-for-improved-performance/"><u>Easy Steps to Clearing Your iPhone's Network Data for Improved Performance</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-to-share-youtube-video-on-facebook/"><u>Guide to Share YouTube Video on Facebook</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-of-the-party-free-impeccable-dj-template-videos-for-2024/"><u>Pulse of the Party Free, Impeccable DJ Template Videos for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/0-best-trending-background-music-for-youtube-shorts-for-2024/"><u>The 10 Best Trending Background Music for YouTube Shorts for 2024</u></a></li>
+<li><a href="https://win-community.techidaily.com/top-6-essential-photo-restoration-apps-compatible-with-windows-operating-systems/"><u>Top 6 Essential Photo Restoration Apps Compatible with Windows Operating Systems</u></a></li>
+<li><a href="https://win-popular.techidaily.com/1728503732089-windows-73264/"><u>Windows 7を安全にアップグレード:32ビット版から64ビット版の詳細ガイド</u></a></li>
 </ul></div>
 
