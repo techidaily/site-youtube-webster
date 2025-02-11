@@ -1,7 +1,7 @@
 ---
 title: "Learn to Create Stunning Thumbnails in Minutes"
-date: 2024-08-22T21:52:54.120Z
-updated: 2024-08-23T21:52:54.120Z
+date: 2025-02-09T16:03:49.005Z
+updated: 2025-02-11T16:12:55.380Z
 tags:
   - ai video
   - ai youtube
@@ -55,6 +55,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step4](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 05:** If you want to use your custom background, you can import it into the Filmora by clicking import or dragging and dropping it in the media section.
 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
@@ -71,13 +75,25 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
 ![ai-portrait-thumbnail-step10](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step10.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 11:** Now it is time to add a title into your thumbnail to highlight what the video is all about. Go to the Titles, and select lower thirds. You can also select any of the titles types which best suits your needs. Drop the title into the timeline above the footage and adjust it accordingly. Now double click on the header to edit and rename it.
 
@@ -95,6 +111,10 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -103,14 +123,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,12 +136,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-maximizing-videography-with-youtubes-creative-commons/"><u>[New] 2024 Approved Maximizing Videography with YouTube's Creative Commons</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-perfect-pitches-and-polished-pictures-music-mixing-for-youtube/"><u>[New] 2024 Approved Perfect Pitches and Polished Pictures Music Mixing for YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-revolutionize-your-youtube-content-with-advanced-video-editing-in-sony-vegas/"><u>[New] 2024 Approved Revolutionize Your YouTube Content with Advanced Video Editing in Sony Vegas</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-rising-stars-in-streaming-global-youtubes-subs-pantheon/"><u>[New] 2024 Approved Rising Stars in Streaming Global YouTube's Subs Pantheon</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-seek-out-stimulating-youtube-snippets/"><u>[New] 2024 Approved Seek Out Stimulating YouTube Snippets</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-step-into-premium-filmmaking-discover-these-8-online-backdrop-banks/"><u>[New] 2024 Approved Step Into Premium Filmmaking Discover These 8 Online Backdrop Banks</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-streamline-your-music-habits-with-these-15-high-quality-free-youtube-extractors/"><u>[New] 2024 Approved Streamline Your Music Habits with These 15 High-Quality, Free YouTube Extractors</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-best-3d-software-perfect-for-youtube-openers/"><u>[New] 2024 Approved The Best 3D Software Perfect for YouTube Openers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-essential-guide-to-advanced-youtube-studio-editing/"><u>[New] 2024 Approved The Essential Guide to Advanced YouTube Studio Editing</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-rebound-crafters-tools/"><u>[Updated] Rebound Crafters' Tools</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/easy-guide-setting-up-handbrake-with-libdvdcss-on-macos-monterey-and-windows-10-visual-tutorial-included/"><u>Easy Guide: Setting Up HandBrake with Libdvdcss on macOS Monterey and Windows 10 - Visual Tutorial Included</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-lock-apps-on-tecno-spark-20-pro-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Tecno Spark 20 Pro to Protect Your Individual Information</u></a></li>
+<li><a href="https://win-blog.techidaily.com/1723011904296-how-to-overcome-the-steamuidll-not-found-deadly-steam-bug-easily/"><u>How to Overcome the 'SteamUI.DLL Not Found' Deadly Steam Bug Easily!</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-gionee-f3-pro-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Gionee F3 Pro Phone with Broken Screen</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-xiaomi-13-ultra-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Xiaomi 13 Ultra Is Unlocked</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-little-wheels-whirlwind-games/"><u>In 2024, Little Wheels Whirlwind Games</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/sierras-complete-access-to-cloud-documentationdrive/"><u>Sierra's Complete Access to Cloud Documentation/Drive</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unveiling-the-power-of-vivacut-for-2024/"><u>Unveiling the Power of VivaCut for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>What are Location Permissions Life360 On Apple iPhone 11 Pro Max? | Dr.fone</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->

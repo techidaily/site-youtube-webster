@@ -1,7 +1,7 @@
 ---
 title: "Learn to Turn Comments On or Off on YouTube Easily"
-date: 2024-08-22T21:53:14.257Z
-updated: 2024-08-23T21:53:14.257Z
+date: 2025-02-06T16:39:36.298Z
+updated: 2025-02-11T16:35:58.101Z
 tags:
   - ai video
   - ai youtube
@@ -58,17 +58,29 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 
 ![Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 2\. Define Acceptable Comment Types
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
 
 ![Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 3\. Set Comment Allowance for Videos
 
 Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
 
 ![Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### **Additional Info about Comments Options**
 
@@ -89,6 +101,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 * **Disable comments**
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
@@ -112,9 +128,6 @@ From under the **Audience** section in the right window of the **Video details**
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -131,9 +144,6 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![Block YouTube   commnets](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -149,22 +159,20 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -173,8 +181,22 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-next-gen-streaming-prosperity-for-gamers/"><u>[New] 2024 Approved Next-Gen Streaming Prosperity for Gamers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-shaking-up-the-status-quo-unique-naming-tips-for-filmmakers/"><u>[New] 2024 Approved Shaking Up the Status Quo Unique Naming Tips for Filmmakers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-spark-the-visionary-youtubes-top-video-themes/"><u>[New] 2024 Approved Spark the Visionary YouTube's Top Video Themes</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-step-by-step-on-streaming-google-meet-directly-to-youtube-channel/"><u>[New] 2024 Approved Step by Step on Streaming Google Meet Directly to YouTube Channel</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-striking-visuals-a-deep-dive-into-optimal-youtube-thumbnail-sizes/"><u>[New] 2024 Approved Striking Visuals A Deep Dive Into Optimal YouTube Thumbnail Sizes</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-superior-sound-transformation-gear-for-online-vloggers/"><u>[New] 2024 Approved Superior Sound Transformation Gear for Online Vloggers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-troubleshooting-tips-for-the-mystery-of-hidden-shorts-thumbnails/"><u>[New] 2024 Approved Troubleshooting Tips for the Mystery of Hidden Shorts Thumbnails</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-aspect-ratio-guidelines-for-twitter-videos-for-2024/"><u>[Updated] Aspect Ratio Guidelines for Twitter Videos for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-tech-savvy-summit-unveiling-our-top-5-video-capture-tools/"><u>[Updated] In 2024, Tech-Savvy Summit Unveiling Our Top 5 Video Capture Tools</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-maximize-engagement-optimal-twitters-video-converters/"><u>[Updated] Maximize Engagement Optimal Twitters Video Converters</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-top-best-fast-photo-viewer-for-windows-11-for-2024/"><u>[Updated] Top Best Fast Photo Viewer for Windows 11 for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-unlock-video-potential-leading-tools-turning-youtubes-to-avis-for-2024/"><u>[Updated] Unlock Video Potential Leading Tools Turning YouTubes to Avis for 2024</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/elevate-seo-with-advanced-user-tracking-via-cookiebot-systems/"><u>Elevate SEO with Advanced User Tracking via Cookiebot Systems</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-realme-note-50-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Realme Note 50 to Mac? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tp-links-wr9traveler-ac-router-your-ultimate-pocket-wi-fi-solution/"><u>TP-Link's WR9_Traveler AC Router - Your Ultimate Pocket Wi-Fi Solution</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Simplify Creating YouTube Thumbnails Now"
-date: 2024-08-22T21:57:00.043Z
-updated: 2024-08-23T21:57:00.043Z
+date: 2025-02-07T16:58:58.772Z
+updated: 2025-02-11T16:46:15.389Z
 tags:
   - ai video
   - ai youtube
@@ -75,9 +75,17 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
 ![ai-portrait-thumbnail-step10](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step10.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 11:** Now it is time to add a title into your thumbnail to highlight what the video is all about. Go to the Titles, and select lower thirds. You can also select any of the titles types which best suits your needs. Drop the title into the timeline above the footage and adjust it accordingly. Now double click on the header to edit and rename it.
 
@@ -87,6 +95,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Conclusion
 
 This is how your Youtube thumbnail will look like after applying all the above-mentioned effects and settings.
@@ -95,7 +107,15 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -103,14 +123,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,12 +136,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/nergy-savings-calculations-while-not-directly-impacting-installation-cost-understanding-potential-energy-savings-is-crucial-for-long-term-roi-analysis-/"><u>[New] __Energy Savings Calculations__ While Not Directly Impacting Installation Cost, Understanding Potential Energy Savings Is Crucial for Long-Term ROI Analysis for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-uncover-earths-wonders-with-these-top-10-vids/"><u>[New] 2024 Approved Uncover Earth's Wonders with These Top 10 Vids</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-captivating-your-audience-youtube-intro-excellence-with-imovie/"><u>[New] In 2024, Captivating Your Audience YouTube Intro Excellence with iMovie</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-key-steps-for-flawless-audio-segmentation/"><u>[New] In 2024, Key Steps for Flawless Audio Segmentation</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-decoding-youtubes-economics-how-to-quantify-watches-and-earnings/"><u>[Updated] 2024 Approved Decoding YouTube's Economics How to Quantify Watches and Earnings</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-from-chaos-to-clarity-professional-tools-for-youtube-cuts/"><u>[Updated] In 2024, From Chaos to Clarity Professional Tools for Youtube Cuts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-the-content-creators-dilemma-choosing-between-igtv-and-youtube/"><u>[Updated] In 2024, The Content Creator’s Dilemma Choosing Between IGTV and YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-youtube-revenue-streams-cross-device-studio-strategies-for-2024/"><u>[Updated] YouTube Revenue Streams Cross-Device Studio Strategies for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/expert-advice-fixing-microphone-compatibility-in-counter-strike-2-games/"><u>Expert Advice: Fixing Microphone Compatibility in Counter-Strike 2 Games</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/harness-the-power-of-iphones-shutter-speed-for-motion-blurs-for-2024/"><u>Harness the Power of iPhone’s Shutter Speed for Motion Blurs for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/vs-youtube-unveiling-key-distinctions-and-best-platform-for-sharing/"><u>IGTV Vs. YouTube Unveiling Key Distinctions & Best Platform for Sharing</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-financial-outcomes-dailymotion-versus-youtube-earning-potential/"><u>In 2024, Financial Outcomes Dailymotion versus YouTube Earning Potential</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-mi-11-mini-your-gateway-to-professional-screen-recording/"><u>In 2024, Mi 11 Mini Your Gateway to Professional Screen Recording</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-path-to-profitability-enrolling-in-the-youtube-partner-program/"><u>In 2024, Path to Profitability Enrolling in the YouTube Partner Program</u></a></li>
+<li><a href="https://win-special.techidaily.com/kopieren-von-datensatzen-in-microsoft-sql-server-vergleich-zweier-effektiver-strategien/"><u>Kopieren Von Datensätzen in Microsoft SQL Server - Vergleich Zweier Effektiver Strategien</u></a></li>
+<li><a href="https://solve-howtos.techidaily.com/page-cannot-be-located-understanding-the-404-error-explained/"><u>Page Cannot Be Located: Understanding the '404 Error' Explained</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-tecno-spark-10-4g-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Tecno Spark 10 4G | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-fiscal-picture-for-content-makers-on-youtube-shorts-platform-for-2024/"><u>The Fiscal Picture for Content Makers on YouTube Shorts Platform for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unlocking-the-social-side-of-music-how-to-listen-together-with-friends-on-spotify/"><u>Unlocking the Social Side of Music: How to Listen Together with Friends on Spotify</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

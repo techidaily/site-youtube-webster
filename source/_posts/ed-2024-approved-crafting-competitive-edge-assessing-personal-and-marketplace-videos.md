@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Crafting Competitive Edge  Assessing Personal and Marketplace Videos\""
-date: 2025-01-28T03:07:17.461Z
-updated: 2025-01-29T17:16:05.614Z
+date: 2025-02-09T16:39:47.884Z
+updated: 2025-02-11T16:21:26.676Z
 tags:
   - ai video
   - ai youtube
@@ -51,6 +51,10 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playback-location.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 3\.  Demographics
 
  The demographics page helps you get YouTube insights, using them you can know the audience in a gender and location specific manner. For local businesses targeting a certain region, YouTube analytics would prove to be a boon. You can also know the geography and device used by the viewers with this feature. Understanding the gender and location of people will help you create dedicated product videos that would be helpful to them.
@@ -64,7 +68,7 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-traffic-source.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 5\.  Audience Retention
@@ -74,7 +78,7 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-audience-retention.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 6\.  Devices
@@ -84,7 +88,7 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-devices.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 7\.  Likes and dislikes
@@ -98,10 +102,6 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
  YouTube analytics help you determine the engagement metrics to explain the origin of your subscribers. It includes both their geo-location, the date of subscription, and the source/medium they used to land with your video on YouTube. You can observe the number of people subscribing and unsubscribing from your YouTube channel.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-subscribers.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  The subscription stream enables your audience to get suggestions for new videos from your channel and offer better exposure to the service and products you offer.
 
@@ -125,10 +125,6 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-cards.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 12\.  Sharing
 
  This aspect sums up the amount of shares of the YouTube video across different social networks along with the share date. Google ranking is influenced with the share numbers, as higher the number more the chances of unique backlinks for your videos.
@@ -140,6 +136,10 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
  Favorites has been renamed to 'Videos in playlists'. Your reach broadens as people keep marking your videos as favorites on their playlist. This is visible to the public on the YouTube channel itself.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playlists.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to analyze your competitors
 
@@ -168,7 +168,7 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -192,24 +192,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-chart-your-course-to-partner-status-via-a-rapid-10000-views-journey/"><u>[New] 2024 Approved Chart Your Course to Partner Status via a Rapid 10,000 Views Journey</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-craft-your-narrative-best-free-mobile-editors-android-focus/"><u>[New] 2024 Approved Craft Your Narrative Best Free Mobile Editors, Android Focus</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-crafting-stunning-youtubers-imagery-a-comprehensive-walkthrough/"><u>[New] 2024 Approved Crafting Stunning YouTubers' Imagery A Comprehensive Walkthrough</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-from-basics-to-breakthroughs-the-ultimate-strategy-for-youtube-advertising-success/"><u>[New] 2024 Approved From Basics to Breakthroughs The Ultimate Strategy for YouTube Advertising Success</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-introduction/"><u>[New] 2024 Approved Introduction</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-laughter-lane-top-7-comedy-content-concepts-for-vloggers/"><u>[New] 2024 Approved Laughter Lane Top 7 Comedy Content Concepts for Vloggers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-massive-viewership-triumphs-youtubes-greatest-hits/"><u>[New] 2024 Approved Massive Viewership Triumphs YouTube's Greatest Hits</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-maximize-video-potential-a-complete-guide-to-youtube-thumbnail-dimensions/"><u>[New] 2024 Approved Maximize Video Potential A Complete Guide to YouTube Thumbnail Dimensions</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-step-by-step-expedition-to-youtubes-unseen-layers-for-2024/"><u>[New] A Step-by-Step Expedition to YouTube's Unseen Layers for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-from-chats-to-files-the-methodical-approach-to-downloading-fb-video/"><u>[New] From Chats to Files The Methodical Approach to Downloading FB Video</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-endless-screen-saving-software-for-2024/"><u>[Updated] Endless Screen Saving Software for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-boosting-revenue-with-youtube-short-videos-a-complete-plan/"><u>2024 Approved Boosting Revenue with YouTube Short Videos – A Complete Plan</u></a></li>
-<li><a href="https://fox-that.techidaily.com/beat-error-4013-expert-advice-on-fixing-your-iphone-updaterestore-issues/"><u>Beat Error 4013: Expert Advice on Fixing Your iPhone Update/Restore Issues</u></a></li>
-<li><a href="https://discover-fantastic.techidaily.com/guia-paso-a-paso-para-recuperar-su-carpeta-de-descargas-desaparecida-en-chrome/"><u>Guía Paso a Paso Para Recuperar Su Carpeta De Descargas Desaparecida en Chrome</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/o-locate-your-youtube-fanbase-for-2024/"><u>How to Locate Your YouTube Fanbase for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210768306-9781639199143-mas-alla-de-la-vida/"><u>Más allá de la vida | Free Book</u></a></li>
-<li><a href="https://driver-install.techidaily.com/resolve-print-spooler-errors-in-windows-10/"><u>Resolve Print Spooler Errors in Windows 10</u></a></li>
-<li><a href="https://games-able.techidaily.com/step-by-step-manual-for-deleting-old-saved-files-from-ps5/"><u>Step-by-Step Manual for Deleting Old Saved Files From PS5</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-adaptation-solutions-picks-for-video-makers-for-2024/"><u>Voice Adaptation Solutions Picks for Video Makers for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-analyzed-the-finest-screen-capture-software-for-macos-for-2024/"><u>[New] Analyzed The Finest Screen Capture Software for macOS for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-how-to-join-google-meet/"><u>[New] How to Join Google Meet?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-including-youtube-playlist-content-a-step-by-step-tutorial/"><u>[New] In 2024, Including YouTube Playlist Content A Step-by-Step Tutorial</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-pioneering-panoramic-photography-gear/"><u>[New] Pioneering Panoramic Photography Gear</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-premium-cut-tools-the-top-8-linux-apps/"><u>[Updated] 2024 Approved Premium Cut Tools The Top 8 Linux Apps</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-swift-recording-pro-with-voice-commentary-feature-for-2024/"><u>[Updated] Swift Recording Pro with Voice Commentary Feature for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/exploring-the-final-frontier-watching-star-trek-movies-in-correct-sequence/"><u>Exploring the Final Frontier: Watching Star Trek Movies in Correct Sequence</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-expert-tips-for-youtube-channel-aesthetics-finding-optimal-sizes/"><u>In 2024, Expert Tips for YouTube Channel Aesthetics Finding Optimal Sizes</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-swiftness-at-a-click-managing-youtubes-video-speed-settings/"><u>In 2024, Swiftness at a Click Managing YouTube's Video Speed Settings</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ssentials-everyone-needs-to-know-about-youtube-tv-services/"><u>The Essentials Everyone Needs to Know About YouTube TV Services</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-steps-to-repair-a-malfunctioning-cddvd-drive-on-windows-pcs/"><u>Troubleshooting Steps to Repair a Malfunctioning CD/DVD Drive on Windows PCs</u></a></li>
 </ul></div>
 

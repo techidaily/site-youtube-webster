@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Playback Pivot  A Step-by-Step YT Guide\""
-date: 2025-01-01T06:10:20.755Z
-updated: 2025-01-03T19:03:34.377Z
+date: 2025-02-07T17:18:32.951Z
+updated: 2025-02-11T16:21:19.523Z
 tags:
   - ai video
   - ai youtube
@@ -27,6 +27,10 @@ So, keep reading to learn how to reverse a YouTube playlist so you can watch the
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Reverse a YouTube Playlist?
 
 Below we've provided four different solutions to help you reverse your YouTube playlist on your computer:
@@ -43,7 +47,7 @@ Step 1: In the first step, launch a browser on your computer and click the three
 ![access google web store](https://images.wondershare.com/filmora/article-images/accessing-google-web-store.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 2:
@@ -66,13 +70,13 @@ Step 4:Open a new page, visit [YouTube](https://www.youtube.com/), and a pop-up 
 
 ![iridium for youtube](https://images.wondershare.com/filmora/article-images/iridium-for-youtube.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 5: Click the "Play All" option in the details section of the playlist and click the Iridium button on the right side of the screen. This will open a new tab with different settings for your playlist. Go to the Video tab, and under the "Playlist" header, toggle the button next to "Enable reverse playlist control" to change the settings.
 
 ![set iridim for youtube](https://images.wondershare.com/filmora/article-images/setting-iridium-for-youtube-to-reverse-playlist.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 That's about it. You will now be able to watch a YouTube playlist in reverse order.
 
@@ -103,11 +107,7 @@ You can also utilize the "Sort" option to reverse the playlist. To do so, click 
 ![reverse youtube playlist order](https://images.wondershare.com/filmora/article-images/sorting-the-playlist-order-to-reverse-it.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A Bonus Tip for YouTube Creator: Make Your Own YouTube Channel Trailer
@@ -129,7 +129,7 @@ Step 3: Scroll down on your channel's dashboard, select a video, and click the t
 ![youtube playlist reverse order](https://images.wondershare.com/filmora/article-images/adding-playlist-to-private-playlist-to-reverse-order.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Next, provide a name, set the privacy settings to "Private," and click "Create."
@@ -165,17 +165,14 @@ So, keep reading to learn how to reverse a YouTube playlist so you can watch the
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-top-10-engaging-vr-experiences-on-youtube/"><u>[New] In 2024, Top 10 Engaging VR Experiences on Youtube</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/edia-mastery-youtube-vs-tiktoks-best-fit/"><u>[New] Media Mastery Youtube Vs. TikTok's Best Fit</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/nlocking-profitability-on-youtube-shorts-essentials-and-future-earning-prospects/"><u>[New] Unlocking Profitability on Youtube Shorts Essentials and Future Earning Prospects</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-capture-win10-ranking-the-best-video-grabbers/"><u>[Updated] 2024 Approved Capture Win10 Ranking the Best Video Grabbers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-transform-your-channel-with-effective-youtube-link-protocols/"><u>[Updated] 2024 Approved Transform Your Channel with Effective YouTube Link Protocols</u></a></li>
-<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-tecno-spark-20-pro-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From Tecno Spark 20 Pro to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/expert-advice-on-optimizing-your-tv-setup-for-an-epic-super-bowl-game-day/"><u>Expert Advice on Optimizing Your TV Setup for an Epic Super Bowl Game Day</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-full-tutorial-to-bypass-your-oppo-reno-11f-5g-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Oppo Reno 11F 5G Face Lock?</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/stop-windows-10s-persistent-restart-cycle-with-these-simple-troubleshooting-tips/"><u>Stop Windows 10'S Persistent Restart Cycle with These Simple Troubleshooting Tips</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/the-apex-gamers-choice-of-2024-in-depth-benchmarking-and-reviews-of-leading-laptops/"><u>The Apex Gamers' Choice of 2024: In-Depth Benchmarking and Reviews of Leading Laptops</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-music-from-oppo-by-fonelab-android-recover-music/"><u>Undelete lost music from Oppo</u></a></li>
-<li><a href="https://win11.techidaily.com/unleash-creativity-on-windows-11-desktops-with-drawing-tools/"><u>Unleash Creativity on Windows 11 Desktops with Drawing Tools</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-the-perfect-tweet-mastering-the-art-of-video-upload/"><u>[New] In 2024, The Perfect Tweet Mastering the Art of Video Upload</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-beautifying-videos-for-youtube-viewers/"><u>[Updated] 2024 Approved Beautifying Videos for YouTube Viewers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-channel-up-the-essential-guide-to-computer-and-mobile-video-upload-for-2024/"><u>[Updated] Channel Up The Essential Guide to Computer & Mobile Video Upload for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-inside-look-expert-techniques-with-vlc-playback/"><u>[Updated] In 2024, Inside Look Expert Techniques with VLC Playback</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-resolved-no-display-for-youtube-shorts/"><u>[Updated] Resolved No Display for YouTube Shorts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-top-6-ios-apps-turn-youtube-videos-into-mp3-files/"><u>2024 Approved Top 6 iOS Apps Turn YouTube Videos Into MP3 Files</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/lating-clickers-contribution-to-youtube-earnings/"><u>Calculating Clickers' Contribution to YouTube Earnings</u></a></li>
+<li><a href="https://techidaily.com/repair-damaged-unplayable-video-files-of-honor-magic-5-lite-by-stellar-video-repair-mobile-video-repair/"><u>Repair damaged, unplayable video files of Honor Magic 5 Lite</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/44k344ki44k44o844oi44o844oj44gn5yuv55s76kiy6yyy5qmf6io944ks5l255so44gx44gm5pig5yop44ks44kt44oj44ox44ob44oj44gz44kl5pa55rov/"><u>シアターモードで動画記録機能を使用して映像をキャプチャする方法</u></a></li>
 </ul></div>
 
