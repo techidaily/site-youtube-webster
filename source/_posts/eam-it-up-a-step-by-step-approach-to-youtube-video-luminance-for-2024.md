@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Beam It Up  A Step-By-Step Approach to YouTube Video Luminance for 2024\""
-date: 2024-08-27T14:05:57.376Z
-updated: 2024-08-28T14:05:57.376Z
+date: 2025-02-25T17:41:19.386Z
+updated: 2025-03-02T16:38:51.042Z
 tags:
   - ai video
   - ai youtube
@@ -49,18 +49,12 @@ Window lighting for me was especially difficult to work with because I live in a
 
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2. Home Lighting
 
 Home lighting is another source of light that many new YouTubers use. In the past, when my window light wasn’t strong enough to light my video recording space, I would turn on the ceiling light.
 
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
 
 Most home lighting is warmer in its color temperature. If you want to use your home lights without everything being orange-tinted, you’ll need to switch out your light bulbs for daytime LED light bulbs.
@@ -71,35 +65,16 @@ Ceiling lights are also typically situated in the center of a room in order to l
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### 2. 3-Point Lighting
 
 The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
 To minimize the shadows on your right side, use a weaker light as a fill light. You don’t want your fill light to completely eliminate all your shadows or else your shot will look flat.
@@ -114,9 +89,6 @@ What you’ll need to ensure that your background is sufficiently lit is 4-point
 
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ### Touch Up YouTube Videos with Filmora
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one of the best video editing software for YouTube beginners to start the YouTube channel. So, if you find the lighting isn't perfect after recording, you can use the Auto Color Enhancement feature in Filmora to adjust the color with one-click. Or, you can change the white balance, Light, color, and HSL manually. Filmora also features some presets and [LUTs templates](https://tools.techidaily.com/wondershare/filmora/download/), which allows you to apply pre-programmed effects to video for color correction faster.
@@ -131,14 +103,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -147,8 +116,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/lip-groove-best-bgm-choices-for-todays-popular-yt-shorts-for-2024/"><u>[New] Clip Groove Best BGM Choices For Today's Popular YT Shorts for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-top-picks-7-best-live-streaming-apps-to-upgrade-your-youtube-presence-iosandroid/"><u>[New] In 2024, Top Picks 7 Best Live Streaming Apps to Upgrade Your YouTube Presence (iOS/Android)</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-techniques-for-stunning-shadow-photography-on-your-iphone-for-2024/"><u>[New] Techniques for Stunning Shadow Photography on Your iPhone for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-ultimate-guide-to-itunes-video-downloading-for-ios-users-for-2024/"><u>[New] The Ultimate Guide to iTunes Video Downloading for iOS Users for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-creating-humor-making-funny-parody-videos/"><u>[Updated] 2024 Approved Creating Humor Making Funny Parody Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-digital-dynamo-women-the-fastest-growing-female-channel-owners/"><u>[Updated] 2024 Approved Digital Dynamo Women The Fastest-Growing Female Channel Owners</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-mac-tools-and-tricks-for-top-tiktok-videos-editing/"><u>[Updated] 2024 Approved Mac Tools and Tricks for Top TikTok Videos Editing</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-copyright-concern-unscheduled-video-displacement/"><u>[Updated] In 2024, Copyright Concern Unscheduled Video Displacement</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-prevent-youtube-spam-channel-blocking-guide-for-all-platforms-for-2024/"><u>[Updated] Prevent Youtube Spam Channel Blocking Guide for All Platforms for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-unveiling-the-steps-for-instant-video-playback-from-youtube-to-facebook-pages/"><u>2024 Approved Unveiling the Steps for Instant Video Playback From Youtube to Facebook Pages</u></a></li>
+<li><a href="https://fox-links.techidaily.com/analyzing-the-boons-and-banes-of-vr-headsets-for-2024/"><u>Analyzing the Boons & Banes of VR Headsets for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/bypassing-hurdles-expert-guide-to-effortlessly-install-discord/"><u>Bypassing Hurdles: Expert Guide to Effortlessly Install Discord</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-asus-rog-phone-8-pro-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Asus ROG Phone 8 Pro Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-youtubers-first-steps-starting-your-channel-and-earning-revenue/"><u>In 2024, Youtuber's First Steps Starting Your Channel & Earning Revenue</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-ultimate-guide-to-choosing-the-best-ups-systems-for-2nd4/"><u>The Ultimate Guide to Choosing the Best UPS Systems for 2nD4</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/transform-your-hr-processes-with-these-5-creative-ai-prompt-solutions/"><u>Transform Your HR Processes with These 5 Creative AI Prompt Solutions</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/re-your-video-shorts-thumbnails-not-showing/"><u>Why Are Your Video Shorts' Thumbnails Not Showing?</u></a></li>
+</ul></div>
 

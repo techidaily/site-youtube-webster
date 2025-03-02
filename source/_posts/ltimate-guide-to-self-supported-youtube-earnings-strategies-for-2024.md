@@ -1,7 +1,7 @@
 ---
 title: "\"The Ultimate Guide to Self-Supported YouTube Earnings Strategies for 2024\""
-date: 2024-08-27T14:04:40.977Z
-updated: 2024-08-28T14:04:40.977Z
+date: 2025-03-01T17:24:00.230Z
+updated: 2025-03-02T17:12:38.368Z
 tags:
   - ai video
   - ai youtube
@@ -88,9 +88,6 @@ Here are some examples of products and services you can offer:
 
  ![YouTuber Jake Paul](https://images.wondershare.com/filmora/article-images/jack-paul1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 _YouTuber, Jake Paul uses eCommerce platform_ [_Fanjoy_](https://fanjoy.co/collections/) _to sell his merch._
 
 #### **Services:**
@@ -105,9 +102,6 @@ _YouTuber, Jake Paul uses eCommerce platform_ [_Fanjoy_](https://fanjoy.co/colle
 
  ![YouTuber Sunny Lenarduzzi](https://images.wondershare.com/filmora/article-images/sunny-lenarduzzi2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _YouTuber and entrepreneur, Sunny Lenarduzzi uses YouTube as a platform to get clients for her consulting business._
 
 #### **How to Sell a Product or Service on YouTube**
@@ -138,9 +132,6 @@ The video is over 9 minutes long and not once does he tell his audience to buy a
 
 ![link in the description box](https://images.wondershare.com/filmora/article-images/link-in-description-box4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **The YouTube Card:**
 
 ![youtube card tutorial](https://images.wondershare.com/filmora/article-images/youtube-card-tutorial5.jpg)
@@ -177,9 +168,6 @@ The average affiliate commission rate is between 5% to 30%, with a lot of variab
 
 ![affiliate links](https://images.wondershare.com/filmora/article-images/affiliat-link8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _Travel YouTuber,_ [_Sorelle Amore_](https://www.youtube.com/user/SorelleIAm) _’s affiliate links to her vlogging gears._
 
  Keep in mind that people are most likely going to take recommendations from people they trust. You wouldn’t buy a computer from a nutritionist and you wouldn’t buy vitamins from a gamer, so consider what you are an expert in and what products you have the most authority to speak about.
@@ -218,9 +206,6 @@ Here is the list of 4 popular affiliate marketing networks:
 
 You can also partner with brands directly as many of them, such as [Sephora](https://www.sephora.com/affiliates) and [Canon](https://shop.usa.canon.com/shop/en/catalog/affiliate-program), will have their own affiliate program.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **3\. Brand Deal or Sponsorships:**
 
 Selling out, that is often the thought when we hear creators getting brand deals and sponsorships, but that stigma is unfounded if the brand and the content are properly aligned. As your channel grows, you will begin to recognize brands that match your values — and the values of your viewers — and those that don’t.
@@ -231,9 +216,6 @@ In an ad for Beats by Dre’s #BuiltForBosses campaign, YouTuber [Liza Koshy out
 
 ![perform the likes](https://images.wondershare.com/filmora/article-images/perform-the-likes9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 While it does take significant effort on YouTube to acquire a following, it is possible for a YouTube channel with 1,000 subscribers to get a brand deal. Getting the buy-in from brands is a numbers game, and according to [Video Creators](https://videocreators.com/how-to-get-started-with-brand-deals-on-youtube/), the minimal number of views per video shouldn’t be lower than 2,000 if this is the path you want to head in.
 
 #### **How to Get Discovered By Brands**
@@ -244,9 +226,6 @@ If you want to get a brand deal and become an influencer on YouTube, then you wi
 
 ![famebit brand](https://images.wondershare.com/filmora/article-images/famebit-brand10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 #### **How Influencer Marketing Platforms Like Famebit Works**
 
 When you sign up for Famebit or other influencer marketing platforms you have an opportunity to get in front of brands who are seeking influencers to share their product or service.
@@ -262,9 +241,6 @@ Steps to getting a brand deal:
 
  Unlike celebrity marketing, YouTube creators have shown brands over the years that they are inventive and clever with how they can present the brand to the audience to drive the best results. This type of independence is what makes YouTube influencer marketing special.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ##  
 
 ## **4\. Crowdfunding:**
@@ -314,23 +290,17 @@ Got questions about making money on YouTube? Leave a comment below. We love to h
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -339,8 +309,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-the-ultimate-guide-to-vimeo-record-features/"><u>[New] 2024 Approved The Ultimate Guide to Vimeo Record Features</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-visual-sizzle-how-to-make-your-youtube-logo-pop/"><u>[New] 2024 Approved Visual Sizzle How to Make Your YouTube Logo Pop</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-the-ultimate-guide-to-the-best-video-editors-not-on-youtoo/"><u>[New] In 2024, The Ultimate Guide to the Best Video Editors Not on YouToo</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-top-10-games-like-ghost-of-tsushima/"><u>[Updated] 2024 Approved Top 10 Games Like Ghost of Tsushima</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-turning-videos-backward-iphone-methods/"><u>[Updated] 2024 Approved Turning Videos Backward IPhone Methods</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/cheapest-and-most-reliable-cloud-options-for-2024/"><u>Cheapest & Most Reliable Cloud Options for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-dynamic-content-with-youtube-playlist-embedding/"><u>Creating Dynamic Content with YouTube Playlist Embedding</u></a></li>
+<li><a href="https://facebook.techidaily.com/discloser-of-confidences-unmasking-fbs-informant/"><u>Discloser of Confidences: Unmasking FB’s Informant</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-oneplus-open-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on OnePlus Open Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-navigating-youtubes-revenue-tools-for-mobile-creators/"><u>In 2024, Navigating YouTube's Revenue Tools for Mobile Creators</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-the-ultimate-guide-to-posting-panoramas-a-step-by-step-approach/"><u>In 2024, The Ultimate Guide to Posting Panoramas A Step-By Step Approach</u></a></li>
+</ul></div>
 

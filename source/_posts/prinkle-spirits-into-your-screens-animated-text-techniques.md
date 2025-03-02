@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Sprinkle Spirits Into Your Screens  Animated Text Techniques\""
-date: 2025-02-10T16:19:03.422Z
-updated: 2025-02-11T16:30:19.090Z
+date: 2025-03-01T16:37:22.134Z
+updated: 2025-03-02T18:12:45.883Z
 tags:
   - ai video
   - ai youtube
@@ -31,10 +31,6 @@ Earlier, you learned how to have a **[bounce text effect in Adobe After Effects]
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
 When talking about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), the application is populated with several presets for texts and titles, animations, effects, filters, and much more.
@@ -55,10 +51,6 @@ In the timeline, double-click the title you just added, use the upper-left secti
 
 ![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3: Add Shake Filters**
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
@@ -69,19 +61,11 @@ You can customize the default effect by double-clicking the shake filter in the 
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4: Export the Final Output**
 
 Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
 
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
 
@@ -90,10 +74,6 @@ Double click the text track, go to the **Chroma Key** effect, select the **Color
 As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
 
@@ -168,17 +148,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-the-most-economical-tools-for-youtube-audio-conversion/"><u>[New] In 2024, The Most Economical Tools for YouTube Audio Conversion</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/outubes-top-5-apps-that-trim-your-long-video-links-down-for-2024/"><u>[New] Youtube’s Top 5 Apps That Trim Your Long Video Links Down for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-best-practices-for-capturing-streamed-television/"><u>[Updated] Best Practices for Capturing Streamed Television</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-explore-free-youtube-channel-imagery-tools-for-2024/"><u>[Updated] Explore Free YouTube Channel Imagery Tools for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-superior-image-quality-the-power-of-youtubes-av1-settings/"><u>[Updated] Superior Image Quality The Power of YouTube's AV1 Settings</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-elevate-your-video-conferencing-game-with-slack-and-filmora-integration/"><u>2024 Approved Elevate Your Video Conferencing Game with Slack & Filmora Integration</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-pulling-fun-on-pedal-power/"><u>2024 Approved Pulling Fun on Pedal Power</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/accelerate-your-ui-skills-with-windows-11-widgets/"><u>Accelerate Your UI Skills with Windows 11 Widgets</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/rs-assistant-top-5-portable-devices-for-vfx-artists/"><u>Editor's Assistant Top 5 Portable Devices for VFX Artists</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-oppo-reno-11-pro-5g-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track Oppo Reno 11 Pro 5G by Phone Number | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-motorola-moto-g-stylus-5g-2023-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Motorola Moto G Stylus 5G (2023) Phones with/without a PC</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/razer-portal-gaming-laptop-analysis-wireless-connectivity-excellence/"><u>Razer Portal Gaming Laptop Analysis: Wireless Connectivity Excellence</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/dding-audio-descriptions-to-videos-on-youtube-for-2024/"><u>[New] Adding Audio Descriptions to Videos on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/uide-to-structuring-youtube-content-with-separate-chapters-for-2024/"><u>[New] Guide to Structuring YouTube Content with Separate Chapters for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-from-zero-to-hero-steps-to-construct-your-channels-backlinks/"><u>[New] In 2024, From Zero to Hero Steps to Construct Your Channel's Backlinks</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-innovate-on-screen-imagery-with-youtubes-green-screens-edge/"><u>[New] In 2024, Innovate On-Screen Imagery with YouTube’s Green Screens Edge</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-skyrocket-your-audience-with-shorts-templates/"><u>[New] In 2024, Skyrocket Your Audience with Shorts Templates</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-premier-gaming-liquids-best-of-breed-lists-for-2024/"><u>[New] Premier Gaming Liquids Best of Breed Lists for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-unlocking-audio-excellence-in-ios-settings-for-2024/"><u>[Updated] Unlocking Audio Excellence in iOS Settings for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-discover-times-tales-top-10-historical-channels-to-study-with/"><u>2024 Approved Discover Time's Tales Top 10 Historical Channels to Study With</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/comprehensive-guide-to-viewing-facebook-videos-on-apple-tv-devices-for-2024/"><u>Comprehensive Guide to Viewing Facebook Videos on Apple TV Devices for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-humorhub-imagery-mememagic-inc/"><u>In 2024, HumorHub Imagery MemeMagic Inc</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Meizu 21 Pro? | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/maintaining-originality-of-windows-safescreensaver/"><u>Maintaining Originality of Windows SafeScreensaver</u></a></li>
+<li><a href="https://fox-search.techidaily.com/meilleure-application-logicielle-de-deploiement-des-donnees-pour-ssds-toshiba-sur-windows-111087/"><u>Meilleure Application Logicielle De Déploiement Des Données Pour SSDs Toshiba Sur Windows 11/10/8/7</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/peak-memetic-artistry-hub/"><u>Peak Memetic Artistry Hub</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-discover-the-best-vsdc-video-editor-alternatives-for-mac-computers-for-2024/"><u>Updated Discover the Best VSDC Video Editor Alternatives for Mac Computers for 2024</u></a></li>
 </ul></div>
 

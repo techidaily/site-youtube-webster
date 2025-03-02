@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Top 8 Pitfalls for Novice YouTube Creators"
-date: 2024-08-31T18:38:57.530Z
-updated: 2024-09-01T18:38:57.530Z
+date: 2025-02-27T17:02:43.691Z
+updated: 2025-03-02T16:24:16.732Z
 tags:
   - ai video
   - ai youtube
@@ -38,18 +38,12 @@ One common mistake that a lot of new YouTubers make is failing to have a long-te
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Choosing an ineffective custom URL
 
 Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### 3\. Coming up with titles that won't get searched
 
 Many new YouTubers make the mistake of titling their videos in an ineffective way. Rather than coming up with titles that more people might search, they either come up with titles that summarize what the video is about as a whole or title their videos the way big YouTubers do.
@@ -58,9 +52,6 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
@@ -81,18 +72,12 @@ An important thing to do as a new YouTuber is engaging with your subscribers. So
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 7\. Not promoting with social media
 
 YouTube isn’t the only social media platform that people are spending their time on. People are spending their time on all kinds of different social media platforms, like Twitter, Facebook, and Instagram. The more content in all of these platforms that you create to promote your video, the more potential your video has to be seen by their users.
 
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 8\. Spamming comments
 
 Commenting on other YouTube videos is another way to get your channel discovered from people reading over comments. If your profile picture and comment appears interesting enough, out of curiosity, people just might click your username to have a look at your channel.
@@ -103,23 +88,17 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -128,8 +107,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-documenting-the-fun-video-your-nintendo-switch-games/"><u>[New] 2024 Approved Documenting the Fun Video Your Nintendo Switch Games</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ancefloor-dynamics-top-rated-dj-video-selections/"><u>[New] Dancefloor Dynamics Top-Rated DJ Video Selections</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-balanced-photography-top-phones-and-cameras-tripod/"><u>[New] In 2024, Balanced Photography Top Phones & Cameras Tripod</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-premier-live-streaming-platforms-revealed/"><u>[New] In 2024, Premier Live Streaming Platforms Revealed</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-proven-techniques-for-captivating-viewers-with-live-video-graphics/"><u>[Updated] 2024 Approved Proven Techniques for Captivating Viewers with Live Video Graphics</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-clearing-tactics-for-youtubes-stored-video-queue/"><u>[Updated] Clearing Tactics for YouTube's Stored Video Queue</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-best-7-live-streaming-apps-to-amplify-your-youtube-presence-on-iphone-and-android/"><u>2024 Approved Best 7 LIVE Streaming Apps to Amplify Your YouTube Presence on iPhone and Android</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/2024-approved-live-chat-with-woocommerce-your-gateway-to-successful-live-selling/"><u>2024 Approved Live Chat With WooCommerce Your Gateway to Successful Live Selling</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-secrets-of-success-converting-ipv-video-files-with-flair/"><u>2024 Approved Secrets of Success Converting IPV Video Files with Flair</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/iently-implementing-youtube-end-screens-for-2024/"><u>Efficiently Implementing Youtube End Screens for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/essential-apps-for-invisible-story-watching/"><u>Essential Apps for Invisible Story Watching</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/by-step-tutorial-to-design-unique-youtube-thumbnails/"><u>Step-by-Step Tutorial to Design Unique YouTube Thumbnails</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/streamline-your-windows-experience-fixing-dwms-impact-on-gpu-resources-in-win11-and-win10-a-5-step-guide/"><u>Streamline Your Windows Experience: Fixing DWM's Impact on GPU Resources in Win11 and Win10 – A 5-Step Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/mooth-watchers-guide-to-pacing-down-videos-on-youtube-60-chars-minor-exception-due-to-title-length-but-provides-rich-context-for-2024/"><u>The Smooth Watcher's Guide to Pacing Down Videos on YouTube (60 Chars, Minor Exception Due to Title Length but Provides Rich Context) for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/unraveling-youtube-subtitles-srt-a-triad-of-steps-for-2024/"><u>Unraveling YouTube Subtitles (SRT) A Triad of Steps for 2024</u></a></li>
+</ul></div>
 

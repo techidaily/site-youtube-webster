@@ -1,7 +1,7 @@
 ---
 title: "\"IOS/Android Playback  Silent YouTube Autoplay Tips for 2024\""
-date: 2025-02-05T17:12:10.671Z
-updated: 2025-02-11T16:37:59.958Z
+date: 2025-03-01T17:11:12.433Z
+updated: 2025-03-02T16:10:56.449Z
 tags:
   - ai video
   - ai youtube
@@ -55,14 +55,6 @@ Launch **YouTube Music**, search for your favorite music using the **Search** ic
 
 ![ YouTube Premium Play Music background](https://images.wondershare.com/filmora/article-images/youtube-premium-play-music-background.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 2: Switch to Audio Only (Optional)
 
 Tap anywhere on the video player window, and tap **Audio** from the top of the screen to switch to the audio only mode where the video of the song won’t be played.
@@ -81,17 +73,9 @@ Launch Safari on your iPhone, and go to [**www.youtube.com**](https://www.youtub
 
 Use the regular method to search for the video you want to play in the background, and tap the **Play** button to start streaming.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 2: Open a New Tab
 
 Tap the **All Tabs** icon from the bottom-right corner of the browser, and tap **+** from the bottom-center. Notice how the YouTube video continues to play even when you are on the new tab.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 3: Play YouTube in Background
 
@@ -106,14 +90,6 @@ The process to **play YouTube in background** on an Android smartphone is slight
 Launch Google Chrome (default) on your Android phone, and go to [**www.youtube.com**](https://www.youtube.com). Click the **More options** icon (with three vertically aligned dots) from the top-right corner of the browser, and check the **Desktop site** box from the menu that appears.
 
 ![ Switch to YouTube desktop site on Android](https://images.wondershare.com/filmora/article-images/switch-to-desktop-site-youtube.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 2: Search for and Stream a Video
 
@@ -137,10 +113,6 @@ Being one of the most versatile media playing software, VLC needs no introductio
 
 This app does exactly what its name suggests. The program has a ‘Minimize player’ mode that allows you to stream YouTube videos in a small window that reduces its size and resides at the bottom of the screen, thus letting you use your Android phone for other important tasks simultaneously.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### [Background player for YouTube Vanced minimizer](https://play.google.com/store/apps/details?id=com.free.music.app&hl=en%5Fus)
 
 Yet another app available on Google Play Store that lets you search for your favorite videos on YouTube, stream them, and then minimize the player to a floating window that goes down to the bottom of the screen. This lets you **play YouTube in background** in order to allow you to use your phone for other tasks.
@@ -154,10 +126,6 @@ Yet another app available on Google Play Store that lets you search for your fav
 Watching YouTube videos has become a part of people’s day-to-day life now. While many of them use the platform to learn new skills through the tutorials that are available for free, others love the idea of having unlimited and unrestricted access to the gigantic database of music videos that they can dig in to find and play their favorite tracks. For the latter scenario, the processes explained above are likely to come in handy in order to **play YouTube in background** so the users can take full advantage of their iPhone or Android smartphone in case they only want to listen to the audio, and are not interested in watching the video while streaming.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -180,19 +148,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-auroras-approach-to-hdv-standing-out-or-same-old/"><u>[New] Aurora's Approach to HDV Standing Out or Same Old</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ow-to-use-youtube-enhancements-to-improve-video-quality-for-2024/"><u>[New] How to Use YouTube Enhancements to Improve Video Quality for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-12-proven-ways-to-increase-youtube-views-you-should-try/"><u>[New] In 2024, 12 Proven Ways to Increase YouTube Views You Should Try</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-breaking-down-the-new-normal-facebook-short-videos/"><u>[New] In 2024, Breaking Down the New Normal Facebook Short Videos</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-how-to-effectively-move-files-between-two-ios-units/"><u>[New] In 2024, How to Effectively Move Files Between Two iOS Units</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-modify-where-mac-photos-stash-location/"><u>[New] Modify Where Mac Photos Stash Location</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/op-profit-generating-online-entertainer-for-2024/"><u>[New] Top Profit Generating Online Entertainer for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-ideal-screen-recorder-picks-for-digital-educators/"><u>[Updated] 2024 Approved Ideal Screen Recorder Picks for Digital Educators</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-creepy-comic-composer/"><u>2024 Approved Creepy Comic Composer</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/earning-video-visionaries-for-2024/"><u>High Earning Video Visionaries for 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-oppo-find-x7-ultra-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Oppo Find X7 Ultra FRP In 3 Different Ways</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-restore-functionality-to-your-dells-broken-usb-port-a-comprehensive-guide/"><u>How to Restore Functionality to Your Dell's Broken USB Port - A Comprehensive Guide</u></a></li>
-<li><a href="https://driver-install.techidaily.com/keeping-hyperx-headsets-up-to-date-with-new-driver-implementations/"><u>Keeping HyperX Headsets Up To Date with New Driver Implementations</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/king-youtubes-full-potential-with-top-video-formats-for-2024/"><u>Unlocking YouTube's Full Potential with Top Video Formats for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-ultimate-10-audio-elevators-on-computersmobile/"><u>[New] 2024 Approved Ultimate 10 Audio Elevators on Computers/Mobile</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-scale-up-your-youtube-audience-by-the-hundredfold/"><u>[New] In 2024, Scale Up Your YouTube Audience by the Hundredfold</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/oyful-views-essential-15-comical-youtubers-to-relax-with-for-2024/"><u>[New] Joyful Views Essential 15 Comical YouTubers to Relax With for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-streaming-strategy-is-vlc-worthy-to-challenge-mpc/"><u>[New] Streaming Strategy Is VLC Worthy to Challenge MPC?</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-unveiling-top-editors-perfect-entries-any-device/"><u>[Updated] In 2024, Unveiling Top Editors Perfect Entries, Any Device</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-ultimate-zoom-strategy-for-fb-live-success-for-2024/"><u>[Updated] The Ultimate Zoom Strategy for FB Live Success for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-oppo-a78-5g-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Oppo A78 5G by Name | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/achieve-peak-productivity-by-adopting-programming-principles-in-daily-workflows-insights-from-zdnet/"><u>Achieve Peak Productivity by Adopting Programming Principles in Daily Workflows | Insights From ZDNet</u></a></li>
+<li><a href="https://some-tips.techidaily.com/discover-the-ultimate-8-torrent-sites-for-fan-favorite-tv-shows-exploring-with-movavi/"><u>Discover the Ultimate 8 Torrent Sites for Fan-Favorite TV Shows – Exploring with Movavi</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-get-the-apple-id-verification-code-from-iphone-11-pro-in-the-best-ways-by-drfone-ios/"><u>How To Get the Apple ID Verification Code From iPhone 11 Pro in the Best Ways</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-learn-from-the-greats-strategies-for-confident-online-sharing/"><u>In 2024, Learn From the Greats Strategies for Confident Online Sharing</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-your-pathway-to-profit-the-most-straightforward-top-10-business-channels-on-youtube/"><u>In 2024, Your Pathway to Profit The Most Straightforward Top 10 Business Channels on YouTube</u></a></li>
 </ul></div>
 

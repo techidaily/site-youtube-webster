@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Crafting Competitive Edge  Assessing Personal and Marketplace Videos\""
-date: 2025-02-09T16:39:47.884Z
-updated: 2025-02-11T16:21:26.676Z
+date: 2025-02-27T16:43:59.004Z
+updated: 2025-03-02T17:07:00.619Z
 tags:
   - ai video
   - ai youtube
@@ -51,10 +51,6 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playback-location.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 3\.  Demographics
 
  The demographics page helps you get YouTube insights, using them you can know the audience in a gender and location specific manner. For local businesses targeting a certain region, YouTube analytics would prove to be a boon. You can also know the geography and device used by the viewers with this feature. Understanding the gender and location of people will help you create dedicated product videos that would be helpful to them.
@@ -67,29 +63,17 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-traffic-source.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 5\.  Audience Retention
 
  This data explains how far your video has engaged your audience. Along with views, the duration that a viewer is on your video weighs too. From the audience retention page, you can find out the specific time that a viewer has exited your video and see what made them do so. There are 2 types of audience retention features – absolute audience retention and relative audience retention.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-audience-retention.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 6\.  Devices
 
  It is important to know which device is being used to watch the video. The metrics is distributed among mobile phones, computer, TV, tablet etc. you will be able to understand whether your video needs to be optimized for a certain video or not.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-devices.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 7\.  Likes and dislikes
 
@@ -137,10 +121,6 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playlists.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to analyze your competitors
 
  Although, you can't see the dashboard data of your competitor, there are still some ways to observe and study your competitors' successful videos and from their views, favorites, ratings, and comments find out the driving force behind it.
@@ -167,10 +147,6 @@ thumbnail: https://thmb.techidaily.com/0a337b8d498c7856f1553f3aec6dd0a0ba10469da
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -192,16 +168,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-analyzed-the-finest-screen-capture-software-for-macos-for-2024/"><u>[New] Analyzed The Finest Screen Capture Software for macOS for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-how-to-join-google-meet/"><u>[New] How to Join Google Meet?</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-including-youtube-playlist-content-a-step-by-step-tutorial/"><u>[New] In 2024, Including YouTube Playlist Content A Step-by-Step Tutorial</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-pioneering-panoramic-photography-gear/"><u>[New] Pioneering Panoramic Photography Gear</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-premium-cut-tools-the-top-8-linux-apps/"><u>[Updated] 2024 Approved Premium Cut Tools The Top 8 Linux Apps</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-swift-recording-pro-with-voice-commentary-feature-for-2024/"><u>[Updated] Swift Recording Pro with Voice Commentary Feature for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/exploring-the-final-frontier-watching-star-trek-movies-in-correct-sequence/"><u>Exploring the Final Frontier: Watching Star Trek Movies in Correct Sequence</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-expert-tips-for-youtube-channel-aesthetics-finding-optimal-sizes/"><u>In 2024, Expert Tips for YouTube Channel Aesthetics Finding Optimal Sizes</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-swiftness-at-a-click-managing-youtubes-video-speed-settings/"><u>In 2024, Swiftness at a Click Managing YouTube's Video Speed Settings</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ssentials-everyone-needs-to-know-about-youtube-tv-services/"><u>The Essentials Everyone Needs to Know About YouTube TV Services</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-steps-to-repair-a-malfunctioning-cddvd-drive-on-windows-pcs/"><u>Troubleshooting Steps to Repair a Malfunctioning CD/DVD Drive on Windows PCs</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-best-laptops-for-4k-video-editing/"><u>[New] Best Laptops for 4K Video Editing</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-channel-expansion-through-smart-youtube-link-building-methods/"><u>[New] In 2024, Channel Expansion Through Smart YouTube Link-Building Methods</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-yt-highlights-year-end-spotlight-on-top-music-reactions/"><u>[New] In 2024, YT Highlights Year-End Spotlight on Top Music Reactions</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-secure-recording-methods-for-sensitive-whatsapp-discussions-for-2024/"><u>[New] Secure Recording Methods for Sensitive WhatsApp Discussions for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/teps-to-prevent-youtube-channels-mobile-and-desktop-methods/"><u>[New] Steps to Prevent Youtube Channels Mobile and Desktop Methods</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nleash-creativity-with-top-9-free-tools-to-craft-your-brand-for-2024/"><u>[New] Unleash Creativity with Top 9 Free Tools to Craft Your Brand for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-unveiling-the-ultimate-secret-amplifying-gaming-vids-with-hashes/"><u>[Updated] Unveiling the Ultimate Secret Amplifying Gaming Vids with Hashes</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-hack-your-way-to-speedy-youtube-video-processing/"><u>2024 Approved Hack Your Way to Speedy YouTube Video Processing</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-best-time-to-post-on-ig-for-maximum-reach/"><u>2024 Approved The Best Time to Post on IG for Maximum Reach</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/amplify-your-brands-voice-with-these-pivotal-promotion-tactics/"><u>Amplify Your Brand's Voice with These Pivotal Promotion Tactics</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/expert-tips-diagnosing-and-repairing-your-defective-samsung-soundbar/"><u>Expert Tips: Diagnosing and Repairing Your Defective Samsung Soundbar</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-oppo-a56s-5g-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Oppo A56s 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-vivo-y36i-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on Vivo Y36i Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/overcoming-not-found-d3d9dll-complications-expert-solutions/"><u>Overcoming 'Not Found' D3D9.DLL Complications: Expert Solutions</u></a></li>
 </ul></div>
 

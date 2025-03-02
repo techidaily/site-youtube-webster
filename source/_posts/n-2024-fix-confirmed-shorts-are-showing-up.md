@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Fix Confirmed  Shorts Are Showing Up\""
-date: 2024-08-27T14:05:23.769Z
-updated: 2024-08-28T14:05:23.769Z
+date: 2025-02-26T16:53:20.503Z
+updated: 2025-03-02T17:28:58.016Z
 tags:
   - ai video
   - ai youtube
@@ -65,9 +65,6 @@ And, you must note that a YouTube Shorts video consists of two criteria as follo
 
 Here’s the section covering fixes on YouTube Shorts not showing. Please give it a read and resolve your issue happily!
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Fix 1: Update the YouTube App
 
 As we've already discussed above, check if your YouTube mobile app has the latest version. The newest version of the YouTube mobile app (Version: 16.17.36) has a dedicated Shorts button at the bottom. And, it replaces the Trending button from the YouTube app.
@@ -76,28 +73,16 @@ Moreover, the option to upload Shorts is now hidden behind the **+** icon. Tap o
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-not-showing-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ### Fix 2: Check If Shorts Is Available in Your Country
 
 Now, YouTube Shorts is available globally, but there was a phase when YouTube Shorts was a beta feature. It was only available in India and the US, which could be why you could not view Shorts in the YouTube app.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ### Fix 3: YouTube Shorts Is Mobile-only
 
 As of now, YouTube Shorts is only available on a smartphone because it's still in beta version. However, you can create Shorts via smartphone and the camera option in YouTube mobile app. Hence, there's no point in searching for Shorts on your computer.
 
 You can upload Shorts videos from your laptop. The entire process is similar to uploading a regular video. However, you have to mention #Shorts in the title and description to differentiate it as a Shorts video.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ### Common Fixes to YouTube Shorts Not Working
 
 1. Update the YouTube App to the latest version.
@@ -132,9 +117,6 @@ Once uploaded, the YouTube Shorts will be displayed in a vertical thumbnail on Y
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-not-showing-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ### Bonus Tip: How to Easily Create Vertical Videos for YouTube Shorts on PC
 
 The YouTube Shorts app is pretty convenient to use nowadays. However, it doesn't allow you to fine-edit the videos if you've explored the app or specifically when you want your videos to look more professional. The app doesn't even have many filtering options, such as Effects, Elements, etc., to make your videos more interactive.
@@ -145,9 +127,6 @@ We recommend Wondershare Filmora because it is a production and post-production 
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Moreover, a YouTube Shorts video can be made through Wondershare Filmora using the below-mentioned guide.
 
 **Note:** We are assuming that you have already recorded a vertical video using your smartphone and that it has been transferred to your PC.
@@ -196,9 +175,6 @@ Then the video will be automatically and quickly reframed to your specified spee
 
 ![filmora](https://images.wondershare.com/filmora/guide/7-restart-reframing.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 4\. Preview the Reframed Video and Check**
 
 Lastly, you can preview your final video. If the video needs more work, you can also play and pause it at the point you want to adjust the frame. You can use **Next Edit Point**, **Undo**, **Redo**, and **Previous Edit Point** at the bottom panel.
@@ -249,23 +225,17 @@ However, we've mainly defined the editing part of Wondershare Filmora except cre
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -274,8 +244,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/losing-with-panache-free-youtubes-1-six/"><u>[New] Closing with Panache Free YouTube's #1 Six</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-exclusive-directory-of-tones-for-your-snapchat-account/"><u>[New] Exclusive Directory of Tones for Your SnapChat Account</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-enhance-listening-experience-on-pc-get-x-recorder-software/"><u>[New] In 2024, Enhance Listening Experience on PC – Get X-Recorder Software</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-essential-list-of-8-authentic-youtube-boosters/"><u>[New] The Essential List of 8 Authentic YouTube Boosters</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-game-changing-tactics-to-record-high-stakes-gameplay/"><u>[Updated] 2024 Approved Game-Changing Tactics to Record High-Stakes Gameplay</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-how-to-retrieve-your-voice-on-youtube-comments/"><u>[Updated] 2024 Approved How To Retrieve Your Voice on YouTube (Comments)</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-ideal-recording-gear-for-vloggers-for-2024/"><u>[Updated] Ideal Recording Gear for Vloggers for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-navigating-tags-on-youtube-tips-and-tricks/"><u>[Updated] In 2024, Navigating Tags on YouTube - Tips and Tricks</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-multiplatform-iptv-interoperability-for-2024/"><u>[Updated] Multiplatform IPTV Interoperability for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-quick-adaptation-video-size-to-mac-screen-proportion-for-2024/"><u>[Updated] Quick Adaptation Video Size to Mac Screen Proportion for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-craft-channels-with-flair-unveiling-10-innovative-design-platforms/"><u>2024 Approved Craft Channels with Flair Unveiling 10 Innovative Design Platforms</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-from-pixels-to-perfection-the-advantages-of-srgb-over-rgb/"><u>2024 Approved From Pixels to Perfection The Advantages of Srgb over Rgb</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/free-downloaders-download-youtube-thumbnail-for-free-for-2024/"><u>Best Free Downloaders Download YouTube Thumbnail for Free for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/convertir-mts-a-mp4-sin-coste-metodos-faciles-y-rapidos/"><u>Convertir Mts a Mp4 Sin Coste: Métodos Fáciles Y Rápidos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/g-into-viral-video-dialogues/"><u>Diving Into Viral Video Dialogues</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-the-driver-package-which-typically-includes-a-setup-file-along-with-necessary-software-tools/"><u>Download the Driver Package, Which Typically Includes a Setup File Along with Necessary Software Tools</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/active-subscription-buttons-filmoras-guide-to-animated-sign-up-bars-for-2024/"><u>Interactive Subscription Buttons - Filmora's Guide to Animated Sign-Up Bars for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/techniques-to-rehabilitate-compromised-nikon-movs/"><u>Techniques to Rehabilitate Compromised Nikon MOVs</u></a></li>
+</ul></div>
 

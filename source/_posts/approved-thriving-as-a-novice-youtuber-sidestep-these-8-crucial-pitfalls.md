@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Thriving as a Novice YouTuber? Sidestep These 8 Crucial Pitfalls\""
-date: 2024-08-31T18:40:38.440Z
-updated: 2024-09-01T18:40:38.440Z
+date: 2025-02-26T18:08:09.310Z
+updated: 2025-03-02T18:12:20.787Z
 tags:
   - ai video
   - ai youtube
@@ -38,9 +38,6 @@ One common mistake that a lot of new YouTubers make is failing to have a long-te
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### 2\. Choosing an ineffective custom URL
 
 Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
@@ -55,19 +52,12 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ### 5\. Making weak intros
 
 After you’ve managed to get someone to click on your video through your effective title and thumbnail image strategy, the next challenge is to keep that person watching your video without closing it too early. A typical viewer on YouTube decides within the first ten to fifteen seconds of landing on a video whether or not he or she will stay or leave. This short window of time is so important to set the tone of the rest of your video and build excitement and curiosity in your viewer with an effective, high-energy intro.
@@ -76,18 +66,12 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ### 6\. Forgetting to engage with subscribers
 
 An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ### 7\. Not promoting with social media
 
 YouTube isn’t the only social media platform that people are spending their time on. People are spending their time on all kinds of different social media platforms, like Twitter, Facebook, and Instagram. The more content in all of these platforms that you create to promote your video, the more potential your video has to be seen by their users.
@@ -104,23 +88,17 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -129,8 +107,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-mastering-close-up-cinematography-through-zooming/"><u>[New] 2024 Approved Mastering Close-Up Cinematography Through Zooming</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-yearly-recorder-real-time-social-media-events/"><u>[New] 2024 Approved Yearly Recorder Real-Time Social Media Events</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/hannel-riches-anywhere-adopting-youtube-analytics-and-monetization-for-2024/"><u>[New] Channel Riches Anywhere Adopting YouTube Analytics & Monetization for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-crafting-videos-youtube-tools-and-more/"><u>[New] In 2024, Crafting Videos YouTube Tools and More</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-superstar-creators-the-highest-paid-ones/"><u>[New] In 2024, Superstar Creators The Highest Paid Ones</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/uick-and-simple-access-high-res-youtube-images-for-free-here-for-2024/"><u>[New] Quick & Simple Access High-Res YouTube Images for Free Here for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/solved-fifa-19-crashing-on-pc/"><u>[SOLVED] FIFA 19 Crashing on PC</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-best-live-recording-gadgets-for-youtube-content-creators-for-2024/"><u>[Updated] Best Live Recording Gadgets for YouTube Content Creators for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-recording-youtube-videos-effortlessly-the-free-way-to-screencasts/"><u>[Updated] In 2024, Recording YouTube Videos Effortlessly - The Free Way to Screencasts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-the-essential-guide-fast-tracking-subtitle-creation-for-your-fb-posts/"><u>[Updated] In 2024, The Essential Guide Fast-Tracking Subtitle Creation for Your FB Posts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-sound-sanitization-cleaning-up-your-online-footage/"><u>2024 Approved Sound Sanitization Cleaning Up Your Online Footage</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evolution-in-smartphones-a-comprehensive-look-at-samsung-galaxy-s23-ultra-and-s21-ultra-battle/"><u>Evolution in Smartphones: A Comprehensive Look at Samsung Galaxy S23 Ultra and S21 Ultra Battle</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/find-your-perfect-roku-at-bargain-prices-this-amazon-prime-day/"><u>Find Your Perfect Roku at Bargain Prices This Amazon Prime Day</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>How to Change Location On Facebook Dating for your Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-comparing-profit-potential-dailymovement-and-youtubes-earnings/"><u>In 2024, Comparing Profit Potential DailyMovement and Youtube's Earnings</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-drone-cutting-edge-tools-top-editors-unveiled/"><u>In 2024, Drone Cutting Edge Tools - Top Editors Unveiled</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-how-to-live-stream-to-facebook-with-wirecast/"><u>In 2024, How to Live Stream to Facebook with Wirecast</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-mobile-game-innovators-and-their-streams/"><u>In 2024, Mobile Game Innovators and Their Streams</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-reclaiming-your-omegle-presence-steps-to-overcome-an-online-ban/"><u>New In 2024, Reclaiming Your Omegle Presence Steps to Overcome an Online Ban</u></a></li>
+</ul></div>
 

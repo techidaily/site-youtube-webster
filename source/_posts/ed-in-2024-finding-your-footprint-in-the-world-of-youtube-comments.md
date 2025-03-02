@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Finding Your Footprint in the World of YouTube Comments"
-date: 2025-02-10T16:08:30.625Z
-updated: 2025-02-11T16:44:11.750Z
+date: 2025-02-27T18:24:55.728Z
+updated: 2025-03-02T18:11:58.553Z
 tags:
   - ai video
   - ai youtube
@@ -40,19 +40,11 @@ That said, the following sections teach you how to find your YouTube comments on
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to Find All the Comments You’ve Posted on YouTube?
 
 YouTube allows you to post comments on any video only if you are signed in to your Google account while browsing the streaming platform. Because of this, the portal is able to keep a record of your activities, thus enabling you to track all your comments, and take necessary action such as deleting or modifying them as required.
 
 You can learn how to find all the comments you have posted on YouTube while using your preferred device by following the instructions given below:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Find Your YouTube Comments on a Desktop or Laptop Computer
 
@@ -86,19 +78,11 @@ Tap the **More Options** icon from the top-left corner of the browser, and then 
 
 ![Access the Desktop Version of YouTube ](https://images.wondershare.com/filmora/article-images/request-desktop-website-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 3: View Your Past YouTube Comments**
 
 Tap the **Menu** icon from the top-left corner of the YouTube page, and tap **History** from the menu that appears. On the **History** page, tap **Comments** from the right pane to view/access your YouTube comments that you posted in the past.
 
 ![Access the Desktop Version of YouTube ](https://images.wondershare.com/filmora/article-images/view-past-youtube-comments-iphone.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Find Your YouTube Comments on an Android Smartphone
 
@@ -144,15 +128,7 @@ Click the **More** icon from the right of the comment you want to moderate, and 
 
 ![Find  YouTube Comments List ](https://images.wondershare.com/filmora/article-images/set-up-specific-user-comment-moderation.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Note: To view all comments received on your YouTube channel, go to the Comments tab under YouTube Studio, and you will find all Channel comments & mentions.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Find Your Channel’s YouTube Comments on a Mobile App
 
@@ -226,14 +202,6 @@ Go to the **Community** category from the left pane, and go to the **Defaults** 
 
 ![set  YouTube Community Comments moderation ](https://images.wondershare.com/filmora/article-images/set-up-youtube-community-comments-moderaiton.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 6: Tips for Writing Good YouTube Comments
 
 While posting a comment on a YouTube video, it is imperative to keep a few things in mind. Some important tips that might come in handy in this regard are suggested below:
@@ -243,10 +211,6 @@ While posting a comment on a YouTube video, it is imperative to keep a few thing
 * Be genuine while leaving feedback. However, make sure to choose polite words while typing a comment
 * In case you want to add some suggestions, make sure to be humble
 * Ignore the replies with inappropriate content
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -283,17 +247,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/arnessing-video-magic-channel-creation-wizardry/"><u>[New] Harnessing Video Magic Channel Creation Wizardry</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-diy-video-setups-perfect-self-portraits-for-youtubers/"><u>[New] In 2024, DIY Video Setups Perfect Self-Portraits for YouTubers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-download-youtube-videos-directly/"><u>[New] In 2024, Download YouTube Videos Directly</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ro-tips-top-11-inexpensive-youtube-naming-tools/"><u>[New] Pro Tips Top 11 Inexpensive YouTube Naming Tools</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-metaverse-chronicles-the-best-sci-fi-movies-to-explore-new-universes/"><u>2024 Approved Metaverse Chronicles The Best Sci-Fi Movies to Explore New Universes</u></a></li>
-<li><a href="https://win-bits.techidaily.com/cute-catgirls-in-animation-style-for-desktop-backgrounds-and-visual-inspiration/"><u>Cute Catgirls in Animation Style for Desktop Backgrounds and Visual Inspiration</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/decoding-motherboard-choices-for-optimal-performance/"><u>Decoding Motherboard Choices for Optimal Performance</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-gionee-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Gionee</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-realme-10t-5g-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Realme 10T 5G Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-strategically-showcasing-achievements/"><u>In 2024, Strategically Showcasing Achievements</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/master-image-editing-with-these-top-8-tablets-beyond-filmoras-reach/"><u>Master Image Editing with These Top 8 Tablets Beyond Filmora's Reach</u></a></li>
-<li><a href="https://discover-able.techidaily.com/rustic-charm-with-yls-country-girl-backgrounds-images-and-photos-for-your-computer-display/"><u>Rustic Charm with YL's Country Girl Backgrounds, Images & Photos for Your Computer Display</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-wealthiest-webcast-wonders/"><u>[New] 2024 Approved Wealthiest Webcast Wonders</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-high-performance-7-cameras-for-cutting-edge-vlogging-tech/"><u>[New] In 2024, High-Performance 7 Cameras For Cutting-Edge Vlogging Tech</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-navigating-updated-earnings-policies-for-streamers/"><u>[New] In 2024, Navigating Updated Earnings Policies for Streamers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/uick-adaptation-video-size-to-mac-screen-proportion/"><u>[New] Quick Adaptation Video Size to Mac Screen Proportion</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-essential-steps-for-iphone-7-screen-capture-for-2024/"><u>[Updated] Essential Steps for iPhone 7 Screen Capture for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-everything-you-need-to-know-about-the-youtube-shorts-fund/"><u>[Updated] Everything You Need to Know About the YouTube Shorts Fund</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-harmonizing-iphone-footage-like-a-pro/"><u>[Updated] Harmonizing iPhone Footage Like a Pro</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-becoming-an-expert-at-yt-studio-navigation/"><u>[Updated] In 2024, Becoming an Expert at YT Studio Navigation</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-leveraging-visuals-a-step-by-step-guide-for-youtube-trailers-for-2024/"><u>[Updated] Leveraging Visuals A Step-by-Step Guide for YouTube Trailers for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-navigating-facebook-analytics-simplified/"><u>2024 Approved Navigating Facebook Analytics Simplified</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/cooking-made-easy-leverage-chatgpts-expertise-using-7-unique-strategies/"><u>Cooking Made Easy: Leverage ChatGPT's Expertise Using 7 Unique Strategies</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/creative-pebble-speakers-error-a-comprehensive-fixing-guide-for-you/"><u>Creative Pebble Speakers Error? A Comprehensive Fixing Guide for You!</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixing-the-black-screen-problem-in-halo-infinite-solutions-unveiled/"><u>Fixing the Black Screen Problem in Halo Infinite - Solutions Unveiled</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-mastery-in-motion-transform-youtube-videos-into-expressive-gifs/"><u>In 2024, Mastery in Motion Transform YouTube Videos Into Expressive GIFs</u></a></li>
+<li><a href="https://driver-download.techidaily.com/mastering-epson-driver-update-for-optimal-functionality-on-windows-11-devices/"><u>Mastering Epson Driver Update for Optimal Functionality on Windows 11 Devices</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/solved-move-from-tecno-spark-20c-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Solved Move from Tecno Spark 20C to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://fox-metric.techidaily.com/vuejs-and-laravel-integration-in-vue-now-by-creative-tim-and-updivision-comprehensive-free-full-stack-software-development-kit-featuring-jsonapi-support/"><u>Vue.js & Laravel Integration in Vue Now by Creative Tim and UPDIVISION: Comprehensive Free Full Stack Software Development Kit Featuring JsonApi Support</u></a></li>
 </ul></div>
 

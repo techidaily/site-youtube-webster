@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Step-by-Step Solution for Non-Shown Shorts Thumbnails on YouTube for 2024\""
-date: 2025-02-08T16:32:39.354Z
-updated: 2025-02-11T16:20:38.356Z
+date: 2025-03-01T17:39:29.070Z
+updated: 2025-03-02T18:26:46.936Z
 tags:
   - ai video
   - ai youtube
@@ -41,10 +41,6 @@ Adding a custom thumbnail for YouTube Shorts is the same as adding one for long-
 
 ![opening youtube studio on computer](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-change-thumbnail-2.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * On the left navigation menu, click "Content."
 
 ![content section on youtube studio](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-change-thumbnail-3.JPG)
@@ -53,10 +49,6 @@ Adding a custom thumbnail for YouTube Shorts is the same as adding one for long-
 * Navigate to the Thumbnail section. Click "Create Thumbnail."
 
 ![changing shorts thumbnail on youtube studio](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-change-thumbnail-5.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Q2\. Why Are YouTube Shorts Thumbnails Not Showing?
 
@@ -72,10 +64,6 @@ The reason behind this is the difference in the thumbnail size. Regular YouTube 
 
 ![fix youtube shorts thumbnail not showing problem](https://images.wondershare.com/filmora/article-images/fix-youtube-shorts-thumbnail-not-showing.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Unfortunately, there is no reliable fix to this problem yet. YouTubers have tried different things in hopes that YouTube will display the correct thumbnail for their Shorts.
 
 Some YouTubers have tried using different images. Others have experimented with changing the aspect ratio of the thumbnail or using Adobe editor for ratios. Clearing histories and cache, using different browsers, resizing, and changing the images' resolution have also been done. Sadly, these are all failed attempts.
@@ -85,10 +73,6 @@ Some YouTubers have tried using different images. Others have experimented with 
 Attracting viewers on Shorts is the same as attracting viewers on the main YouTube. You use interesting thumbnails and video titles. Since thumbnails are out of the options, selecting great video titles has become even more important.
 
 Here are some pointers. Your title should be at most 40 characters. Also, it should be concise and irresistible. And forget about SEO since no one is searching for YouTube Shorts anyway. People consume what they see in their feeds. So instead, the title should be "snappy." It should intrigue, entertain, or enlighten the viewers. That will net you some views for your Shorts content.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Q5\. How To Get More Views on YouTube Shorts?
 
@@ -132,17 +116,9 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![library tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-3.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Select the Shorts you just watched. It should be on the top and first on the list.
 
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### On a Mobile Phone
 
@@ -153,10 +129,6 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 * Like the Shorts video.
 
 ![liked a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-2.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Tap "Library"
 
@@ -232,21 +204,9 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![liked videos section on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-4.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Select the Shorts video you just watched. It should be at the top of the list.
 
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -275,24 +235,21 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-mememorph-machine-20/"><u>[New] 2024 Approved MemeMorph Machine 2.0</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-rhythmic-explorations-the-essential-15-videos-for-musicians/"><u>[New] In 2024, Rhythmic Explorations The Essential 15 Videos for Musicians</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/haring-stories-that-resonate-with-a-digital-audience-yt/"><u>[New] Sharing Stories that Resonate with a Digital Audience YT.</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-unveiling-canvas-power-10-pro-editor-techniques/"><u>[Updated] 2024 Approved Unveiling Canva's Power 10 Pro Editor Techniques</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-exposing-sham-numbers-the-danger-of-fabricated-youtube-views-for-2024/"><u>[Updated] Exposing Sham Numbers The Danger of Fabricated YouTube Views for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-how-to-remove-background-noise-from-your-youtube-video/"><u>[Updated] How To Remove Background Noise From Your YouTube Video</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-unlocking-your-videos-top-7-rippers-explored/"><u>[Updated] In 2024, Unlocking Your Videos Top 7 Rippers Explored</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-master-your-message-memes-on-kapwing-pro/"><u>[Updated] Master Your Message Memes on Kapwing Pro</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-new-buzzwords-for-vlogger-dialogues/"><u>[Updated] New Buzzwords for Vlogger Dialogues</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-a-guide-to-the-8-truly-effective-youtube-marketing-methods/"><u>2024 Approved A Guide to the 8 Truly Effective Youtube Marketing Methods</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-social-caricature-craft-design-your-distinctive-avatar/"><u>2024 Approved Social Caricature Craft Design Your Distinctive Avatar</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/ace-social-media-creation-using-chatgpt-strategies-for-higher-quality-content/"><u>Ace Social Media Creation Using ChatGPT: Strategies for Higher Quality Content</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/comparing-voip-giants-how-does-vonage-stack-up-today/"><u>Comparing VoIP Giants: How Does Vonage Stack Up Today?</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1723006913569-embark-on-a-thrilling-days-gone-first-person-shooter-journey-exclusively-for-pc-players/"><u>Embark On A Thrilling 'Days Gone' First-Person Shooter Journey, Exclusively for PC Players</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-activation-lock-on-the-iphone-12-pro-without-previous-owner-by-drfone-ios/"><u>In 2024, How to Remove Activation Lock On the iPhone 12 Pro Without Previous Owner?</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-the-definitive-users-manual-for-youtube-tv/"><u>In 2024, The Definitive User's Manual for YouTube TV</u></a></li>
-<li><a href="https://techtrends.techidaily.com/step-by-step-tutorial-enable-quick-login-features-in-windows-os/"><u>Step-by-Step Tutorial: Enable Quick Login Features in Windows OS</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/egies-to-evade-content-flagging-for-2024/"><u>Strategies to Evade Content Flagging for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/unfolding-the-latest-sensation-samsung-galaxy-z-flip-6-specs-launch-info-and-more/"><u>Unfolding the Latest Sensation: Samsung Galaxy Z Flip 6 - Specs, Launch Info & More</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/hannel-identity-made-simple-discover-the-10-best-banner-maker-apps-for-2024/"><u>[New] Channel Identity Made Simple Discover the 10 Best Banner Maker Apps for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-invisible-snapshotting-hidden-image-recording-on-snapchat/"><u>[New] Invisible Snapshotting Hidden Image Recording on Snapchat</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nlocking-high-impact-content-masterful-strategies-for-more-views/"><u>[New] Unlocking High-Impact Content Masterful Strategies for More Views</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-free-safe-steps-to-extract-audio-from-youtube-videos/"><u>[Updated] 2024 Approved Free, Safe Steps to Extract Audio From YouTube Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-efficient-techniques-for-obtaining-ios-audio-files-for-2024/"><u>[Updated] Efficient Techniques for Obtaining iOS Audio Files for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-harnessing-the-power-of-color-difference-keying-methods-for-2024/"><u>[Updated] Harnessing the Power of Color Difference Keying Methods for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-behind-the-scenes-filmmaking-tips-from-youtube-experts/"><u>[Updated] In 2024, Behind-the-Scenes Filmmaking Tips From YouTube Experts</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-loop-artisan-suite/"><u>2024 Approved Loop Artisan Suite</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/effortless-intel-3000-driver-fix-for-windows-10-users/"><u>Effortless Intel 3000 Driver Fix for Windows 10 Users</u></a></li>
+<li><a href="https://network-issues.techidaily.com/graphics-driver-43-troubleshooted/"><u>Graphics Driver 43 Troubleshooted</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-oppo-a1x-5g-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Oppo A1x 5G to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-honor-magic-6-lite-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On Honor Magic 6 Lite</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-mobile-reaction-video-creation-top-tools-and-apps/"><u>In 2024, Mobile Reaction Video Creation Top Tools and Apps</u></a></li>
+<li><a href="https://common-error.techidaily.com/success-story-overcoming-challenges-with-hardware-monitor-driver-installation/"><u>Success Story: Overcoming Challenges with Hardware Monitor Driver Installation</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/lueprint-for-designing-eye-catching-thumbnails-for-your-youtube-channel/"><u>The Blueprint for Designing Eye-Catching Thumbnails for Your YouTube Channel</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/hot-without-a-lifeline-hand-balancing-hacks/"><u>The Shot Without a Lifeline Hand Balancing Hacks</u></a></li>
 </ul></div>
 

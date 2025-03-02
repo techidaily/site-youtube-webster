@@ -1,7 +1,7 @@
 ---
 title: "\"Spotlight Secrets  Perfecting Vlogger Lights\""
-date: 2024-09-04T22:06:57.966Z
-updated: 2024-09-05T22:06:57.966Z
+date: 2025-02-26T18:07:17.223Z
+updated: 2025-03-02T16:36:57.738Z
 tags:
   - ai video
   - ai youtube
@@ -46,12 +46,6 @@ The final step to creating three point lighting is to set up another light behin
 
 ### Watch Video! Top Lighting Tips for Vlogging
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Lightning Tips for Aspiring YouTube Videographers
 
 Becoming the master of light will take some time and practice, so it is crucial to remain curious and anxious to learn new tricks throughout that process if you want to continually become better. These tips will help you make the first steps on that journey.
@@ -78,56 +72,29 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030381/7443" target="_top" id="2030381">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030381" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030381/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -136,8 +103,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-steps-for-confirming-youtube-identity/"><u>[New] In 2024, Steps for Confirming YouTube Identity</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-discover-keyword-power-30-must-use-hashtags-for-freegame-content/"><u>[Updated] 2024 Approved Discover Keyword Power 30 Must-Use Hashtags for FreeGame Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-secrets-to-successful-backlink-generation-in-youtube-channels/"><u>[Updated] 2024 Approved Secrets to Successful Backlink Generation in YouTube Channels</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-trimming-tactics-for-time-strapped-youtubers/"><u>[Updated] 2024 Approved Trimming Tactics for Time-Strapped YouTubers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-initiating-your-sporty-online-presence-with-mac/"><u>[Updated] In 2024, Initiating Your Sporty Online Presence with Mac</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-selecting-the-best-for-broadcasts-essential-tips-no10/"><u>[Updated] Selecting the Best for Broadcasts Essential Tips, No.10</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-maximizing-production-value-choosing-top-tier-youtube-tools/"><u>2024 Approved Maximizing Production Value Choosing Top-Tier YouTube Tools</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-the-prime-collection-of-gopro-complements/"><u>2024 Approved The Prime Collection of GoPro Complements</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-upgrading-your-spotify-library-to-youtube-music-access/"><u>2024 Approved Upgrading Your Spotify Library to YouTube Music Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/explore-the-expanded-experience-of-connectivity-with-xbox-marketplace/"><u>Explore the Expanded Experience of Connectivity with Xbox' Marketplace</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/farming-secrets-stardew-on-ginger-isles/"><u>Farming Secrets Stardew on Ginger Isles</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-deciphering-the-best-youtube-video-trackers-for-success/"><u>In 2024, Deciphering the Best YouTube Video Trackers for Success</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-top-30-mobile-video-edits-using-dji-technology/"><u>In 2024, Top 30 Mobile Video Edits Using DJi Technology</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/tream-landscape-analysis-fb-live-vs-yt-live-and-tweettv/"><u>Livestream Landscape Analysis FB LIVE Vs. YT Live & TweetTV</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/troubleshooting-techniques-for-starting-windows-n-10-mastering-startup-repair-and-bootrec-solutions/"><u>Troubleshooting Techniques for Starting Windows N 10 – Mastering Startup Repair and BOOTREC Solutions</u></a></li>
+</ul></div>
 

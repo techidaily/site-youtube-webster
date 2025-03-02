@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  The 411 on Building Sports Video Gold\""
-date: 2024-08-31T18:36:38.802Z
-updated: 2024-09-01T18:36:38.802Z
+date: 2025-02-28T17:45:43.827Z
+updated: 2025-03-02T17:30:08.224Z
 tags:
   - ai video
   - ai youtube
@@ -81,41 +81,24 @@ To start with, just launch Filmora on your computer and add the video that you w
 
 ![Import Media File](https://images.wondershare.com/filmora/guide/import-media-file-to-filmora-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 #### Step 2: Edit the Sports Video
 
 In order to create a sports highlight video, the first thing that people do is trim any unwanted part. Once the video is loaded, you can view it on the timeline of the interface. Now, go to the timeline and get the trim tool to manually select the part of the video you wish to trim. After selecting the desired fragment, you can trim the clip or just delete it by clicking on their respective icons.
 
 ![Edit Sports Video](https://images.wondershare.com/filmora/article-images/edit-sports-video-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 In the same way, you can also split your video and make other changes in it. You can also include multiple videos together and include them in your timeline as well.
 
 If you are including multiple videos, then make sure they have the same dimensions and aspect ratio. For this, you can select the video, right-click on the timeline, and click on the crop icon. Now, select the same aspect ratio for the entire video to keep it uniform.
 
 ![Edit Sports Video](https://images.wondershare.com/filmora/article-images/edit-sports-video-2.jpg)
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Most of the game highlights that we see have different speeds for various sections. That is, some actions would be fast-forwarded while some would be in slow motion. To apply this, simply select the section in the timeline, right-click, and go to the Speed and Duration settings. This will open a dedicated interface from where you can change the speed of the sports video.
 
 Apart from manually setting the speed, you can also take the assistance of the custom speed options that are available in the timeline tools.
 
 ![Edit Sports Video](https://images.wondershare.com/filmora/article-images/edit-sports-video-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Step 3: Make Advanced Edits in your Sports Video
 
 With the user-friendly interface of Filmora, you can do some basic edits and make a sports highlight video in minutes. Though, if you want to focus on some parts and make more changes, then you can use its advanced options as well.
@@ -130,9 +113,6 @@ Lastly, make sure that you added sound or voiceover to your video. You can add a
 
 ![Edit Sports Video](https://images.wondershare.com/filmora/article-images/edit-sports-video-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 #### Step 4: Export your video in the desired format
 
 That’s it! Once your sports highlight video is ready, you can export it in different formats. Just go to the Export option and select the location to save the video and a preferred resolution. You can save your video in formats like MP4, WMV, AVI, FLV, MKV, and so on.
@@ -161,23 +141,17 @@ I’m sure that after reading this guide, you would be able to come up with an i
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -186,8 +160,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-unsealing-the-secret-permanently-ditch-youtube-shorts/"><u>[New] 2024 Approved Unsealing the Secret Permanently Ditch YouTube Shorts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rafting-compelling-combinations-a-guide-to-creating-your-own-youtube-playlists-for-2024/"><u>[New] Crafting Compelling Combinations A Guide to Creating Your Own YouTube Playlists for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-essential-video-editing-apps-for-youtube-creators/"><u>[New] In 2024, Essential Video Editing Apps for YouTube Creators</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/kyrocketing-sales-how-ad-revenue-transforms-youtube-videos/"><u>[New] Skyrocketing Sales How Ad Revenue Transforms YouTube Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-essential-recommendations-for-maximum-data-keep-for-2024/"><u>[Updated] Essential Recommendations for Maximum Data Keep for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-capturing-playthroughs-on-windows-10-easy-way/"><u>2024 Approved Capturing Playthroughs on Windows 10 Easy Way</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-perfecting-iphone-footage-quick-trimming-sizing-hacks/"><u>2024 Approved Perfecting iPhone Footage Quick Trimming, Sizing Hacks</u></a></li>
+<li><a href="https://win-studio.techidaily.com/fehlerbehebung-bei-der-itunes-device-addition-auf-einem-windows-pc/"><u>Fehlerbehebung Bei Der iTunes Device Addition Auf Einem Windows PC</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-your-amd-radeon-rx-6800-up-to-date-drivers-for-windows-users-latest-versions/"><u>Get Your AMD Radeon RX 6800 Up to Date: Drivers for Windows Users – Latest Versions</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-does-chatgpt-translate-codes-its-crucial-role-in-tech-innovations/"><u>How Does ChatGPT Translate Codes? Its Crucial Role in Tech Innovations</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/live-streaming-mastery-top-features-of-manycam-webcam-software/"><u>Live Streaming Mastery: Top Features of ManyCam Webcam Software</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/s-to-perfection-design-tips-for-captivating-banners-for-2024/"><u>Pixels to Perfection Design Tips for Captivating Banners for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/tig-welding-uses-a-non-consumable-tungsten-electrode-and-an-inert-gas-shield/"><u>TIG Welding Uses a Non-Consumable Tungsten Electrode and an Inert Gas Shield.</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/updated-in-2024-best-live-chat-apps-to-try-with-shopify/"><u>Updated In 2024, Best Live Chat Apps To Try With Shopify</u></a></li>
+</ul></div>
 

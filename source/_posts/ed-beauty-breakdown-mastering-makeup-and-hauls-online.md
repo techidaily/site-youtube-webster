@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Beauty Breakdown  Mastering Makeup and Hauls Online\""
-date: 2024-08-31T18:35:26.888Z
-updated: 2024-09-01T18:35:26.888Z
+date: 2025-02-28T16:06:00.846Z
+updated: 2025-03-02T17:59:11.405Z
 tags:
   - ai video
   - ai youtube
@@ -95,9 +95,6 @@ Here are some common types of beauty and lifestyle videos:
 * Kid’s Makeup Challenge
 * No Mirror Makeup Challenge
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **How to Get Products to Review**
 
  You probably already know that a lot of the products popular beauty YouTubers review in their videos were sent to them for free. Brands want to get their products into the hands of creators who have ‘influence’ both in the hopes that their audiences will decide to buy them and as part of generating buzz – getting more people talking about their products so more people become interested.
@@ -164,9 +161,6 @@ ISO 400 should be a happy medium for shooting inside with your ring light, but y
 
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Lighting for Beauty**
 
 The key to achieving a high-quality picture for your beauty video is having a lot of light.
@@ -203,13 +197,6 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 * **_Clamp lights ($10 each) and paper lanterns ($10 each) provide great lighting and are much more affordable than professional lighting kits._ The paper lanterns will provide even, diffused, light and the clamp lights will be easy to set up wherever you need them.**
 * **_Check out these [DIY tips for creating your own reflectors and diffusers](https://www.filmora.io/community-blog/save-money-with-clever-diy-youtube-gear%21-462.html)._**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ## **Top Ring Lights for YouTube**
 
 ####  
@@ -228,9 +215,6 @@ This lightweight ring light is easy to transport, set up, and mount your phone o
 
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Build Your Own Diva Ring Light**
 
 A ring light is an important tool for a lot of beauty YouTubers, but it doesn’t fit into everyone’s budget. Here’s one popular way to create your own ring light for about $20\.
@@ -258,9 +242,6 @@ This is your ring light. Continue to step 5 if you want it to have a stand (you 
 
 **_Step 5:_** Fasten your ring light tightly to your paper towel stand securely with several zip ties. Make sure to fasten it at the bottom (where the excess rope light is coming out of your ring light). Cut off the tails of the zip ties.
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **How to Make a Makeup Tutorial – Before You Start**
 
 Before you start recording your makeup tutorial there are a few things you should do.
@@ -271,9 +252,6 @@ Before you start recording your makeup tutorial there are a few things you shoul
  4. **_Do a video test._** Before you start your video for real, start recording and shoot some test footage. Watch that back to make sure you like the look of your frame, your face is never blurry, and you’re happy with the overall look of things.
  5. **_Do an audio test._** If you’re going to be talking in your video instead of recording a voiceover after, do an audio test to make sure your audience will be able to hear you clearly.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **How to Make a Makeup Tutorial – Recording**
 
 Here are some things to keep in mind while you record your makeup tutorial:
@@ -299,23 +277,17 @@ Remember to include what type of video you made, i.e. ‘tutorial’, ‘review�
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -324,8 +296,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-anglers-guide-to-premium-fishing-cameras/"><u>[New] 2024 Approved Angler’s Guide to Premium Fishing Cameras</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/levating-user-engagement-with-detailed-video-chapters-in-youtube-for-2024/"><u>[New] Elevating User Engagement with Detailed Video Chapters in YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-from-fb-videos-to-mp3-the-easy-transformation-path/"><u>[New] In 2024, From Fb Videos to MP3 - The Easy Transformation Path</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/he-ultimate-insider-guide-to-youtube-live-video-thumbnails-for-2024/"><u>[New] The Ultimate Insider Guide to YouTube Live Video Thumbnails for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-creative-composite-imagery-for-a-brighter-tomorrow-for-2024/"><u>[Updated] Creative Composite Imagery for a Brighter Tomorrow for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-digital-dazzle-fine-tuning-video-chrominance-for-beauty/"><u>2024 Approved Digital Dazzle Fine-Tuning Video Chrominance for Beauty</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-unlocking-the-potential-of-youtubes-cc-for-content-creators/"><u>2024 Approved Unlocking the Potential of YouTube’s CC for Content Creators</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/delete-gmail-account-withwithout-password-on-oppo-reno-11f-5g-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Oppo Reno 11F 5G</u></a></li>
+<li><a href="https://games-able.techidaily.com/dont-miss-out-unbeatable-labor-day-sale-on-fire-tv-and-xbox-game-pass-bundle-save-a-whopping-33-techradar-news/"><u>Don't Miss Out! Unbeatable Labor Day Sale on Fire TV and Xbox Game Pass Bundle – Save a Whopping 33% | TechRadar News</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ss-10-tools-to-grab-youtube-images-online-for-2024/"><u>Harness 10 Tools to Grab YouTube Images Online for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-show-wi-fi-password-on-infinix-smart-7-hd-by-drfone-android/"><u>How to Show Wi-Fi Password on Infinix Smart 7 HD</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-building-a-successful-livestream-empire-youtube-edition/"><u>In 2024, Building a Successful Livestream Empire YouTube Edition</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-dive-into-the-art-of-asmr-recording-a-comprehensive-overview/"><u>In 2024, Dive Into the Art of ASMR Recording – A Comprehensive Overview</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-navigating-the-nuances-of-snapchat-spotlight/"><u>In 2024, Navigating the Nuances of Snapchat Spotlight</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-honor-90-lite-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Honor 90 Lite Phone Network-Ready</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/seamlessly-upgrade-your-pc-transfer-windows-881-across-new-devices-with-ease/"><u>Seamlessly Upgrade Your PC - Transfer Windows 8/8.1 Across New Devices with Ease</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/syncsound-pro-downloads-and-analysis/"><u>SyncSound Pro Downloads & Analysis</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ath-to-earning-through-youtube-a-creators-guide-for-2024/"><u>The Path to Earning Through YouTube A Creator's Guide for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/forming-channel-visibility-into-subscriber-stardom-on-youtube-for-2024/"><u>Transforming Channel Visibility Into Subscriber Stardom on YouTube for 2024</u></a></li>
+</ul></div>
 

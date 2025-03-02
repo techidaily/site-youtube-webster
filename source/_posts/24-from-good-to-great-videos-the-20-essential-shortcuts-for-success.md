@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, From Good to Great Videos  The 20 Essential Shortcuts for Success\""
-date: 2024-09-04T22:06:30.998Z
-updated: 2024-09-05T22:06:30.998Z
+date: 2025-02-27T16:49:34.459Z
+updated: 2025-03-02T17:17:15.141Z
 tags:
   - ai video
   - ai youtube
@@ -41,12 +41,6 @@ While watching a YouTube video, there might be instances when you want to pause 
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
 This section talks about the shortcut keys to skim the video forward and backward during playback:
@@ -75,12 +69,6 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Category 4: Managing the Captions
 
 This category talks about managing the video captions using the shortcut keys:
@@ -103,12 +91,6 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Category 6: Switching Between Screen Modes
 
 The shortcut keys given in this table enable you to switch between different screen modes:
@@ -135,12 +117,6 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '-' (Minus Key on Keyboard) | Decrease font size                                    |
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
 In this section, you will learn how to pull up the list of important YouTube shortcuts by pressing merely one key:
@@ -161,34 +137,19 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -197,8 +158,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2-ways-to-add-a-letterbox-for-facebook-videos-for-2024/"><u>[New] 2 Ways to Add a Letterbox for Facebook Videos for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/harismatic-charm-of-moving-text-on-screen-for-2024/"><u>[New] Charismatic Charm of Moving Text on Screen for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-hydro-durable-cams-of-the-week-7-edition-revealed/"><u>[New] Hydro-Durable Cams of the Week – #7 Edition Revealed</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-art-of-amplifying-audience-engagement-on-igtv/"><u>[New] In 2024, The Art of Amplifying Audience Engagement on IGTV</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ptimize-engagement-and-analytics-harnessing-tubebuddys-insights-for-2024/"><u>[New] Optimize Engagement & Analytics - Harnessing TubeBuddy's Insights for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/nlock-your-videos-potential-with-youtube-link-building-techniques/"><u>[New] Unlock Your Video's Potential with YouTube Link Building Techniques</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-youtube-editing-essentials-a-comprehensive-guide-to-song-inserts/"><u>[Updated] 2024 Approved YouTube Editing Essentials A Comprehensive Guide to Song Inserts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-breaking-down-the-secrets-of-impactful-asmr-video-creation-for-2024/"><u>[Updated] Breaking Down the Secrets of Impactful ASMR Video Creation for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-creative-video-ends-top-6-budget-friendly-options/"><u>[Updated] Creative Video Ends Top 6 Budget-Friendly Options!</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-breakthrough-techniques-for-quick-srt-to-text-file-alteration/"><u>2024 Approved Breakthrough Techniques for Quick SRT to Text File Alteration</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-vivo-y78t-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Vivo Y78t | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-the-secrets-of-captivating-audiences-in-your-videos/"><u>In 2024, The Secrets of Captivating Audiences in Your Videos</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-vivo-y36i-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Vivo Y36i and Browser | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/proactive-zoom-meeting-strategies-for-improved-skype-interactions/"><u>Proactive Zoom Meeting Strategies for Improved Skype Interactions</u></a></li>
+<li><a href="https://techidaily.com/s17-unlock-tool-remove-android-phone-password-pin-pattern-and-fingerprint-by-drfone-android-unlock-android-unlock/"><u>S17 Unlock Tool - Remove android phone password, PIN, Pattern and fingerprint</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ltimate-guide-youtube-keyword-research-made-easy-for-2024/"><u>The Ultimate Guide YouTube Keyword Research Made Easy for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unlocking-new-possibilities-how-apples-latest-innovations-enable-eye-gaze-control-on-ios-transforming-user-experience-with-advanced-accessibility-options/"><u>Unlocking New Possibilities: How Apple's Latest Innovations Enable Eye Gaze Control on iOS, Transforming User Experience with Advanced Accessibility Options</u></a></li>
+</ul></div>
 

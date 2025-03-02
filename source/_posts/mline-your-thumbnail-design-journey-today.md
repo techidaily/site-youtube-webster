@@ -1,7 +1,7 @@
 ---
 title: "Streamline Your Thumbnail Design Journey Today!"
-date: 2025-02-08T16:32:49.638Z
-updated: 2025-02-11T17:01:53.006Z
+date: 2025-02-23T17:25:06.746Z
+updated: 2025-03-02T18:26:41.142Z
 tags:
   - ai video
   - ai youtube
@@ -43,10 +43,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step1](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step1.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
 
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
@@ -63,10 +59,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
 
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
@@ -79,10 +71,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
@@ -94,10 +82,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 11:** Now it is time to add a title into your thumbnail to highlight what the video is all about. Go to the Titles, and select lower thirds. You can also select any of the titles types which best suits your needs. Drop the title into the timeline above the footage and adjust it accordingly. Now double click on the header to edit and rename it.
 
 ![ai-portrait-thumbnail-step11](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 12:** Once you are satisfied with the final results, click on the Camera icon below the preview screen or press "Ctrl+Alt+S" to take the screenshot.
 
@@ -112,10 +96,6 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -138,21 +118,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/hannel-surge-strategy-using-youtube-outros-for-rapid-expansion-for-2024/"><u>[New] Channel Surge Strategy Using YouTube Outros for Rapid Expansion for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/hort-symphony-shots-roles-and-rhythm-showcase/"><u>[New] Short Symphony Shots Roles & Rhythm Showcase</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-rise-above-the-norm-expert-tips-for-broadcasting-spherical-content-on-youtube/"><u>[Updated] 2024 Approved Rise Above the Norm Expert Tips for Broadcasting Spherical Content on Youtube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-rise-above-the-crowd-10-proven-techniques-for-video-standout/"><u>[Updated] In 2024, Rise Above the Crowd 10 Proven Techniques for Video Standout</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-learn-to-record-and-save-your-watching-experience-on-youtube-with-zero-costs-for-2024/"><u>[Updated] Learn to Record and Save Your Watching Experience on YouTube with Zero Costs for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-your-visual-impact-journey-begins-with-our-50-free-banners-in-2024/"><u>[Updated] Your Visual Impact Journey Begins with Our 50 FREE Banners, In 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-innovative-templates-for-zero-cost-youtube-intros/"><u>2024 Approved Innovative Templates for Zero-Cost YouTube Intros</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/best-practices-for-using-vimeo-in-instagram-shots/"><u>Best Practices for Using Vimeo in Instagram Shots</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/canon-mx490-all-in-one-printer-fresh-drivers-download-and-update-info/"><u>Canon MX490 All-in-One Printer - Fresh Drivers Download & Update Info</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ring-subscriptions-the-value-of-youtube-premium/"><u>Exploring Subscriptions The Value of YouTube Premium</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-lock-apps-on-xiaomi-civi-3-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Xiaomi Civi 3 to Protect Your Individual Information</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/how-to-upgrade-to-the-latest-graphics-driver-for-amd-ryzen-3-2200g-cpus/"><u>How to Upgrade to the Latest Graphics Driver for AMD Ryzen 3 2200G CPUs</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/mastering-igtv-followers-essential-techniques-to-grow-your-audience-for-2024/"><u>Mastering IGTV Followers Essential Techniques to Grow Your Audience for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ring-the-art-of-clearing-youtubes-stored-videos-for-2024/"><u>Mastering the Art of Clearing YouTube's Stored Videos for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/outriders-visual-clarity-patch-say-goodbye-to-blurry-images/"><u>Outriders Visual Clarity Patch - Say Goodbye to Blurry Images</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Infinix Note 30i | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-how-to-optimize-your-presence-on-spotify-ads/"><u>[New] How to Optimize Your Presence on Spotify Ads</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-narrative-nooks-the-leading-10-rogues/"><u>[New] In 2024, Narrative Nooks The Leading 10 Rogues</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/avor-the-magic-of-9-uninterrupted-holiday-movies-for-free-online/"><u>[New] Savor the Magic of 9 Uninterrupted Holiday Movies for Free Online</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-cutting-edge-method-quick-erasure-of-youtube-comments/"><u>[Updated] 2024 Approved Cutting-Edge Method Quick Erasure of Youtube Comments</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-designing-logos-that-stand-out-for-podcast-marketing/"><u>[Updated] 2024 Approved Designing Logos That Stand Out for Podcast Marketing</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-direct-streamline-the-most-efficient-flv-to-youtube-tools-ranked/"><u>[Updated] 2024 Approved Direct Streamline The Most Efficient Flv-to-YouTube Tools Ranked</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-step-by-step-guide-to-creating-engaging-high-quality-asmr-scenes/"><u>[Updated] 2024 Approved Step-by-Step Guide to Creating Engaging, High-Quality ASMR Scenes</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-seamlessly-convert-youtube-videos-to-mp3-on-mac/"><u>[Updated] In 2024, Seamlessly Convert YouTube Videos to MP3 on Mac</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-streamline-your-conversations-with-twitter-video-uploads-on-whatsapp/"><u>[Updated] In 2024, Streamline Your Conversations with Twitter Video Uploads on WhatsApp</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-kickstarting-your-digital-voice-the-complete-process-of-starting-a-youtube-chanel-for-2024/"><u>[Updated] Kickstarting Your Digital Voice The Complete Process of Starting a YouTube Chanel for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-superior-sound-capture-insiders-list-of-the-best-9-microphones-online/"><u>[Updated] Superior Sound Capture Insider's List of the Best 9 Microphones Online</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/o-blur-background-of-your-youtube-video/"><u>How to Blur Background of Your YouTube Video</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-fix-constant-crashing-in-remnant-from-the-ashes/"><u>How to Fix Constant Crashing in 'Remnant: From the Ashes'?</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-can-you-lawfully-archive-youtube-content/"><u>In 2024, Can You Lawfully Archive YouTube Content?</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigating-through-your-hard-drives-terrain-a-guide-to-diskusage-in-windows/"><u>Navigating Through Your Hard Drive's Terrain: A Guide to DiskUsage in Windows</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-apex-legends-loading-issues-expert-tips/"><u>Troubleshooting Apex Legends Loading Issues - Expert Tips</u></a></li>
 </ul></div>
 

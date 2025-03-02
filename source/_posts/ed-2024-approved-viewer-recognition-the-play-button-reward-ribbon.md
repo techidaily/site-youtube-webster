@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Viewer Recognition  The Play Button Reward Ribbon\""
-date: 2025-02-05T16:29:39.029Z
-updated: 2025-02-11T16:09:11.140Z
+date: 2025-02-27T17:01:25.182Z
+updated: 2025-03-02T16:32:04.940Z
 tags:
   - ai video
   - ai youtube
@@ -51,10 +51,6 @@ Here are all of YouTube's levels, from small to big:
 
 [6\. The Diamond Creator Award](#The Diamond Creator Award)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Super High Level
 
 [7\. The Custom Creator Award](#The Custom Creator Award)
@@ -73,15 +69,7 @@ YouTube won't award the YouTubers of these levels with physical plaque but will 
 
 ![play-btn-awards-graphite-level](https://images.wondershare.com/filmora/article-images/play-btn-awards-graphite-level.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Graphite is the starter level. As soon as you start a YouTube channel, you will already be on this level until you get up to 1K subscribers. During this time, you should focus on learning how YouTube works and perfecting your video production and editing skills. If your YouTube Channel subscriber is over 100, then you will be allowed to custom the URL of your channel. For more information about Custom Channel URL, please read: [How to Find and Change Your YouTube Channel URL – Super Easy! >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **#2: Opal Level (1000-10K subscribers)**
 
@@ -96,10 +84,6 @@ Getting ten thousand subscribers is a big deal. By this point, you have enough o
 ## Awards Level
 
 When a verified YouTube channel reaches a specific milestone and is deemed eligible for a creator award, they are awarded a relatively flat trophy in a metal casing with a YouTube play button symbol.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **#4: The Silver Creator Award (100K-1 million subscribers)**
 
@@ -119,10 +103,6 @@ At this level, you're making money. When you first reach 1 million, it may still
 
 ![play-btn-awards-diamond-level](https://images.wondershare.com/filmora/article-images/youtube-creator-awards-diamond.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 You're a YouTube star. You've made it. You're making enough money that YouTube/projects spawned from your YouTube channel support you completely, and you've probably got a team of helpers. Expect to be going on tours to meet and perform for your fans' live. Also, if you didn't have a book deal before, you almost definitely have one now.
 
 ## Super High Level
@@ -133,19 +113,11 @@ The awards in these levels are absent from the Creator Awards page. Only a handf
 
 **![play-btn-awards-diamond-level](https://images.wondershare.com/filmora/article-images/pewdiepie-custom-creator-award.jpg)**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 For channels whose subscribers are over 50 million, PewDiePie is the first person to ever receive this reward. It was made by the shape of his channel logo, a fist bump. He nicknamed this custom play button the Ruby Play Button. If you manage to reach this level, you are beyond being a star on YouTube and are now a bonafide pop culture phenomenon.
 
 ### **#8: The Red Diamond Creator Award (100 million subscribers)**
 
 **![red diamond creator award](https://images.wondershare.com/filmora/article-images/red-diamond-creator-award.jpg)**
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The play button at this level features a play button triangle with a large dark red crystal. If you are able to obtain the award at this level, monetization should never be for you to worry about. One hundred million subscribers mean that 1.3% of the people on this planet are watching you. You'd be a legend if you made it. As of August 2020, only PewDiePie and T-series have obtained this award.
 
@@ -158,10 +130,6 @@ If you want to find a video editing solution that empowers your imagination and 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -184,24 +152,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-android-and-ios-guide-capturing-google-meet-sessions/"><u>[New] In 2024, Android & iOS Guide Capturing Google Meet Sessions</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-the-ultimate-tripod-techniques-for-video-creators/"><u>[New] In 2024, The Ultimate Tripod Techniques for Video Creators</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-the-top-camcorders-to-consider-in-depth-analysis-for-2024/"><u>[New] The Top Camcorders to Consider – In-Depth Analysis for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-the-ultimate-guide-of-snapchat-filters/"><u>[Updated] 2024 Approved The Ultimate Guide of Snapchat Filters</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-microtones-and-monikers-shorts-sound-roles/"><u>[Updated] Microtones and Monikers Shorts' Sound Roles</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-social-network-power-play-understanding-igtv-vs-youtubes-dynamics-for-2024/"><u>[Updated] Social Network Power Play Understanding IGTV Vs. YouTube's Dynamics for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-augmenting-reality-advanced-filtration-tactics-in-snapchat/"><u>2024 Approved Augmenting Reality Advanced Filtration Tactics in Snapchat</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-gain-insight-into-your-contents-success-via-youtube-rankers/"><u>2024 Approved Gain Insight Into Your Content's Success via YouTube Rankers</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/best-learning-platforms-to-use-our-picks/"><u>Best Learning Platforms to Use : Our Picks</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ing-to-youtube-zenith-a-step-by-step-guide-to-creative-studio-mastery-for-2024/"><u>Climbing to YouTube Zenith A Step-by-Step Guide to Creative Studio Mastery for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/comprehensive-guide-to-free-storage-device-testing-applications-whats-new-in-july-2024/"><u>Comprehensive Guide to Free Storage Device Testing Applications - What's New in July 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ting-gameplay-streaming-mastery-for-youtubers/"><u>Elevating Gameplay Streaming Mastery for YouTubers</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/enablingdisabling-picture-in-picture-a-step-by-step-guide-for-iphones/"><u>Enabling/Disabling Picture-in-Picture A Step-by-Step Guide for iPhones</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/fashioning-a-footprint-fonts-for-visual-stories-in-ae-for-2024/"><u>Fashioning a Footprint Fonts for Visual Stories in AE for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-expert-video-upload-techniques-for-youtube-via-premiere/"><u>In 2024, Expert Video Upload Techniques for YouTube via Premiere</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-youtube-to-avi-mastery-top-8-convertors-reviewed/"><u>In 2024, YouTube to AVI Mastery Top 8 Convertors Reviewed</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-vlc-trimming-on-mac-made-simple-preserve-video-integrity-and-quality-for-2024/"><u>New VLC Trimming on Mac Made Simple Preserve Video Integrity and Quality for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/the-renewed-view-of-sony-s3700-2023-edition/"><u>The Renewed View of Sony S3700 2023 Edition</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/1-strategies-for-boosting-your-youtube-videos-visibility-for-2024/"><u>Top 11 Strategies for Boosting Your YouTube Videos' Visibility for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-detailed-look-at-the-latest-picsart-update-a-complete-guide-and-review/"><u>[New] 2024 Approved Detailed Look at the Latest PicsArt Update - A Complete Guide & Review</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-platform-precision-examining-obs-against-twitch-hub/"><u>[New] 2024 Approved Platform Precision Examining OBS Against Twitch Hub</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/aptivate-audiences-quickly-shortcuts-for-youtube-trailers-with-filmora/"><u>[New] Captivate Audiences Quickly Shortcuts for YouTube Trailers with Filmora</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/harting-your-course-through-youtube-compliance/"><u>[New] Charting Your Course Through YouTube Compliance</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/bs-masterclass-for-beginners-stream-to-youtube-flawlessly/"><u>[New] OBS Masterclass for Beginners Stream to YouTube Flawlessly</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-navigating-and-maximizing-youtubes-livestream-features/"><u>[Updated] 2024 Approved Navigating and Maximizing YouTube's Livestream Features</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-top-10-recruiting-gems-amp-up-engagement/"><u>[Updated] 2024 Approved Top 10 Recruiting Gems Amp Up Engagement</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-facilitating-tiktok-videos-transmission-to-facebook-friends/"><u>[Updated] Facilitating TikTok Videos' Transmission to Facebook Friends</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-guide-to-incorited-visuals-in-text-without-cost-for-2024/"><u>[Updated] Guide to Incorited Visuals in Text Without Cost for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-how-to-blur-background-of-your-youtube-video/"><u>[Updated] How to Blur Background of Your YouTube Video</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-strike-a-chord-with-instagram-reels-using-tiktoks-hit-hacks/"><u>[Updated] In 2024, Strike a Chord with Instagram Reels Using TikTok's Hit Hacks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-unlocking-the-power-of-pause-time-mastering-art-of-slow-motion-videos-using-photos-apps-and-websites-for-2024/"><u>[Updated] Unlocking the Power of Pause Time Mastering Art of Slow Motion Videos Using Photos Apps and Websites for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-oneplus-12r-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On OnePlus 12R | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-pros-picks-elevating-gaming-broadcast-with-top-5-cam-tech/"><u>In 2024, Pro's Picks Elevating Gaming Broadcast with Top 5 Cam Tech</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-unlock-the-secrets-to-high-impact-youtube-branding/"><u>In 2024, Unlock the Secrets to High-Impact YouTube Branding</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/egic-trailer-planning-for-increased-channels-profitability-for-2024/"><u>Strategic Trailer Planning for Increased Channels' Profitability for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unlock-productivity-getting-comfortable-with-windows-11s-search-bar/"><u>Unlock Productivity: Getting Comfortable with Windows 11'S Search Bar</u></a></li>
 </ul></div>
 

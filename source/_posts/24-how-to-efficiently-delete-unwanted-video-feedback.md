@@ -1,7 +1,7 @@
 ---
 title: "In 2024, How to Efficiently Delete Unwanted Video Feedback"
-date: 2025-02-04T16:06:39.121Z
-updated: 2025-02-11T17:04:17.760Z
+date: 2025-02-28T18:20:16.993Z
+updated: 2025-03-02T17:40:39.790Z
 tags:
   - ai video
   - ai youtube
@@ -40,10 +40,6 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Delete YouTube Comments from Desktop?
 
@@ -92,10 +88,6 @@ If it is your video where the comment to be removed is, you can go to My Channel
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -125,10 +117,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
@@ -137,10 +125,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
 ### Final Thoughts
@@ -148,10 +132,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -174,22 +154,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/dentifying-and-nurturing-your-brands-character-for-2024/"><u>[New] Identifying and Nurturing Your Brand's Character for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-crucial-info-every-asmr-viewer-should-absorb/"><u>[New] In 2024, Crucial Info Every ASMR Viewer Should Absorb</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-delving-into-mr-beasts-economic-dominance/"><u>[New] In 2024, Delving Into Mr. Beast's Economic Dominance</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-maximizing-video-visibility-top-strategies-on-fb/"><u>[New] Maximizing Video Visibility Top Strategies on FB</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/avigating-the-maze-of-youtube-endorsements-with-a-famebit-perspective-for-2024/"><u>[New] Navigating the Maze of YouTube Endorsements with a FameBit Perspective for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-changing-tide-of-youtube-earnings/"><u>[Updated] 2024 Approved The Changing Tide of YouTube Earnings</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-brilliant-asus-monitor-ultrahd-true-black-for-2024/"><u>[Updated] Brilliant Asus Monitor UltraHD, True Black for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-enhancing-youtube-watching-with-list-rearrangement/"><u>[Updated] Enhancing YouTube Watching with List Rearrangement</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-unveiling-youtubes-cc-policy-for-aspiring-creators/"><u>[Updated] Unveiling YouTube's CC Policy for Aspiring Creators</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-are-sellers-involved-in-monetizing-review-content/"><u>2024 Approved Are Sellers Involved in Monetizing Review Content?</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-crafting-standout-youtube-thumbnails-with-ease/"><u>2024 Approved Crafting Standout YouTube Thumbnails with Ease</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-harness-high-quality-banners-free-for-content-developers/"><u>2024 Approved Harness High-Quality Banners – Free for Content Developers</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-how-to-maximize-revenue-the-secret-of-fb-animation-campaigns/"><u>2024 Approved How to Maximize Revenue The Secret of FB Animation Campaigns</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-apple-iphone-12-mini-to-pc-via-usb-drfone-by-drfone-ios/"><u>In 2024, How to Mirror Apple iPhone 12 mini to PC via USB? | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/recognize-unlisted-hardware-in-device-manager/"><u>Recognize Unlisted Hardware in Device Manager</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/superior-flash-unmatched-performance-with-430ex-iii-rt/"><u>Superior Flash, Unmatched Performance with 430EX III-RT</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/k-the-secret-of-youtube-to-gif-conversion-begin-here-for-2024/"><u>Unlock the Secret of YouTube-to-GIF Conversion - Begin Here for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-curtail-unrequested-youtube-content-streams/"><u>[New] Curtail Unrequested YouTube Content Streams</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/avigating-copyright-challenges-on-youtube-shorts-for-2024/"><u>[New] Navigating Copyright Challenges on YouTube Shorts for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/tep-up-your-stream-simultaneous-views-on-one-screen/"><u>[New] Step Up Your Stream Simultaneous Views on One Screen</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-pioneering-in-play-a-step-by-step-to-thriving-gaming-channels/"><u>[Updated] 2024 Approved Pioneering in Play A Step-by-Step to Thriving Gaming Channels</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-social-stream-wars-fb-live-vs-yt-live-and-tweetstreams/"><u>[Updated] In 2024, Social Stream Wars FB LIVE Vs. YT Live & TweetStreams</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-tidying-up-old-youtube-tracks-bar-free-viewing/"><u>[Updated] In 2024, Tidying Up Old YouTube Tracks Bar-Free Viewing</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-insights-on-how-youtube-handles-uploaded-videos/"><u>2024 Approved Insights on How YouTube Handles Uploaded Videos</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-which-is-the-ultimate-screen-recorder-analyzing-bandicam-vs-camtasia/"><u>2024 Approved Which Is the Ultimate Screen Recorder? Analyzing Bandicam vs Camtasia</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/easy-fixes-when-playing-back-cublood-bloods-not-working-properly-on-different-windows-os/"><u>Easy Fixes When Playing Back cuBlood Bloods Not Working Properly on Different Windows OS</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/expert-tips-on-basic-color-correction-in-photos/"><u>Expert Tips on Basic Color Correction in Photos</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-complete-fixes-to-solve-iphone-8-randomly-asking-for-apple-id-password-drfone-by-drfone-ios/"><u>In 2024, Complete Fixes To Solve iPhone 8 Randomly Asking for Apple ID Password | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-vivo-y02t-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Vivo Y02T | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/is-fake-gps-location-spoofer-a-good-choice-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>Is Fake GPS Location Spoofer a Good Choice On Apple iPhone 6 Plus? | Dr.fone</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/precision-computing-toms-hardcore-hardware-rundown/"><u>Precision Computing: Tom's Hardcore Hardware Rundown</u></a></li>
 </ul></div>
 
